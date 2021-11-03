@@ -1,0 +1,3575 @@
+# 1918年
+- ## 10月
+	- ### 28日-31日
+		- 该[紫苑革命](https://en.wikipedia.org/wiki/Aster_Revolution)发生时建立的[匈牙利民主共和国](https://en.wikipedia.org/wiki/Hungarian_Democratic_Republic)。
+	- ### 29日
+		- [德国革命的](https://en.wikipedia.org/wiki/German_Revolution_of_1918%E2%80%9319)开始。
+- ## 11月
+	- ### 11日
+		- [与德国](https://en.wikipedia.org/wiki/Armistice_with_Germany)的停战标志着第一次世界大战的结束。德国军队撤离被占领土，盟军随后进入并[占领德国莱茵兰](https://en.wikipedia.org/wiki/Occupation_of_the_Rhineland)。
+	- ### 13日
+		- 在[匈牙利，罗马尼亚战争](https://en.wikipedia.org/wiki/Hungarian%E2%80%93Romanian_War)开始。
+- ## 12月
+	- ### 27日
+		- 反对德国统治的[大波兰起义](https://en.wikipedia.org/wiki/Greater_Poland_Uprising_(1918%E2%80%9319))开始。
+# 1919年
+- ## 1月
+	- ### 4日-15日
+		- 该[斯巴达克起义](https://en.wikipedia.org/wiki/Spartacist_uprising)发生，由德国政府粉碎，标志着结束[德国革命](https://en.wikipedia.org/wiki/German_Revolution)。
+	- ### 18日
+		- [巴黎和会](https://en.wikipedia.org/wiki/Paris_Peace_Conference,_1919)开幕，以谈判第一次世界大战交战国之间的和平条约。
+	- ### 31日
+		- [乔治广场之战](https://en.wikipedia.org/wiki/Battle_of_George_Square)发生在格拉斯哥，英国军队被城市当局召集，以平息罢工期间每周工作40小时的骚乱。
+- ## 2月
+	- 在[波兰苏维埃战争](https://en.wikipedia.org/wiki/Polish%E2%80%93Soviet_War)开始与这两个国家之间的边境冲突。
+- ## 3月
+	- ### 2日
+		- 第三国际或[共产国际](https://en.wikipedia.org/wiki/Comintern)在莫斯科成立。共产国际的既定目标是建立一个全球性的苏维埃共和国。
+	- ### 12日
+		- 奥地利制宪国民议会要求奥地利[并入德国](https://en.wikipedia.org/wiki/Anschluss)。
+	- ### 21日
+		- 宣布成立共产主义[匈牙利苏维埃共和国](https://en.wikipedia.org/wiki/Hungarian_Soviet_Republic)。
+- ## 5月
+	- ### 15日
+		- 在[土耳其独立战争](https://en.wikipedia.org/wiki/Turkish_War_of_Independence)开始为希腊军队在士麦那降落。
+- ## 6月
+	- ### 21日
+		- 大多数德国舰队被[凿沉](https://en.wikipedia.org/wiki/Scuttling_of_the_German_fleet_at_Scapa_Flow)在[斯卡帕湾](https://en.wikipedia.org/wiki/Scapa_Flow)在苏格兰。根据1918年停战协议的条款，这些船只在那里被扣留，当时正在就船只的命运进行谈判。德国人担心要么英国会扣押这些船只，要么德国会拒绝《凡尔赛条约》并完全恢复战争，在这种情况下，这些船只可能会被用来对付德国。
+	- ### 28日
+		- 经过六个月的谈判，德国和[协约国](https://en.wikipedia.org/wiki/Allies_of_World_War_I)签署了[凡尔赛条约](https://en.wikipedia.org/wiki/Treaty_of_Versailles)。德国武装部队的规模被限制在100,000人以内，并且德国被勒令为战争损失支付大笔赔款。美国签署了该条约但没有[批准](https://en.wikipedia.org/wiki/Ratification)它，后来与德国单独签订了和平条约。
+- ## 7月
+	- 一位名叫[阿道夫·希特勒的](https://en.wikipedia.org/wiki/Adolf_Hitler)下士在德国国防军的要求下潜入了[德国工人党](https://en.wikipedia.org/wiki/German_Workers%27_Party)（[纳粹党](https://en.wikipedia.org/wiki/Nazi_Party)的前身）。
+- ## 8月
+	- ### 1日
+		- 短暂的匈牙利苏维埃共和国垮台。匈牙利人民共和国重新建立。
+	- ### 3日
+		- 匈牙利-罗马尼亚战争结束。
+	- ### 8日
+		- 匈牙利人民共和国解散。
+- ## 9月
+	- ### 10日
+		- [德意志奥地利](https://en.wikipedia.org/wiki/German_Austria)签署[圣日耳曼条约](https://en.wikipedia.org/wiki/Treaty_of_Saint-Germain)。与盟国签订的和平条约规定了奥地利的边界，禁止与德国结盟，德意志奥地利不得不更名为奥地利。美国没有批准该条约，后来与奥地利单独签订和平条约。
+	- ### 12日
+		- [GabrieleD'Annunzio](https://en.wikipedia.org/wiki/Gabriele_D%27Annunzio)率领一支意大利民族主义非正规部队攻占有争议的城市[Fiume](https://en.wikipedia.org/wiki/Rijeka)（里耶卡）。
+- ## 11月
+	- ### 27日
+		- 保加利亚签署了[Neuilly-sur-Seine条约](https://en.wikipedia.org/wiki/Treaty_of_Neuilly-sur-Seine)。与盟国的和平条约规定了保加利亚的边界，保加利亚军队减少到20,000人，保加利亚被命令支付战争赔款。
+# 1920年
+- ## 1月
+	- ### 10日
+		- 但[泽自由市的](https://en.wikipedia.org/wiki/Free_City_of_Danzig)建立，既没有得到德国也没有得到波兰的批准。
+	- ### 21日
+		- 巴黎和会随着国际[联盟](https://en.wikipedia.org/wiki/League_of_Nations)就职大会落下帷幕。尽管美国是第一次世界大战的胜利者之一，但从未加入联盟。
+- ## 3月
+	- 失败的右翼[卡普政变](https://en.wikipedia.org/wiki/Kapp_Putsch)是针对德国政府的。德国军队仍然处于被动状态，政变被总罢工击败。在对卡普政变的总罢工的刺激下，德国[鲁尔起义](https://en.wikipedia.org/wiki/Ruhr_Uprising)被德国军队镇压。
+- ## 6月
+	- ### 4日
+		- 匈牙利与协约国[签署特里亚农条约](https://en.wikipedia.org/wiki/Treaty_of_Trianon)。该条约规定了一个独立的匈牙利国家的地位并界定了其边界。美国没有批准该条约，后来与匈牙利单独签订了和平条约。
+- ## 8月
+	- ### 10日
+		- 土耳其与协约国（美国除外，美国从未向土耳其宣战）签署了[《色佛尔条约》](https://en.wikipedia.org/wiki/Treaty_of_S%C3%A8vres)。该条约[瓜分了奥斯曼帝国](https://en.wikipedia.org/wiki/Partitioning_of_the_Ottoman_Empire)，而土耳其军队的规模也有所缩减。希腊不接受条约中制定的边界，也没有签署。塞弗尔条约在土耳其独立战争期间被废除，各方于1923年签署并批准了取代洛桑条约。
+- ## 10月
+	- [Żeligowski的叛变](https://en.wikipedia.org/wiki/%C5%BBeligowski%27s_Mutiny)，一支由[LucjanŻeligowski将军](https://en.wikipedia.org/wiki/Lucjan_%C5%BBeligowski)领导的波兰军队在没有波兰国家支持的情况下占领了[维尔纽斯](https://en.wikipedia.org/wiki/Vilnius)。
+- ## 11月
+	- ### 2日
+		- [富兰克林·D·罗斯福](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)[在美国副总统一职](https://en.wikipedia.org/wiki/Vice_President_of_the_United_States)被[马萨诸塞州州长](https://en.wikipedia.org/wiki/Massachusetts_Governor) [卡尔文·柯立芝](https://en.wikipedia.org/wiki/Calvin_Coolidge)击败。
+- ## 12月
+	- ### 24日
+		- [血腥圣诞节](https://en.wikipedia.org/wiki/Bloody_Christmas_(1920))：意大利在加布里埃尔·邓南齐奥(GabrieleD'Annunzio)的军团士兵抵抗五天后占领了Fiume。
+# 1921年
+- ## 3月
+	- ### 4日
+		- 哈丁在[就任](https://en.wikipedia.org/wiki/Inauguration_of_Warren_G._Harding)为[美国总统](https://en.wikipedia.org/wiki/President_of_the_United_States)。
+	- ### 7日-17日
+		- 红军叛乱者和俄罗斯平民在喀琅施塔得叛乱中占领了[喀琅施塔](https://en.wikipedia.org/wiki/Kronstadt)得战略城市，要求扩大平民权利并结束布尔什维克对苏联政治的垄断。经过几天和数千人的伤亡，叛乱被来自邻国彼得格勒的布尔什维克军队镇压。
+	- ### 18日
+		- 在[波兰苏维埃战争](https://en.wikipedia.org/wiki/Polish%E2%80%93Soviet_War)结束与[里加和约](https://en.wikipedia.org/wiki/Peace_of_Riga)。
+- ## 4月
+	- ### 24日
+		- Fiuman选民批准了[Fiume自由州](https://en.wikipedia.org/wiki/Free_State_of_Fiume)的想法。
+- ## 8月
+	- ### 25日
+		- 《[美德和约》](https://en.wikipedia.org/wiki/U.S.%E2%80%93German_Peace_Treaty_(1921))和《[美奥和约》](https://en.wikipedia.org/wiki/U.S.%E2%80%93Austrian_Peace_Treaty_(1921))的签署，标志着两国与美国的战争状态正式结束，取代了未获批准的凡尔赛条约和圣日耳曼条约。由美国。
+	- ### 29日
+		- 在[美国匈和平条约](https://en.wikipedia.org/wiki/U.S.%E2%80%93Hungarian_Peace_Treaty_(1921))的签署，标志着两个国家，而不是一个不是由美国批准的特里亚农条约之间战争状态的正式结束。
+- ## 11月
+	- ### 9日
+		- 在罗马举行的第三次法西斯代表大会期间，贝尼托·墨索里尼[创立](https://en.wikipedia.org/wiki/National_Fascist_Party)了意大利民族法西斯党。
+# 1922年
+- ## 2月
+	- ### 6日
+		- 在[华盛顿会议](https://en.wikipedia.org/wiki/Washington_Naval_Conference)与签署结束[华盛顿海军条约](https://en.wikipedia.org/wiki/Washington_Naval_Treaty)由英国，美国，日本，法国和意大利。签署方同意限制其海军力量的规模。
+- ## 3月
+	- 第一批德国军官前往苏联进行德苏[军事合作](https://en.wikipedia.org/wiki/Germany%E2%80%93Soviet_Union_relations,_1918%E2%80%931941)。
+- ## 4月
+	- ### 16日
+		- 德国和苏联签署了[《拉帕洛条约》](https://en.wikipedia.org/wiki/Treaty_of_Rapallo_(1922))，重新建立外交关系，放弃对彼此的金融债权，并承诺未来合作。
+- ## 8月
+	- ### 13日
+		- GabrieleD'Annunzio是墨索里尼的竞争对手之一，从窗户跌落（要么被推倒要么在醉酒时摔倒），使他受了重伤。
+- ## 10月
+	- 在[俄国内战](https://en.wikipedia.org/wiki/Russian_Civil_War)的结束（自1917年11月7日至今）[布尔什维克](https://en.wikipedia.org/wiki/Bolshevik)的胜利与上次的失败[白势力](https://en.wikipedia.org/wiki/White_Army)在西伯利亚。
+	- ### 11日
+		- [穆达尼亚停战协定](https://en.wikipedia.org/wiki/Armistice_of_Mudanya)是在土耳其独立战争中签署的。
+	- ### 29日
+		- [法西斯](https://en.wikipedia.org/wiki/Fascism)领袖[贝尼托·墨索里尼](https://en.wikipedia.org/wiki/Benito_Mussolini)在罗马大[游行](https://en.wikipedia.org/wiki/Victor_Emmanuel_III_of_Italy)后被维克多·伊曼纽尔三世任命为意大利总理。
+- ## 11月
+	- ### 1日
+		- 在[土耳其大国民议会](https://en.wikipedia.org/wiki/Grand_National_Assembly_of_Turkey) [废除了奥斯曼苏丹国](https://en.wikipedia.org/wiki/Abolition_of_the_Ottoman_Sultanate)。
+# 1923年
+- ## 1月
+	- ### 11日
+		- 法国和比利时[占领鲁尔](https://en.wikipedia.org/wiki/Occupation_of_the_Ruhr)区是为了迫使德国加紧支付战争赔款。
+- ## 6月
+	- [1923年](https://en.wikipedia.org/wiki/Hyperinflation_in_the_Weimar_Republic)的大通货膨胀，[德国马克](https://en.wikipedia.org/wiki/German_Papiermark)的价值被摧毁。
+- ## 7月
+	- ### 24日
+		- 在[洛桑条约](https://en.wikipedia.org/wiki/Treaty_of_Lausanne)，解决现代土耳其的边界，是由土耳其和瑞士签署了[协约国](https://en.wikipedia.org/wiki/Entente_powers)。它标志着土耳其独立战争的结束，并取代了早先的《色佛尔条约》。
+- ## 8月
+	- ### 2日
+		- [哈丁](https://en.wikipedia.org/wiki/Warren_G._Harding)，[美国总统](https://en.wikipedia.org/wiki/President_of_the_United_States)死在办公室，被他得手[副总裁](https://en.wikipedia.org/wiki/Vice_President_of_the_United_States)，[卡尔文·柯立芝](https://en.wikipedia.org/wiki/Calvin_Coolidge)。
+	- ### 31日
+		- 在[科孚岛事件](https://en.wikipedia.org/wiki/Corfu_incident)：意大利炮轰和占据的希腊岛屿[科孚](https://en.wikipedia.org/wiki/Corfu)寻求压力希腊割地赔款在希腊的意大利将军谋杀。
+- ## 9月
+	- ### 27日
+		- 科孚岛事件结束；在[大使会议作出](https://en.wikipedia.org/wiki/Conference_of_Ambassadors)有利于意大利要求希腊赔偿的裁决后，意大利军队撤退。
+- ## 10月
+	- ### 23日-25日
+		- 在[汉堡起义](https://en.wikipedia.org/wiki/Hamburg_Uprising)发生。
+	- ### 29日
+		- [奥斯曼帝国](https://en.wikipedia.org/wiki/Ottoman_Empire)解体后，土耳其正式成为共和国。
+- ## 11月
+	- ### 8日
+		- 该[啤酒馆政变](https://en.wikipedia.org/wiki/Beer_Hall_Putsch)发生时，在[希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)失败导致纳粹企图推翻德国政府。第二天就被警察镇压了。
+# 1924年
+- ## 1月
+	- ### 21日
+		- 苏联领导人[弗拉基米尔·列宁](https://en.wikipedia.org/wiki/Vladimir_Lenin)去世，[约瑟夫·斯大林](https://en.wikipedia.org/wiki/Joseph_Stalin)开始清除竞争对手，为他的独裁统治扫清道路。
+- ## 2月
+	- ### 1日
+		- 英国扩大对苏联的[外交承认](https://en.wikipedia.org/wiki/Diplomatic_recognition)。
+- ## 3月
+	- ### 16日
+		- 意大利吞并菲乌梅自由邦。
+- ## 4月
+	- ### 1日
+		- 阿道夫·希特勒因参与啤酒馆政变而被判处5年监禁（他只服刑8个月）。
+	- ### 6日
+		- 法西斯主义者赢得意大利的选举，占2/3多数。
+- ## 6月
+	- ### 10日
+		- 意大利法西斯分子在罗马绑架并杀害了社会主义领导人[贾科莫·马泰奥蒂](https://en.wikipedia.org/wiki/Giacomo_Matteotti)。
+- ## 8月
+	- ### 16日
+		- 该[道威斯计划](https://en.wikipedia.org/wiki/Dawes_Plan)被接受。它结束了盟军对鲁尔的占领，并为德国支付战争赔款制定了交错支付计划。
+	- ### 18日
+		- 法国开始从德国鲁尔区撤军。
+# 1925年
+- ## 5月
+	- ### 12日
+		- 退役[元帅](https://en.wikipedia.org/wiki/Field_Marshal) [保罗·冯·兴登堡](https://en.wikipedia.org/wiki/Paul_Von_Hindenburg)当选[德国总统](https://en.wikipedia.org/wiki/President_of_Germany).。
+- ## 7月
+	- ### 18日
+		- [希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)的自传宣言《[我的奋斗》](https://en.wikipedia.org/wiki/Mein_Kampf)出版。
+- ## 12月
+	- ### 1日
+		- 在[洛迦诺条约](https://en.wikipedia.org/wiki/Locarno_Treaties)在伦敦签署（它们被批准的1926年9月14日）。这些条约确定了西欧的边界并使德国与西欧盟国之间的关系正常化。
+# 1926年
+- ## 1月
+	- ### 3日
+		- [西奥多罗斯·潘加洛斯](https://en.wikipedia.org/wiki/Theodoros_Pangalos_(general))宣布自己为希腊独裁者。
+	- ### 31日
+		- 英国和比利时军队离开[德国科隆](https://en.wikipedia.org/wiki/Cologne)。
+- ## 4月
+	- ### 4日
+		- 希腊独裁者塞奥佐罗斯·潘加洛斯被选为总统.。
+	- ### 24日
+		- [柏林条约](https://en.wikipedia.org/wiki/Treaty_of_Berlin_(1926))是由德国和苏联签署的，如果任何一个国家在未来五年内受到攻击，该条约将宣布中立。
+- ## 9月
+	- ### 8日
+		- 德国加入国际[联盟](https://en.wikipedia.org/wiki/League_of_Nations)。
+- ## 12月
+	- ### 25日
+		- [大正天皇](https://en.wikipedia.org/wiki/Emperor_Taish%C5%8D)去世，他的儿子[裕仁天皇](https://en.wikipedia.org/wiki/Hirohito)将成为[日本天皇](https://en.wikipedia.org/wiki/Emperor_of_Japan)。
+# 1927年
+- ## 4月
+	- ### 12日
+		- 国民党在[上海屠杀](https://en.wikipedia.org/wiki/Shanghai_massacre)了300-5,000名共产党人，标志着第[一次统一战线](https://en.wikipedia.org/wiki/First_United_Front)的结束和[中国内战的开始](https://en.wikipedia.org/wiki/Chinese_Civil_War)。
+- ## 5月
+	- ### 20日
+		- [沙特阿拉伯](https://en.wikipedia.org/wiki/Saudi_Arabia)和英国签署[吉达条约](https://en.wikipedia.org/wiki/Treaty_of_Jeddah_(1927))。
+- ## 6月
+	- ### 7日
+		- 苏联驻华沙大使彼得沃伊科夫被一名[白人运动](https://en.wikipedia.org/wiki/White_movement)活动家暗杀。
+- ## 11月
+	- ### 12日
+		- [列昂·托洛茨基](https://en.wikipedia.org/wiki/Leon_Trotsky)被苏联共产党开除，让[约瑟夫·斯大林](https://en.wikipedia.org/wiki/Joseph_Stalin)毫无争议地控制了苏联。
+- ## 12月
+	- ### 14日
+		- [伊拉克](https://en.wikipedia.org/wiki/Iraq)从英国获得独立。
+# 1928年
+- ## 5月
+	- ### 3日
+		- 在[济南事件](https://en.wikipedia.org/wiki/Jinan_Incident)开始时，之间的限制武装冲突[共和国的中国](https://en.wikipedia.org/wiki/Republic_of_China)和日本。
+	- ### 28日
+		- 该基金会[中国红军](https://en.wikipedia.org/wiki/Chinese_Red_Army)。
+- ## 6月
+	- ### 4日
+		- [皇谷屯事件](https://en.wikipedia.org/wiki/Huanggutun_Incident)：日本特工刺杀中国军阀[张作霖](https://en.wikipedia.org/wiki/Zhang_Zuolin).。
+- ## 8月
+	- ### 2日
+		- 意大利与埃塞俄比亚签署《[意大利-埃塞俄比亚条约》](https://en.wikipedia.org/wiki/Italo-Ethiopian_Treaty_of_1928)，承诺合作与友谊。
+	- ### 27日
+		- 在[非战公约](https://en.wikipedia.org/wiki/Kellogg-Briand_Pact)在巴黎的世界主要大国签署。该条约禁止侵略战争。
+- ## 10月
+	- ### 1日
+		- 苏联启动了[第一个五年计划](https://en.wikipedia.org/wiki/First_five-year_plan)，这是一项促进[工业化](https://en.wikipedia.org/wiki/Industrialization)的经济努力。
+- ## 11月
+	- ### 6日
+		- 赫伯特·胡佛在[1928年的美国总统选举中](https://en.wikipedia.org/wiki/1928_United_States_presidential_election)击败[艾尔·史密斯](https://en.wikipedia.org/wiki/Al_Smith)赢得了胜利。
+# 1929年
+- ## 2月
+	- ### 9日
+		- [利特维诺夫条约](https://en.wikipedia.org/wiki/Litvinov%27s_Pact)由苏联、波兰、爱沙尼亚、罗马尼亚和拉脱维亚在莫斯科签署。该条约禁止按照凯洛格-布里昂条约的路线进行侵略性战争。
+	- ### 11日
+		- 意大利与[罗马教廷](https://en.wikipedia.org/wiki/Holy_See)签署[拉特兰条约](https://en.wikipedia.org/wiki/Lateran_Treaty)，梵蒂冈与意大利关系正常化。
+- ## 3月
+	- ### 4日
+		- [赫伯特·胡佛](https://en.wikipedia.org/wiki/Herbert_Hoover)就任[美国总统](https://en.wikipedia.org/wiki/President_of_the_United_States)。
+	- ### 28日
+		- 日本从中国撤军，[济南事变](https://en.wikipedia.org/wiki/Jinan_Incident)结束。
+- ## 4月
+	- ### 3日
+		- 波斯签署利特维诺夫条约。
+- ## 6月
+	- ### 7日
+		- 在[拉特兰条约](https://en.wikipedia.org/wiki/Lateran_Treaty)得到批准，使[梵蒂冈](https://en.wikipedia.org/wiki/Vatican_City)一个主权国家。
+- ## 7月
+	- ### 24日
+		- 在[非战公约](https://en.wikipedia.org/wiki/Kellogg-Briand_Pact)生效。
+- ## 8月
+	- ### 31日
+		- 该[青年计划](https://en.wikipedia.org/wiki/Young_Plan)，它设置为US$二六三五○○○○○○○德国所欠的总第一次世界大战赔款支付过了一段58½年定稿。它取代了早期的道斯计划。
+- ## 10月
+	- ### 29日
+		- 在[大萧条](https://en.wikipedia.org/wiki/Great_Depression)始于[华尔街的崩溃](https://en.wikipedia.org/wiki/Wall_Street_Crash_of_1929)。
+# 1930年
+- ## 4月
+	- ### 22日
+		- 英国、美国、法国、意大利和日本签署了[伦敦海军条约，](https://en.wikipedia.org/wiki/London_Naval_Treaty)规范潜艇战并限制海军造船。
+- ## 6月
+	- ### 30日
+		- 法国从莱茵兰撤出剩余的军队，结束了对莱茵兰的占领。
+- ## 9月
+	- ### 14日
+		- 德国大选导致纳粹成为[德国国会](https://en.wikipedia.org/wiki/Reichstag_(Weimar_Republic))的第二大党。
+# 1931年
+- ## 5月
+	- ### 19日
+		- 启动第一的[五金\-class](https://en.wikipedia.org/wiki/Deutschland-class_cruiser)巡洋舰，[五金](https://en.wikipedia.org/wiki/German_cruiser_Deutschland)。该舰的建造在国外引起了恐慌，因为预计这些舰艇的10,000吨排水量限制将限制[德国海军](https://en.wikipedia.org/wiki/Reichsmarine)使用海岸防御舰艇，而不是能够在公海作战的舰艇。
+- ## 9月
+	- ### 18日
+		- [奉天事件](https://en.wikipedia.org/wiki/Mukden_Incident)：日本对中国满洲地区的一条日本铁路进行假旗轰炸，指责中国持不同政见者发动袭击，许多人声称这一事件是第二次世界大战的正式开始。
+	- ### 19日
+		- [日本](https://en.wikipedia.org/wiki/Japanese_invasion_of_Manchuria)以奉天事件为借口，入侵满洲，将其建立为[傀儡国家](https://en.wikipedia.org/wiki/Puppet_state)。
+# 1932年
+- ## 1月
+	- ### 7日
+		- 在[不承认主义](https://en.wikipedia.org/wiki/Stimson_Doctrine)被宣布[美国国务卿](https://en.wikipedia.org/wiki/United_States_Secretary_of_State) [史汀生](https://en.wikipedia.org/wiki/Henry_L._Stimson)在回应日本侵略满洲。该学说认为，美国政府不会承认以武力进行的边界变更。
+	- ### 28日
+		- [1月28日事件](https://en.wikipedia.org/wiki/January_28_Incident)：日军以爆发反日暴力为借口，进攻中国上海。战斗于3月6日结束，并于5月5日签署停火协议，其中上海成为非军事区。
+- ## 2月
+	- ### 27日
+		- 中日在满洲的战争以日本控制满洲而告终。
+- ## 3月
+	- ### 1日
+		- 日本从被占领的满洲里建立傀儡国家[满洲](https://en.wikipedia.org/wiki/Manchukuo)国。
+- ## 4月
+	- ### 10日
+		- [PaulVonHindenburg](https://en.wikipedia.org/wiki/Paul_von_Hindenburg)被培育[德国总统](https://en.wikipedia.org/wiki/President_of_Germany)，击败了AdolfHitler。
+- ## 5月
+	- ### 30日
+		- [德国总理](https://en.wikipedia.org/wiki/Chancellor_of_Germany) [海因里希·布吕​​宁](https://en.wikipedia.org/wiki/Heinrich_Br%C3%BCning)辞职。兴登堡总统要求[弗朗茨·冯·帕彭](https://en.wikipedia.org/wiki/Franz_von_Papen)组建新政府。
+- ## 7月
+	- ### 25日
+		- [苏波互不侵犯条约](https://en.wikipedia.org/wiki/Soviet%E2%80%93Polish_Non-Aggression_Pact)已签署，最初有效期为三年。
+- ## 8月
+	- ### 30日
+		- [赫尔曼·戈林](https://en.wikipedia.org/wiki/Hermann_G%C3%B6ring)当选为德国参议院主席.。
+- ## 11月
+	- ### 8日
+		- [富兰克林·D·罗斯福](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)在1932年总统选举中击败[赫伯特·胡佛](https://en.wikipedia.org/wiki/Herbert_Hoover)。
+	- ### 21日
+		- 兴登堡总统开始与希特勒讨论组建新政府的问题。
+- ## 12月
+	- ### 3日
+		- 兴登堡任命[库尔特·冯·施莱歇尔](https://en.wikipedia.org/wiki/Kurt_von_Schleicher)为德国总理。
+# 1933年
+- ## 1月
+	- ### 1日
+		- [防御长城](https://en.wikipedia.org/wiki/Defense_of_the_Great_Wall)：日本进攻位于内蒙古[热河省](https://en.wikipedia.org/wiki/Rehe_Province)的中国长城东端要塞。
+	- ### 30日
+		- [希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)被任命为[德国总理](https://en.wikipedia.org/wiki/Chancellor_of_Germany)由[总统兴登堡](https://en.wikipedia.org/wiki/Paul_von_Hindenburg)。
+- ## 2月
+	- ### 27日
+		- 德国国会[大厦被纵火焚烧](https://en.wikipedia.org/wiki/Reichstag_fire)。
+	- ### 28日
+		- 在[国会纵火法令](https://en.wikipedia.org/wiki/Reichstag_Fire_Decree)通过后，抵消许多德国公民自由。
+- ## 3月
+	- ### 4日
+		- [富兰克林·德拉诺·罗斯福](https://en.wikipedia.org/wiki/Franklin_Delano_Roosevelt)的[就职](https://en.wikipedia.org/wiki/First_inauguration_of_Franklin_D._Roosevelt)为[美国总统](https://en.wikipedia.org/wiki/President_of_the_United_States)。
+	- ### 20日
+		- 德国第一个集中营[达豪(Dachau](https://en.wikipedia.org/wiki/Dachau_concentration_camp))落成。
+	- ### 23日
+		- 国会通过了[授权法案](https://en.wikipedia.org/wiki/Enabling_Act_of_1933)，使阿道夫·希特勒成为德国的独裁者。
+	- ### 24日
+		- [1933年的反纳粹抵制](https://en.wikipedia.org/wiki/Anti-Nazi_boycott_of_1933)。
+	- ### 27日
+		- 日本退出国际[联盟是](https://en.wikipedia.org/wiki/League_of_Nations)因为国际联盟的[利顿报告](https://en.wikipedia.org/wiki/Lytton_Report)发现满洲属于中国，而满洲国并不是一个真正独立的国家。
+- ## 4月
+	- ### 1日
+		- 德国人被告知要[抵制犹太商店和企业](https://en.wikipedia.org/wiki/Nazi_boycott_of_Jewish_businesses)。
+	- ### 26日
+		- 在[盖世太保](https://en.wikipedia.org/wiki/Gestapo) [秘密警察](https://en.wikipedia.org/wiki/Secret_police)成立于德国。
+- ## 5月
+	- ### 2日
+		- 希特勒宣布工会为非法。
+	- ### 15日
+		- [德国空军的](https://en.wikipedia.org/wiki/Luftwaffe)正式组建，是违反凡尔赛条约秘密建立的德国空军。
+	- ### 31日
+		- 在[塘沽协定](https://en.wikipedia.org/wiki/Tanggu_Truce)是中国与日本之间签订，满洲的日军占领后，设定两种状态之间的停火条件。中国同意日本的所有要求，在中国领土内建立一个大的非军事区。
+- ## 6月
+	- ### 21日
+		- 德国禁止所有非纳粹党派。
+- ## 7月
+	- ### 14日
+		- 纳粹党成为德国的官方政党。
+- ## 8月
+	- ### 25日
+		- [哈瓦拉协议](https://en.wikipedia.org/wiki/Haavara_Agreement)：该协议旨在帮助德国犹太人移民到[巴勒斯坦](https://en.wikipedia.org/wiki/Mandatory_Palestine)。
+- ## 9月
+	- ### 2日
+		- 意大利和苏联签署意[苏条约](https://en.wikipedia.org/wiki/Italo-Soviet_Pact)。
+	- ### 12日
+		- [LeóSzilárd](https://en.wikipedia.org/wiki/Le%C3%B3_Szil%C3%A1rd)构想了[核链式反应](https://en.wikipedia.org/wiki/Nuclear_chain_reaction)的想法。
+- ## 10月
+	- ### 19日
+		- 德国退出国际联盟。
+- ## 11月
+	- ### 16日
+		- 在[美国](https://en.wikipedia.org/wiki/United_States)扩展[外交承认](https://en.wikipedia.org/wiki/Diplomatic_recognition)到[苏联的联盟](https://en.wikipedia.org/wiki/Soviet_Union)。
+	- ### 24日
+		- 无家可归、酗酒和失业的人被送往[纳粹集中营](https://en.wikipedia.org/wiki/Nazi_concentration_camps)。
+# 1934年
+- ## 1月
+	- ### 26日
+		- 德国和波兰签署了为期10年[的德波互不侵犯条约](https://en.wikipedia.org/wiki/German-Polish_Non-Aggression_Pact)。
+- ## 2月
+	- ### 9日
+		- [巴尔干条约](https://en.wikipedia.org/wiki/Balkan_Pact)，希腊、土耳其、罗马尼亚和南斯拉夫之间签署了军事联盟。
+	- ### 12日-16日
+		- 在[奥地利内战](https://en.wikipedia.org/wiki/Austrian_Civil_War)被打，结尾[Austrofascist胜利](https://en.wikipedia.org/wiki/Austrofascism)。
+- ## 3月
+	- ### 20日
+		- 所有德国警察部队都在[海因里希·希姆莱](https://en.wikipedia.org/wiki/Heinrich_Himmler)的指挥下。
+- ## 5月
+	- ### 5日
+		- 苏波互不侵犯条约延长至1945年12月31日。
+- ## 6月
+	- ### 30日
+		- 德国长刀之夜。纳粹党内希特勒的潜在对手，包括[南非](https://en.wikipedia.org/wiki/Sturmabteilung)领导人[恩斯特·罗姆](https://en.wikipedia.org/wiki/Ernst_R%C3%B6hm)和著名的反纳粹保守派，如前总理[库尔特·冯·施莱歇尔](https://en.wikipedia.org/wiki/Kurt_von_Schleicher)，都被[党卫军](https://en.wikipedia.org/wiki/Schutzstaffel)和[盖世太保](https://en.wikipedia.org/wiki/Gestapo)杀害。
+- ## 7月
+	- ### 20日
+		- 党卫军成为独立于纳粹党的组织，直接向[阿道夫希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)报告。
+	- ### 25日
+		- 奥地利纳粹在反对奥地利政府的七月政变失败期间暗杀了[恩格尔伯特·多尔弗斯](https://en.wikipedia.org/wiki/Engelbert_Dollfuss)。
+- ## 8月
+	- ### 2日
+		- [兴登堡总统](https://en.wikipedia.org/wiki/Paul_von_Hindenburg)去世后，[希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)自立为德国[元首](https://en.wikipedia.org/wiki/F%C3%BChrer)，成为国家元首和总理。
+	- ### 8日
+		- [国防军的](https://en.wikipedia.org/wiki/Wehrmacht)成员开始宣誓[效忠希特勒](https://en.wikipedia.org/wiki/Hitler_oath)而不是德国宪法。
+- ## 9月
+	- 苏联加入国际[联盟](https://en.wikipedia.org/wiki/League_of_Nations)。
+- ## 10月
+	- ### 9日
+		- [南斯拉夫国王亚历山大一世](https://en.wikipedia.org/wiki/Alexander_I_of_Yugoslavia)和法国外交部长[路易斯巴尔图](https://en.wikipedia.org/wiki/Louis_Barthou)在马赛被暗杀亚历山大的政治谋杀进一步动摇了巴尔干地区。巴尔图和亚历山大正在为欧洲的和平而努力，特别是在德国和苏联之间，因为他们为法国和南斯拉夫的战争做好了准备。
+	- ### 16日
+		- [长征](https://en.wikipedia.org/wiki/Long_March)开始，中国红军撤退以逃避国民党军队的追击。
+- ## 12月
+	- ### 1日
+		- 列宁格勒共产党领袖谢尔盖·基洛夫被一名身份不明的袭击者杀害，在苏联掀起了一波镇压浪潮。
+	- ### 5日
+		- 在[阿比西尼亚危机](https://en.wikipedia.org/wiki/Abyssinia_Crisis)始于Walwal事件，在埃塞俄比亚边境的意大利和埃塞俄比亚军队之间的武装冲突。
+	- ### 29日
+		- 日本放弃[华盛顿海军条约](https://en.wikipedia.org/wiki/Washington_Naval_Treaty)和[伦敦海军条约](https://en.wikipedia.org/wiki/London_Naval_Treaty)。
+# 1935年
+- ## 1月
+	- ### 7日
+		- 国际联盟批准了[萨尔公民投票](https://en.wikipedia.org/wiki/Saar_status_referendum,_1935)的结果，允许萨尔并入德国边界。
+- ## 6月
+	- ### 18日
+		- 在[英德海军协定](https://en.wikipedia.org/wiki/Anglo-German_Naval_Agreement)是由德国和英国签署。该协议允许德国建造一支吨位为英国船队35%的船队。通过这种方式，英国希望限制德国海军的重新武装。
+- ## 8月
+	- ### 31日
+		- 美国通过[了1935年的](https://en.wikipedia.org/wiki/Neutrality_Act_of_1935)《中立法案》，全面禁止与战争各方进行武器和战争物资的贸易，并宣布乘坐交战国船只旅行的美国公民自担风险。
+- ## 9月
+	- ### 15日
+		- 德国国会通过了[纽伦堡法律](https://en.wikipedia.org/wiki/Nuremberg_Laws)，将针对犹太人的歧视制度化，并为在德国有系统地迫害犹太人提供了法律框架。
+- ## 10月
+	- ### 3日
+		- 意大利入侵埃塞俄比亚，开始了[第二次意大利-阿比西尼亚战争](https://en.wikipedia.org/wiki/Second_Italo%E2%80%93Abyssinian_War)。联盟谴责意大利并呼吁石油禁运失败。
+- ## 11月
+	- ### 14日
+		- 直到1945年的最后一次[英国大选](https://en.wikipedia.org/wiki/1935_United_Kingdom_general_election)。[斯坦利·鲍德温](https://en.wikipedia.org/wiki/Stanley_Baldwin)接替[拉姆齐·麦克唐纳](https://en.wikipedia.org/wiki/Ramsay_MacDonald)担任首相。
+# 1936年
+- ## 1月
+	- 英国国王乔治五世被他的医生安乐死。 [威尔士亲王大卫](https://en.wikipedia.org/wiki/Duke_of_Windsor)成为爱德华八世国王。
+- ## 2月
+	- ### 6日
+		- 德国在巴伐利亚加米施-帕滕基兴举办[1936年冬季奥运会](https://en.wikipedia.org/wiki/1936_Winter_Olympics)。
+- ## 3月
+	- ### 7日
+		- 德国违反[凡尔赛条约](https://en.wikipedia.org/wiki/Treaty_of_Versailles)，[使莱茵兰重新军事化](https://en.wikipedia.org/wiki/Remilitarization_of_the_Rhineland)。莱茵兰搬迁后，希特勒分别会见了法国记者[BertranddeJouvenal](https://en.wikipedia.org/wiki/Bertrand_de_Jouvenal)和英国分析家[ArnoldJ.Toynbee，](https://en.wikipedia.org/wiki/Arnold_J._Toynbee)强调他建立一个更大的德意志国家的有限扩张目标，以及他对英国理解与合作的渴望。[鲍德温政府](https://en.wikipedia.org/wiki/National_Government_(1935%E2%80%931937))领导的爱德华八世国王命令军队停止与此举有关。
+	- ### 25日
+		- 在[第二次伦敦海军条约](https://en.wikipedia.org/wiki/Second_London_Naval_Treaty)由英国，美国和法国签署。意大利和日本均拒绝签署该条约。
+- ## 5月
+	- ### 5日
+		- 意大利军队进军埃塞俄比亚首都亚的斯亚贝巴，标志着第二次意大利-阿比西尼亚战争的结束。
+- ## 6月
+	- ### 3日
+		- 德国空军参谋长[沃尔特韦弗](https://en.wikipedia.org/wiki/Walther_Wever_(general))将军在一次空难中丧生，这使德国空军拥有类似于盟军的战略轰炸力量的希望破灭。
+- ## 7月
+	- ### 17日
+		- [1936年7月](https://en.wikipedia.org/wiki/Spanish_coup_of_July_1936)由国民党军队发动的西班牙政变失败，标志着[西班牙内战的开始](https://en.wikipedia.org/wiki/Spanish_Civil_War)。
+- ## 8月
+	- ### 1日
+		- 德国在柏林举办了[1936年夏季奥运会](https://en.wikipedia.org/wiki/1936_Summer_Olympics)。
+- ## 10月
+	- 在[大清洗](https://en.wikipedia.org/wiki/Great_Purge)开始在苏联与政权的怀疑反对者普遍镇压。清洗导致许多军官被监禁和死亡，在第二次世界大战之前削弱了苏联武装力量。
+	- ### 18日
+		- [戈林](https://en.wikipedia.org/wiki/Hermann_G%C3%B6ring)被任命为德国[四年计划的负责人](https://en.wikipedia.org/wiki/Four_Year_Plan)，旨在使德国自给自足并增加军备。
+- ## 11月
+	- ### 3日
+		- FranklinD.Roosevelt击败AlfLandon赢得[连任](https://en.wikipedia.org/wiki/1936_United_States_presidential_election)。
+	- ### 14日
+		- [绥远战役](https://en.wikipedia.org/wiki/Suiyuan_Campaign)开始于日本支持的蒙古军队袭击中国在洪戈特的驻军。
+	- ### 15日
+		- 空中德国[秃鹰军团](https://en.wikipedia.org/wiki/Condor_Legion)在西班牙内战中首次投入行动支持国民党。
+	- ### 25日
+		- 该[反共产国际协定](https://en.wikipedia.org/wiki/Anti-Comintern_Pact)是由日本和德国签署。如果签署方之一受到苏联的攻击，签署方同意与苏联开战。
+- ## 12月
+	- ### 1日
+		- [希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)强制要求所有年龄在10-18岁之间的男性加入[希特勒青年团](https://en.wikipedia.org/wiki/Hitler_Youth)。
+	- ### 12日
+		- 国民党元帅[张学良](https://en.wikipedia.org/wiki/Zhang_Xueliang)绑架中国领导人[蒋介石](https://en.wikipedia.org/wiki/Chiang_Kai-Shek)，以迫使国民党与中国共产党停战，以对抗日本侵略者。
+爱德华八世被迫退位，由约克公爵阿尔伯特继位，他改名为乔治六世国王。
+	- ### 23日
+		- 意大利远征军（后来命名为[CorpoTruppeVolontarie](https://en.wikipedia.org/wiki/Corpo_Truppe_Volontarie)）的前3,000名士兵在加的斯登陆，以支持西班牙内战中的民族主义一方。
+	- ### 24日
+		- 中国共产党和国民党组成的[第二统一战线](https://en.wikipedia.org/wiki/Second_United_Front)，为了抗击日本而暂时中止了中国内战。
+# 1937年
+- ## 1月
+	- ### 20日
+		- [罗斯福总统](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)开始他的第二个任期。
+- ## 5月
+	- ### 28日
+		- [内维尔·张伯伦](https://en.wikipedia.org/wiki/Neville_Chamberlain)成为[英国首相](https://en.wikipedia.org/wiki/Prime_Minister_of_the_United_Kingdom)。
+- ## 7月
+	- ### 7日
+		- 在[卢沟桥事变](https://en.wikipedia.org/wiki/Marco_Polo_Bridge_Incident)发生时，一开始[中国抗日战争](https://en.wikipedia.org/wiki/Second_Sino-Japanese_War)。
+- ## 8月
+	- ### 13日
+		- 第二次甲午战争：[上海之战](https://en.wikipedia.org/wiki/Battle_of_Shanghai)打响。
+- ## 10月
+	- ### 5日
+		- [罗斯福总统](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)发表了[隔离讲话，](https://en.wikipedia.org/wiki/Quarantine_Speech)概述了从中立转向“隔离”所有侵略者的举措。
+- ## 11月
+	- ### 6日
+		- 意大利加入反共产国际公约。
+	- ### 26日
+		- 第二次中日战争：随着中国军队撤离上海，上海之战以日本胜利告终。
+- ## 12月
+	- ### 1日
+		- 第二次中日战争：[南京之战](https://en.wikipedia.org/wiki/Battle_of_Nanking)开始于日军进攻这座城市。
+	- ### 8日
+		- 日本建立傀儡政权[蒙疆](https://en.wikipedia.org/wiki/Mengjiang)在内蒙古地区[共和国中国的](https://en.wikipedia.org/wiki/Republic_of_China)。
+	- ### 11日
+		- 意大利退出国际联盟。
+	- ### 12日
+		- 该[USS帕奈事件](https://en.wikipedia.org/wiki/USS_Panay_incident)发生时，在日本袭击美国炮舰帕奈而她在停泊[长江](https://en.wikipedia.org/wiki/Yangtze_River)。
+	- ### 13日
+		- 第二次甲午战争：[南京](https://en.wikipedia.org/wiki/Rape_of_Nanking)[之战](https://en.wikipedia.org/wiki/Battle_of_Nanking)日军胜利后，南京大屠杀开始。
+# 1938年
+- ## 1月
+	- ### 26日
+		- 在[阿利森事件](https://en.wikipedia.org/wiki/Allison_incident)发生时日本与美国之间的紧张进一步的关系。
+- ## 3月
+	- ### 6日
+		- 日军在BucuAERA到达越南河[越南](https://en.wikipedia.org/wiki/Republic_of_Vietnam)。
+	- ### 13日
+		- [奥地利](https://en.wikipedia.org/wiki/Federal_State_of_Austria)被德国[吞并](https://en.wikipedia.org/wiki/Anschluss)。
+	- ### 24日
+		- 第二次甲午战争：[台儿庄之战打响](https://en.wikipedia.org/wiki/Battle_of_Taierzhuang)。在台儿庄市内进行了激烈的挨家挨户的战斗后，这场战斗于4月7日以中国的胜利告终。第二次甲午战争：[徐州之战](https://en.wikipedia.org/wiki/Battle_of_Xuzhou)于5月1日以日军胜利结束，中国军队从被包围的城市中突围。
+- ## 7月
+	- ### 6日
+	- ### 29日
+		- 在[苏日边界冲突](https://en.wikipedia.org/wiki/Soviet%E2%80%93Japanese_border_conflicts)开始与[张鼓峰事件](https://en.wikipedia.org/wiki/Battle_of_Lake_Khasan)。
+- ## 8月
+	- 苏联在对日本的哈桑湖战役中获胜。
+- ## 9月
+	- ### 27日
+		- 美国总统罗斯福致信德国元首[阿道夫希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)寻求和平。
+	- ### 30日
+		- 在[慕尼黑协定](https://en.wikipedia.org/wiki/Munich_Agreement)是由德国，法国，英国和意大利签署。该协议允许德国吞并捷克斯洛伐克[苏台德](https://en.wikipedia.org/wiki/Sudetenland)地区以换取和平以[安抚](https://en.wikipedia.org/wiki/Appeasement)希特勒。
+- ## 10月
+	- ### 5日
+		- 德国使所有重新签发的带有红色字母“J”的护照的犹太公民的护照失效。这一改变是在瑞典和瑞士提出要求后做出的，他们想要一种轻松拒绝犹太人进入他们国家的方式。
+- ## 11月
+	- ### 7日
+		- 波兰裔德国人、共产主义、暴力、少年犯罪、犹太人、重罪犯[HerschelGrynszpan](https://en.wikipedia.org/wiki/Herschel_Grynszpan)在巴黎谋杀了温和的德国领事助手[ErnstvomRath](https://en.wikipedia.org/wiki/Ernst_vom_Rath)。
+	- ### 9日
+		- vomRath死后，[水晶之](https://en.wikipedia.org/wiki/Kristallnacht) [夜大屠杀](https://en.wikipedia.org/wiki/Pogrom)在德国开始。数以千计的犹太商店和犹太教堂在全国各地遭到砸毁、抢劫、焚烧和毁坏。
+# 1939年
+- ## 1月
+	- ### 25日
+		- 一个[铀](https://en.wikipedia.org/wiki/Uranium)原子分裂时首次在美国哥伦比亚大学。
+	- ### 27日
+		- [希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)命令[Z计划](https://en.wikipedia.org/wiki/Plan_Z)，5年的海军扩张计划旨在提供一种能够通过1944年击败皇家海军的一个巨大的德国舰队[帝国海军](https://en.wikipedia.org/wiki/Kriegsmarine)被赋予对德国经济资源分配的首要任务。这是第三帝国历史上第一次也是唯一一次将Kriegsmarine放在首位。
+- ## 3月
+	- ### 14日
+		- 亲德的[斯洛伐克共和国](https://en.wikipedia.org/wiki/Slovak_Republic_(1939%E2%80%931945))成立。[Carpatho-Ukraine](https://en.wikipedia.org/wiki/Carpatho-Ukraine)被创建，匈牙利在同一天入侵。
+	- ### 15日
+		- 德国违反慕尼黑协定占领并吞并[波希米亚](https://en.wikipedia.org/wiki/Bohemia)和[摩拉维亚-西里西亚](https://en.wikipedia.org/wiki/Moravia-Silesia)。捷克人没有试图进行任何有组织的抵抗，因为苏台德地区的吞并失去了他们的主要防线。德国建立[波西米亚和摩拉维亚保护国](https://en.wikipedia.org/wiki/Protectorate_of_Bohemia_and_Moravia)。在[第二捷克斯洛伐克共和国](https://en.wikipedia.org/wiki/Second_Czechoslovak_Republic)溶解。3月16日。
+	- ### 20日
+		- 德国外交部长[约阿希姆·冯·里宾特洛甫](https://en.wikipedia.org/wiki/Joachim_von_Ribbentrop)提供了[一种口服最后通牒，立陶宛](https://en.wikipedia.org/wiki/1939_German_ultimatum_to_Lithuania)，要求它放弃了[克莱佩达区](https://en.wikipedia.org/wiki/Klaip%C4%97da_Region)（德国名字梅梅尔）德国。
+	- ### 21日
+		- [希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)要求将但[泽自由市](https://en.wikipedia.org/wiki/Free_City_of_Danzig)归还德国。
+	- ### 23日
+		- [德罗两国](https://en.wikipedia.org/wiki/German%E2%80%93Romanian_Treaty_for_the_Development_of_Economic_Relations_between_the_Two_Countries_(1939))签署了发展经济关系条约。德国吞并克莱佩达地区。德国和斯洛伐克签署了《德国与斯洛伐克国家保护关系条约》，在斯洛伐克设立了[德国保护区](https://en.wikipedia.org/wiki/German_Zone_of_Protection_in_Slovakia)。在[斯洛伐克匈战争](https://en.wikipedia.org/wiki/Slovak%E2%80%93Hungarian_War)开始。
+	- ### 31日
+		- 英国和法国提供波兰独立的保证。斯洛伐克-匈牙利战争结束。
+- ## 4月
+	- ### 1日
+		- 在[西班牙内战](https://en.wikipedia.org/wiki/Spanish_Civil_War)中国民党的胜利结束。西班牙成为独裁国家，[弗朗西斯科·佛朗哥](https://en.wikipedia.org/wiki/Francisco_Franco)担任新政府首脑。
+	- ### 3日
+		- [希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)命令德国军队开始计划对波兰发动攻击的代号[FallWeiss](https://en.wikipedia.org/wiki/Fall_Weiss_(1939))，计划于1939年8月25日发动。
+	- ### 4日
+		- 匈牙利和斯洛伐克签署了《布达佩斯条约》，将斯洛伐克东部的一块领土移交给匈牙利。
+	- ### 7日-12日
+		- [意大利入侵阿尔巴尼亚](https://en.wikipedia.org/wiki/Italian_invasion_of_Albania)几乎没有军事抵抗。阿尔巴尼亚后来通过意大利和阿尔巴尼亚王室的个人联合成为意大利的一部分。
+	- ### 14日
+		- 美国总统罗斯福致函德国总理[希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)和意大利总理[墨索里尼](https://en.wikipedia.org/wiki/Benito_Mussolini)寻求和平。
+	- ### 18日
+		- 苏联提议与英法三国结盟。它被拒绝。
+	- ### 28日
+		- 在国会大厦前的一次演讲中，[希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)宣布放弃[英德海军协定](https://en.wikipedia.org/wiki/Anglo-German_Naval_Agreement)和[德波互不侵犯宣言](https://en.wikipedia.org/wiki/German%E2%80%93Polish_declaration_of_non-aggression)。
+- ## 5月
+	- ### 11日
+		- [苏日边界冲突](https://en.wikipedia.org/wiki/Soviet%E2%80%93Japanese_border_conflicts)：[哈尔欣郭勒战役](https://en.wikipedia.org/wiki/Battle_of_Khalkhin_Gol)始于日本和满洲国对抗苏联和蒙古。这场战斗以苏联在9月16日的胜利告终，这影响了日本不再寻求与苏联的进一步冲突，而是转向欧美列强在太平洋的据点。
+	- ### 17日
+		- 瑞典、挪威和芬兰拒绝了德国提出的互不侵犯条约。
+	- ### 22日
+		- 该[钢铁条约](https://en.wikipedia.org/wiki/Pact_of_Steel)，正式名称为“友谊与德国和意大利之间的联盟条约”，由签署[意大利法西斯](https://en.wikipedia.org/wiki/Kingdom_of_Italy_(1861%E2%80%931946))和[纳粹德国](https://en.wikipedia.org/wiki/Nazi_Germany)。该条约宣布了两国之间的进一步合作，但在一份秘密补充中，该条约被详细描述为军事联盟。
+- ## 6月
+	- ### 14日
+		- 在[天津事件](https://en.wikipedia.org/wiki/Tientsin_Incident)发生，所以日本的封锁英租界在天津的中国北方通商口岸。
+- ## 7月
+	- ### 10日
+		- 英国首相[内维尔·张伯伦](https://en.wikipedia.org/wiki/Neville_Chamberlain)重申对波兰的支持，并明确表示英国并不[将但泽自由市](https://en.wikipedia.org/wiki/Free_City_of_Danzig)视为德波内部事务，如果两国之间爆发敌对行动，英国将代表波兰进行干预。
+- ## 8月
+	- ### 2日
+		- 在[爱因斯坦-西拉德信](https://en.wikipedia.org/wiki/Einstein-Szil%C3%A1rd_letter)发送给[罗斯福总统](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)。由[LeóSzilárd](https://en.wikipedia.org/wiki/Le%C3%B3_Szil%C3%A1rd)撰写并由[阿尔伯特·爱因斯坦](https://en.wikipedia.org/wiki/Albert_Einstein)签署，它警告德国可能发展[原子弹](https://en.wikipedia.org/wiki/Atomic_bombs)的危险。这封信促使罗斯福采取行动，最终促成了[曼哈顿计划](https://en.wikipedia.org/wiki/Manhattan_Project)。
+	- ### 23日
+		- 在[苏德互不侵犯条约](https://en.wikipedia.org/wiki/Molotov%E2%80%93Ribbentrop_Pact)被纳粹德国和苏联签署，与东欧的分裂秘密条款-联合[波兰的占领](https://en.wikipedia.org/wiki/Occupation_of_Poland_(1939%E2%80%931945))和苏联的[波罗的海国家的占领](https://en.wikipedia.org/wiki/Occupation_of_the_Baltic_States)，[芬兰](https://en.wikipedia.org/wiki/Winter_War)和[比萨拉比亚](https://en.wikipedia.org/wiki/Soviet_occupation_of_Bessarabia_and_Northern_Bukovina)。该协议消除了德国入侵波兰期间苏联干预的威胁。
+	- ### 25日
+		- 为了回应墨索里尼的信息，即如果德国攻击波兰，意大利将不会遵守钢铁条约，希特勒将入侵的发动时间推迟了五天，以便有更多时间确保英国和法国的中立。
+	- ### 30日
+		- 德国就[波兰走廊](https://en.wikipedia.org/wiki/Polish_Corridor)和但[泽自由市](https://en.wikipedia.org/wiki/Free_City_of_Danzig)向波兰发出最后通牒。
+- ## 9月
+	- ### 1日
+		- 没有回应其最后通牒，[德国入侵波兰](https://en.wikipedia.org/wiki/Invasion_of_Poland)，第二次世界大战开始（苏联于9月17日入侵波兰）。
+		- [中华民国](https://en.wikipedia.org/wiki/Republic_of_China_(1912%E2%80%931949))与大[日本帝国](https://en.wikipedia.org/wiki/Empire_of_Japan)卷入抗日战争第三年武装冲突[初期](https://en.wikipedia.org/wiki/Second_Sino-Japanese_War)。战争正处于所谓的“第二时期”，从1938年10月[武汉沦陷](https://en.wikipedia.org/wiki/Battle_of_Wuhan)后开始，到1941年12月[珍珠港事件结束](https://en.wikipedia.org/wiki/Attack_on_Pearl_Harbor)。当日本加入轴心国而中国加入盟国时，这场冲突最终会被卷入[第二次世界大战](https://en.wikipedia.org/wiki/World_War_II)。
+		- [波兰的入侵](https://en.wikipedia.org/wiki/Invasion_of_Poland)由[德国](https://en.wikipedia.org/wiki/Nazi_Germany)在凌晨445分开始，当[帝国海军](https://en.wikipedia.org/wiki/Kriegsmarine)“小号[战列舰](https://en.wikipedia.org/wiki/List_of_battleships_of_Germany) [石勒苏益格-荷尔斯泰因](https://en.wikipedia.org/wiki/SMS_Schleswig-Holstein)打开火上[的波兰军队转运库](https://en.wikipedia.org/wiki/Westerplatte)在[维斯特布拉德](https://en.wikipedia.org/wiki/Battle_of_Westerplatte)在[但泽自由市](https://en.wikipedia.org/wiki/Free_City_of_Danzig)的[波罗地海海](https://en.wikipedia.org/wiki/Baltic_Sea)，但是攻击被击退。同时在[德国空军](https://en.wikipedia.org/wiki/Luftwaffe) [袭击多个目标](https://en.wikipedia.org/wiki/Strategic_bombing_during_World_War_II)在[波兰](https://en.wikipedia.org/wiki/Second_Polish_Republic)，其中[维隆](https://en.wikipedia.org/wiki/Wielu%C5%84)，在战争的第一个镇是[地毯轰炸德军](https://en.wikipedia.org/wiki/Bombing_of_Wielu%C5%84)。早上6:00前不久，[德国军队](https://en.wikipedia.org/wiki/German_Army_(Wehrmacht))与[斯洛伐克](https://en.wikipedia.org/wiki/Slovak_Republic_(1939%E2%80%931945))部队一起从北部和南部大量通过波兰边境。同日，但泽自由城被德国[吞并](https://en.wikipedia.org/wiki/Annexation)。驻扎[在该市波兰邮局的](https://en.wikipedia.org/wiki/Defense_of_the_Polish_Post_Office_in_Danzig)抵抗者不堪重负。
+		- [意大利政府](https://en.wikipedia.org/wiki/Fascist_Italy_(1922%E2%80%931943))宣布将在冲突中保持“[非好战](https://en.wikipedia.org/wiki/Non-belligerent)”状态。
+		- [挪威](https://en.wikipedia.org/wiki/Norway)、[瑞典](https://en.wikipedia.org/wiki/Sweden_during_World_War_II)、[丹麦](https://en.wikipedia.org/wiki/Denmark_in_World_War_II)、[芬兰](https://en.wikipedia.org/wiki/Finland)、[拉脱维亚](https://en.wikipedia.org/wiki/Latvia)和[爱沙尼亚](https://en.wikipedia.org/wiki/Estonia_in_World_War_II)以及[罗马尼亚](https://en.wikipedia.org/wiki/Romania_in_World_War_II)立即宣布中立。
+		- [英国下议院](https://en.wikipedia.org/wiki/House_of_Commons_of_the_United_Kingdom)通过紧急军事[预算](https://en.wikipedia.org/wiki/Budget)。
+		- [英国](https://en.wikipedia.org/wiki/United_Kingdom) [战争大臣](https://en.wikipedia.org/wiki/Secretary_of_State_for_War) [莱斯利·霍尔-贝利沙](https://en.wikipedia.org/wiki/Leslie_Hore-Belisha)命令[陆军部](https://en.wikipedia.org/wiki/War_Office)开始对英国武装部队进行[总动员](https://en.wikipedia.org/wiki/Mobilization)。
+		- [在大规模疏散行动](https://en.wikipedia.org/wiki/Evacuations_of_civilians_in_Britain_during_World_War_II)（代号为“PiedPiper行动”）中，英国当局将1,473,000名儿童和成人从城市转移到农村。涉及的成年人是教师、残疾人及其助手、有学龄前儿童的母亲。
+		- [法国](https://en.wikipedia.org/wiki/Interwar_France)和[英国](https://en.wikipedia.org/wiki/Interwar_Britain)大使出于各自政府的考虑，要求德国政府停止一切敌对活动，并从波兰撤军。
+		- [总统](https://en.wikipedia.org/wiki/President_of_the_United_States)的的[美国](https://en.wikipedia.org/wiki/United_States) [富兰克林·德拉诺·罗斯福](https://en.wikipedia.org/wiki/Franklin_Delano_Roosevelt)发出呼吁所有[欧洲](https://en.wikipedia.org/wiki/Europe)要求他们从轰炸平民和不设防的城市弃权卷入危机的权力。德国的[元首](https://en.wikipedia.org/wiki/F%C3%BChrer)，[阿道夫·希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)，答案马上保证了[美国](https://en.wikipedia.org/wiki/List_of_ambassadors_of_the_United_States_to_Germany) [临时代办](https://en.wikipedia.org/wiki/Charg%C3%A9_d%27affaires) [亚历山大·C·柯克](https://en.wikipedia.org/wiki/Alexander_Comstock_Kirk)的是，空军将只攻击军事目标。英国[首相](https://en.wikipedia.org/wiki/Prime_Minister_of_the_United_Kingdom) [内维尔·张伯伦](https://en.wikipedia.org/wiki/Neville_Chamberlain)也承诺遵守这一要求，波兰驻美国大使[耶日·安东尼·波托奇](https://en.wikipedia.org/wiki/Jerzy_Antoni_Potocki)也承诺遵守这一要求。
+	- ### 2日
+		- 紧随英国之后，[法国议会](https://en.wikipedia.org/wiki/French_Parliament)也批准了紧急战争预算。
+		- [英国](https://en.wikipedia.org/wiki/National_Government_(1937%E2%80%931939))和[法国](https://en.wikipedia.org/wiki/Government_of_France)政府同意发出最后通牒，[德国](https://en.wikipedia.org/wiki/Germany)的第二天。
+		- [瑞士政府](https://en.wikipedia.org/wiki/Switzerland)下令全面动员其军队。
+		- 爱尔兰州的[DáilÉireann](https://en.wikipedia.org/wiki/D%C3%A1il_%C3%89ireann)批准了[紧急状态](https://en.wikipedia.org/wiki/The_Emergency_(Ireland))，为立法铺平了道路，大大增强了[政府](https://en.wikipedia.org/wiki/Government_of_Ireland)的权力。
+		- [法军](https://en.wikipedia.org/wiki/French_Army)开始[总动员](https://en.wikipedia.org/wiki/Mobilization)。
+	- ### 3日
+		- 3上午9:00，英国驻柏林大使[内维尔·亨德森](https://en.wikipedia.org/wiki/Nevile_Henderson)(NevileHenderson)受[内阁](https://en.wikipedia.org/wiki/Cabinet_of_the_United_Kingdom)指示向德国发出最后通牒，该最后通牒于上午11:00结果在[英国标准时间](https://en.wikipedia.org/wiki/British_Standard_Time)(BST)上午11:15)英国首相[内维尔·张伯伦](https://en.wikipedia.org/wiki/Neville_Chamberlain)宣布英国与德国交战。
+		- [1939年国民服役（武装部队）法案](https://en.wikipedia.org/wiki/National_Service_(Armed_Forces)_Act_1939)获得批准，并强制要求英国武装部队对所有居住在英国的18至41岁的健全男性实施[全面征兵](https://en.wikipedia.org/wiki/Conscription_in_the_United_Kingdom)。
+		- 在英国，张伯伦形成了一个新的[战争部](https://en.wikipedia.org/wiki/Chamberlain_war_ministry)具有体积更小，功能更强大的[战争内阁](https://en.wikipedia.org/wiki/War_cabinet)中的九个组成的[部长](https://en.wikipedia.org/wiki/Minister_(government))（张伯伦，[塞缪尔·霍尔爵士](https://en.wikipedia.org/wiki/Samuel_Hoare,_1st_Viscount_Templewood)，[约翰·西蒙爵士](https://en.wikipedia.org/wiki/John_Simon,_1st_Viscount_Simon)，[哈利法克斯勋爵](https://en.wikipedia.org/wiki/Edward_Wood,_1st_Earl_of_Halifax)，[莱斯利·霍尔-Belisha](https://en.wikipedia.org/wiki/Leslie_Hore-Belisha)，爵士[金斯利木](https://en.wikipedia.org/wiki/Kingsley_Wood)，[主查特菲尔德](https://en.wikipedia.org/wiki/Ernle_Chatfield,_1st_Baron_Chatfield)，[汉基勋爵](https://en.wikipedia.org/wiki/Maurice_Hankey,_1st_Baron_Hankey)和[温斯顿丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)）。在第一次会议上，内阁任命一般[埃德蒙·艾恩赛德先生](https://en.wikipedia.org/wiki/Edmund_Ironside,_1st_Baron_Ironside)为团长[的帝国总参谋长](https://en.wikipedia.org/wiki/Chief_of_the_General_Staff_(United_Kingdom))和一般[子爵戈特](https://en.wikipedia.org/wiki/John_Vereker,_6th_Viscount_Gort)头[英国远征军](https://en.wikipedia.org/wiki/British_Expeditionary_Force_(World_War_II))。
+		- [英国](https://en.wikipedia.org/wiki/Governor-General_of_India)的[印度](https://en.wikipedia.org/wiki/British_Raj) 总督[林利斯戈勋爵](https://en.wikipedia.org/wiki/Victor_Hope,_2nd_Marquess_of_Linlithgow)也在没有咨询[印度民族主义者的](https://en.wikipedia.org/wiki/Indian_independence_movement)情况下对德国宣战。
+		- 由于英国的选择，[澳大利亚](https://en.wikipedia.org/wiki/Australia)总理[罗伯特·孟席斯](https://en.wikipedia.org/wiki/Robert_Menzies)宣布该国与德国开战，[新西兰](https://en.wikipedia.org/wiki/New_Zealand)政府也对德国进行了类似的宣战。
+		- 312:00pm[法国政府](https://en.wikipedia.org/wiki/French_Third_Republic)向德国发出了类似的最后通牒，该最后通牒在5:00pm也到期未答复，从而使法国卷入战争。
+		- 在战争的英国申报小时，[SSAthenia](https://en.wikipedia.org/wiki/SS_Athenia_(1922))，英国的游轮途中从路线[格拉斯哥](https://en.wikipedia.org/wiki/Glasgow)，英国，到[蒙特利尔](https://en.wikipedia.org/wiki/Montreal,_Quebec)，[加拿大](https://en.wikipedia.org/wiki/Canada)，[被鱼雷](https://en.wikipedia.org/wiki/List_of_maritime_disasters_in_World_War_II)被[德国潜艇](https://en.wikipedia.org/wiki/U-boat) [U型30](https://en.wikipedia.org/wiki/German_submarine_U-30_(1936))250英里（400公里）爱尔兰西北部。112名乘客和机组人员遇难。“[大西洋之战](https://en.wikipedia.org/wiki/Battle_of_the_Atlantic)”开始。
+		- [“血腥星期天”](https://en.wikipedia.org/wiki/Bloody_Sunday_(1939))被指控向波兰军队开枪，大约1000[名德裔平民](https://en.wikipedia.org/wiki/German_minority_in_Poland)在波兰城市[比得哥什](https://en.wikipedia.org/wiki/Bydgoszcz)被杀。
+		- [爱尔兰](https://en.wikipedia.org/wiki/Republic_of_Ireland)的[道](https://en.wikipedia.org/wiki/Taoiseach) [士埃蒙·德瓦莱拉](https://en.wikipedia.org/wiki/%C3%89amon_de_Valera)宣布国家中立。
+		- [荷兰](https://en.wikipedia.org/wiki/Netherlands_in_World_War_II)和[比利时](https://en.wikipedia.org/wiki/Belgium_in_World_War_II)宣布中立。
+		- 德国当局命令U艇立即对所有英国船只采取行动，但不让法国船只受到伤害，并严格遵守[奖品规则](https://en.wikipedia.org/wiki/Prize_(law))。
+		- [波兰](https://en.wikipedia.org/wiki/Polish_Navy) [驱逐舰](https://en.wikipedia.org/wiki/Destroyer) [ORPWicher](https://en.wikipedia.org/wiki/ORP_Wicher_(1928))和[布雷](https://en.wikipedia.org/wiki/Minelayer) [ORPgryf上](https://en.wikipedia.org/wiki/ORP_Gryf_(1936))都陷入在波兰港口[赫尔](https://en.wikipedia.org/wiki/Hel,_Poland)由空军，做他们第军舰将[在战争中沉没](https://en.wikipedia.org/wiki/List_of_shipwrecks_in_September_1939)。
+		- 在英国的第一次军事行动中，[皇家空军](https://en.wikipedia.org/wiki/Royal_Air_Force)的[轰炸机司令部](https://en.wikipedia.org/wiki/RAF_Bomber_Command)派出27架飞机轰炸德国海军，但他们还没来得及找到任何目标就折返了。一夜之间，10架[惠特利](https://en.wikipedia.org/wiki/Armstrong_Whitworth_Whitley)飞机在[不来梅](https://en.wikipedia.org/wiki/Bremen)、[汉堡](https://en.wikipedia.org/wiki/Hamburg)和[鲁尔](https://en.wikipedia.org/wiki/Ruhr)进行了多次“镍空袭”中的第一次，其中飞机投下了宣传传单。
+		- 进一步回应罗斯福的请求，英国和法国提出联合正式声明，声明盟军轰炸机将只攻击军事目标，除非德国开始不分青红皂白地轰炸平民。
+	- ### 4日
+		- 4[纽芬兰标准时间](https://en.wikipedia.org/wiki/Newfoundland_Standard_Time)(NST)上午8:00，纽芬兰[自治领](https://en.wikipedia.org/wiki/Dominion_of_Newfoundland)对德国宣战。
+		- 在波兰，来自东普鲁士的[德国第三集团军](https://en.wikipedia.org/wiki/3rd_Army_(Wehrmacht))与来自德属西波美拉尼亚的部队连接，从而覆盖但泽走廊。
+		- 在第一次英军突袭中，[英国皇家空军](https://en.wikipedia.org/wiki/Royal_Air_Force)派出15架[布伦海姆](https://en.wikipedia.org/wiki/Bristol_Blenheim)轰炸机对[黑尔戈兰湾](https://en.wikipedia.org/wiki/Heligoland_Bight)的德国舰队进行轰炸。他们的目标是德国袖珍战列舰谢尔海[军上将号](https://en.wikipedia.org/wiki/German_cruiser_Admiral_Scheer)和停泊在威廉港附近的[轻型巡洋舰](https://en.wikipedia.org/wiki/Light_cruiser) [埃姆登号](https://en.wikipedia.org/wiki/German_cruiser_Emden)。七架飞机在攻击中丢失，虽然海军上将谢尔被击中了3次，但所有炸弹都没有爆炸。
+		- 日本[首相](https://en.wikipedia.org/wiki/Prime_Minister_of_Japan) [安倍晋三宣](https://en.wikipedia.org/wiki/Nobuyuki_Abe)布日本在欧洲局势中保持中立。
+		- [西班牙](https://en.wikipedia.org/wiki/Francoist_Spain)的[考迪洛](https://en.wikipedia.org/wiki/Caudillo) [弗朗西斯科佛朗哥](https://en.wikipedia.org/wiki/Francisco_Franco)表示，他将在冲突中遵守“严格中立”。
+		- [立陶宛](https://en.wikipedia.org/wiki/Lithuania)宣布在冲突中保持中立。
+		- [南非](https://en.wikipedia.org/wiki/Union_of_South_Africa) [总理](https://en.wikipedia.org/wiki/Prime_Minister_of_South_Africa) [巴里·赫佐格](https://en.wikipedia.org/wiki/Barry_Hertzog)在战争中保持中立的动议在[大会上以](https://en.wikipedia.org/wiki/House_of_Assembly_(South_Africa))80票对67票被否决。此时，赫佐格去找[总督](https://en.wikipedia.org/wiki/Governor-General_of_South_Africa) [帕特里克·邓肯](https://en.wikipedia.org/wiki/Patrick_Duncan_(South_African_politician))，要求他召开新的选举，邓肯拒绝。
+		- 英国远征军的第一批先遣队抵达法国。
+		- 雅典娜号沉没后，希特勒禁止对客船进行任何攻击。
+	- ### 5日
+		- 邓肯呼吁政治家[扬·斯穆茨](https://en.wikipedia.org/wiki/Jan_Smuts)（JanSmuts）尝试组建内阁并取代赫佐格担任南非总理，他成功做到了。
+		- [南斯拉夫王国](https://en.wikipedia.org/wiki/Kingdom_of_Yugoslavia)声明中立。
+		- 英国货轮[SSBosnia](https://en.wikipedia.org/w/index.php?titleSS_Bosnia_(1928)&actionedit&redlink1)成为第一艘在大西洋海战中沉没的商船，当时它在葡萄牙海岸附近被[U-47](https://en.wikipedia.org/wiki/German_submarine_U-48_(1939))潜艇瞄准。
+		- 美国公开宣布中立。同一天，[美国总统](https://en.wikipedia.org/wiki/President_of_the_United_States) [富兰克林·D·罗斯福](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)下令组建一支[中立巡逻队](https://en.wikipedia.org/wiki/Neutrality_Patrol)，该巡逻队必须通过在美国大西洋沿岸和加勒比地区巡逻来观察和报告任何交战部队。
+	- ### 6日
+		- 现任总理扬·斯穆茨(JanSmuts)领导下的[南非](https://en.wikipedia.org/wiki/South_Africa)向德国宣战。
+		- 在所谓[的巴金溪之战中](https://en.wikipedia.org/wiki/Battle_of_Barking_Creek)，一场[友军火灾](https://en.wikipedia.org/wiki/Friendly_fire)事件中，由于将来袭的11架[飓风](https://en.wikipedia.org/wiki/Hawker_Hurricane)队误认为敌对，两架飞机被击落，第一位英国[战斗机飞行员](https://en.wikipedia.org/wiki/Fighter_pilot)丧生。
+		- [德军](https://en.wikipedia.org/wiki/German_Army_(Wehrmacht))占领波兰南部的克拉科夫；波兰军队正在全面撤退。
+		- 作为对U艇的保护，[海军部](https://en.wikipedia.org/wiki/British_Admiralty)下令采用[护航](https://en.wikipedia.org/wiki/Convoy)系统。
+		- 英国舰队开始实施北方巡逻队，对发往德国的[航运](https://en.wikipedia.org/wiki/Blockade_of_Germany_(1939%E2%80%931945))进行海上封锁。
+	- ### 7日
+		- 7法国总司令莫里斯·加梅林[将军](https://en.wikipedia.org/wiki/Army_general_(France)) 开始对德国萨尔领土进行有限的攻势，包括十个师。
+		- 英国通过了[《1939年国民登记法》](https://en.wikipedia.org/wiki/National_Registration_Act_1939)，引入了身份证并允许政府控制劳工。
+	- ### 8日
+		- 英国设立[食品部](https://en.wikipedia.org/wiki/Minister_of_Food)来监督食品的供应和分配。
+		- 罗斯福宣布“有限的国家紧急状态”，增加军费开支并扩大[美国武装部队](https://en.wikipedia.org/wiki/United_States_Armed_Forces)的规模。
+		- 德国人通过[波特兰港](https://en.wikipedia.org/wiki/Portland_Harbour)的开采开始了对英国水域的系统性开采。
+	- ### 9日
+		- 法国[萨尔攻势](https://en.wikipedia.org/wiki/Saar_Offensive)在[布满](https://en.wikipedia.org/wiki/Warndt)地雷的沃恩特森林进军约8英里（13公里），进入防御薄弱的德国领土。
+	- ### 10日
+		- 同时传递后[房屋](https://en.wikipedia.org/wiki/18th_Canadian_Parliament)的的[加拿大议会](https://en.wikipedia.org/wiki/Parliament_of_Canada)通过一致同意[加拿大](https://en.wikipedia.org/wiki/Canada)的[总理](https://en.wikipedia.org/wiki/Prime_Minister_of_Canada) [W.L.麦肯齐·金](https://en.wikipedia.org/wiki/William_Lyon_Mackenzie_King)宣布德国宣战。
+		- [华沙](https://en.wikipedia.org/wiki/Warsaw)第一次遭到[轰炸袭击](https://en.wikipedia.org/wiki/Bombing_of_Warsaw_in_World_War_II)。仅仅在那一天，就有十二次袭击瞄准了这座城市。
+		- [第一艘潜艇](https://en.wikipedia.org/wiki/List_of_submarines_of_World_War_II)在冲突中沉没，当时[英国潜艇](https://en.wikipedia.org/wiki/British_T-class_submarine) [HMSTriton](https://en.wikipedia.org/wiki/HMS_Triton_(N15))击沉了英国[潜艇](https://en.wikipedia.org/wiki/Odin-class_submarine) [HMSOxley，](https://en.wikipedia.org/wiki/HMS_Oxley)将她误认为是一艘U-Boat，只留下两名幸存者。
+	- ### 11日
+		- [印度总督](https://en.wikipedia.org/wiki/Viceroy_of_India) [林利思戈勋爵](https://en.wikipedia.org/wiki/Victor_Hope,_2nd_Marquess_of_Linlithgow)向印度立法两院（[国务委员会](https://en.wikipedia.org/wiki/Council_of_State_(India))和[立法议会](https://en.wikipedia.org/wiki/Legislative_Assembly)）宣布，由于印度参战，[根据1935年印度政府法案，印度](https://en.wikipedia.org/wiki/Government_of_India_Act_1935)联邦的计划将被无限期推迟。
+	- ### 12日
+		- [加梅林将军](https://en.wikipedia.org/wiki/Maurice_Gamelin)在只占领了少数几个村庄后下令停止法国对德国的[萨尔攻势](https://en.wikipedia.org/wiki/Saar_Offensive)。
+	- ### 13日
+		- 在[法国海军](https://en.wikipedia.org/wiki/French_Navy)受到在其第一伤亡[卡萨布兰卡](https://en.wikipedia.org/wiki/Casablanca)，[摩洛哥](https://en.wikipedia.org/wiki/French_Protectorate_in_Morocco)，当[布雷巡洋舰岩体](https://en.wikipedia.org/wiki/French_cruiser_Pluton)爆炸因意外杀死215人。
+	- ### 14日
+		- 在U-39对航母的鱼雷没有爆炸后，护送[航空母舰](https://en.wikipedia.org/wiki/Aircraft_carrier) [HMSArkRoyal的](https://en.wikipedia.org/wiki/HMS_Ark_Royal_(91))英国驱逐舰击沉了[U-39](https://en.wikipedia.org/wiki/German_submarine_U-39_(1938))。所有船员均获救并被俘。这是二战中德国潜艇第一次沉没。
+	- ### 15日
+		- 波兰军队奉命在罗马尼亚边境坚守，直到盟军抵达。
+		- [保加利亚王国](https://en.wikipedia.org/wiki/Kingdom_of_Bulgaria)正式宣布中立。
+	- ### 16日
+		- [德军](https://en.wikipedia.org/wiki/Wehrmacht)完成对华沙的包围。
+		- 第一支[东行跨大西洋车队](https://en.wikipedia.org/wiki/HX_convoys)从[加拿大哈利法克斯](https://en.wikipedia.org/wiki/Halifax,_Nova_Scotia)启航，驶向英国[利物浦](https://en.wikipedia.org/wiki/Liverpool)。357支这样的HX车队将紧随其后。
+	- ### 17日
+		- [苏联](https://en.wikipedia.org/wiki/Soviet_Union)从东面入侵波兰，占领[寇松线](https://en.wikipedia.org/wiki/Curzon_line)以东的领土以及[比亚韦斯托克](https://en.wikipedia.org/wiki/Bia%C5%82ystok)和东[加利西亚](https://en.wikipedia.org/wiki/Galicia_(Central_Europe))。
+		- 在[英国的航空母舰](https://en.wikipedia.org/wiki/List_of_aircraft_carriers_of_World_War_II) [HMS勇敢](https://en.wikipedia.org/wiki/HMS_Courageous_(50))的鱼雷击沉[的U29](https://en.wikipedia.org/wiki/German_submarine_U-29_(1936))巡逻在爱尔兰海岸，造成514死亡船上;它代表了第一艘在战争中沉没的大型军舰。
+		- [日军](https://en.wikipedia.org/wiki/Imperial_Japanese_Army)进攻中国[长沙](https://en.wikipedia.org/wiki/Battle_of_Changsha_(1939))市，江西北部的军队向西进攻河南。
+	- ### 18日
+		- 波兰总统[IgnacyMościcki](https://en.wikipedia.org/wiki/Ignacy_Mo%C5%9Bcicki)和[总司令](https://en.wikipedia.org/wiki/Commander-in-Chief) [EdwardRydz-Śmigły](https://en.wikipedia.org/wiki/Edward_Rydz-%C5%9Amig%C5%82y)离开波兰前往[罗马尼亚](https://en.wikipedia.org/wiki/Romania)，他们都在那里被拘留；俄罗斯军队到达[维尔纽斯](https://en.wikipedia.org/wiki/Vilnius)和[布列斯特-立托夫斯克](https://en.wikipedia.org/wiki/Brest-Litovsk)。波兰潜艇逃离[塔林](https://en.wikipedia.org/wiki/Tallinn)；[爱沙尼亚](https://en.wikipedia.org/wiki/Estonia)的中立性受到苏联和德国的质疑。
+		- 法国军队完成了为期16天的动员。
+	- ### 19日
+		- 德国和苏联军队在[布列斯特立托夫斯克](https://en.wikipedia.org/wiki/Brest,_Belarus)附近会合。
+		- 苏联封锁了爱沙尼亚首都塔林港。
+		- 在[日本皇军](https://en.wikipedia.org/wiki/Japanese_Imperial_Army)攻击中国[国民革命军](https://en.wikipedia.org/wiki/National_Revolutionary_Army)使用沿新墙河[毒气](https://en.wikipedia.org/wiki/Poison_gas)期间[长沙会战](https://en.wikipedia.org/wiki/Battle_of_Changsha_(1939))。
+	- ### 20日
+		- [德国潜艇](https://en.wikipedia.org/wiki/U-boat) [U-27](https://en.wikipedia.org/wiki/German_submarine_U-27_(1936))被英国驱逐舰[HMSFortune](https://en.wikipedia.org/wiki/HMS_Fortune_(H70))和[HMSForester的](https://en.wikipedia.org/wiki/HMS_Forester_(H74))深水炸弹击沉。
+	- ### 21日
+		- 罗马尼亚总理[阿尔芒·恰林斯库](https://en.wikipedia.org/wiki/Armand_C%C4%83linescu)被罗马尼亚极端民族主义组织“[铁卫队”](https://en.wikipedia.org/wiki/Iron_Guard)暗杀。
+	- ### 23日
+		- [日本皇军](https://en.wikipedia.org/wiki/Imperial_Japanese_Army)推动中国[国民革命军](https://en.wikipedia.org/wiki/National_Revolutionary_Army)出的[湘江](https://en.wikipedia.org/wiki/Xiangjiang_River)地区，以及第6和第13师穿越炮火掩护下，河流和技术的进步而进一步南部[汨罗江](https://en.wikipedia.org/wiki/Miluo_River)的过程中[长沙会战](https://en.wikipedia.org/wiki/Battle_of_Changsha_(1939))。
+	- ### 24日
+		- [FührerderUnterseeboote](https://en.wikipedia.org/wiki/F%C3%BChrer_der_Unterseeboote) [KarlDönitz](https://en.wikipedia.org/wiki/Karl_D%C3%B6nitz)大大放宽了奖品规则，命令在没有警告通过无线电发送信号的商船和对小型盟军客船的攻击的情况下下令沉没。他还开启了对法国航运的战争。
+		- 苏联空军[侵犯爱沙尼亚领空](https://en.wikipedia.org/wiki/Estonia_in_World_War_II)。爱沙尼亚人在莫斯科与莫洛托夫谈判。莫洛托夫警告爱沙尼亚人，如果苏联不在爱沙尼亚建立军事基地，它将被迫采取“更激进的行动”。
+	- ### 25日
+		- 德国的家庭前线措施从食物配给开始。
+		- 在[巴拿马城举行](https://en.wikipedia.org/wiki/Panama_City)的泛美外交部长会议开幕式上，[美国副国务卿](https://en.wikipedia.org/wiki/United_States_Under_Secretary_of_State) [萨姆纳·威尔斯](https://en.wikipedia.org/wiki/Sumner_Welles)要求他们支持建立一个覆盖美洲的巡逻区。
+		- 苏联在爱沙尼亚的空中活动。爱沙尼亚边境沿线的苏联军队包括600辆坦克、600架飞机和160000人。
+	- ### 26日
+		- 在大规模炮击之后，德国人对华沙市中心发动了大规模的步兵攻击。
+		- 在塔林天空看到的俄罗斯轰炸机。
+		- [德国空军](https://en.wikipedia.org/wiki/Luftwaffe)攻击苏格兰和斯卡加拉克之间的[本土舰队](https://en.wikipedia.org/wiki/Home_Fleet)，但收效甚微；有一次DornierDo18被来自航空母舰HMSArkRoyal的舰队航空兵布莱克本贼鸥击落，成为第一架被英国击落的德国飞机。
+		- 希特勒命令的[口袋战舰](https://en.wikipedia.org/wiki/Deutschland-class_cruiser) [五金](https://en.wikipedia.org/wiki/German_cruiser_Deutschland)和[海军格拉夫施佩](https://en.wikipedia.org/wiki/German_cruiser_Admiral_Graf_Spee)去一个远程横行在[大西洋](https://en.wikipedia.org/wiki/Atlantic_Ocean)对抗[盟军](https://en.wikipedia.org/wiki/Allies_of_World_War_II) [运输](https://en.wikipedia.org/wiki/Losses_during_the_Battle_of_the_Atlantic)，前者要到北大西洋，后者在南方。
+	- ### 27日
+		- 在德国军队在西欧的第一次进攻行动中，[齐格弗里德防线的](https://en.wikipedia.org/wiki/Siegfried_Line)火炮向法国[马其诺防线](https://en.wikipedia.org/wiki/Maginot_line)后方的村庄开放。
+	- ### 28日
+		- 莫洛托夫和里宾特洛甫签署[德苏边境条约](https://en.wikipedia.org/wiki/German%E2%80%93Soviet_Frontier_Treaty)。秘密协议规定了最初在[莫洛托夫-里宾特洛甫条约](https://en.wikipedia.org/wiki/Molotov%E2%80%93Ribbentrop_Pact)（1939年8月23日）中定义的波兰分治的细节，并将立陶宛加入了苏联的利益范围。
+		- [华沙](https://en.wikipedia.org/wiki/Warsaw)市中心剩余的波兰军队和民兵向德军投降。
+		- 苏联军队在拉脱维亚边境集结。拉脱维亚领空遭到侵犯。
+		- [爱沙尼亚](https://en.wikipedia.org/wiki/Estonia)与苏联签署为期[10年的互助条约](https://en.wikipedia.org/wiki/Soviet-Estonian_Mutual_Assistance_Treaty)，允许苏联在爱沙尼亚拥有3万人的军事基地。作为回报，斯大林承诺尊重爱沙尼亚的独立。
+	- ### 29日
+		- [日本皇军](https://en.wikipedia.org/wiki/Japanese_Imperial_Army)抵达[长沙](https://en.wikipedia.org/wiki/Changsha)郊区。然而，它无法征服这座城市，因为它的补给线被中国[国民革命军](https://en.wikipedia.org/wiki/National_Revolutionary_Army)切断了。
+	- ### 30日
+		- 30Lagsdorff[船长](https://en.wikipedia.org/wiki/Captain_at_sea) 的海军上将GrafSpee在巴西海岸附近[击沉了](https://en.wikipedia.org/wiki/Hans_Wilhelm_Langsdorff)它的第一艘商船，英国货轮SSClement。
+		- 法德边境的法国军队因预期德国入侵而退回到马其诺防线。
+- ## 10月
+	- ### 1日
+		- 拉脱维亚代表与[斯大林](https://en.wikipedia.org/wiki/Joseph_Stalin)和[莫洛托夫](https://en.wikipedia.org/wiki/Vyacheslav_Molotov)谈判。如果苏联没有在拉脱维亚建立军事基地，他们就会威胁要武力占领。
+		- 1月28日希特勒一方面担心美国和[挪威政府](https://en.wikipedia.org/wiki/Nygaardsvold%27s_Cabinet)收到的抗议，另一方面担心失去具有如此声望的军舰的危险，命令德国号返回家园。
+	- ### 2日
+		- [巴拿马宣言](https://en.wikipedia.org/wiki/Pan-American_Security_Zone)得到美国各共和国的批准。交战活动不应发生在与美洲大陆相邻的水域内。[美国海军](https://en.wikipedia.org/wiki/U.S._Navy)将巡逻约300英里（480公里）宽的中立区。
+	- ### 3日
+		- 英国军队开始接管由法国军队负责的部分边防。
+		- 立陶宛人在莫斯科会见[斯大林](https://en.wikipedia.org/wiki/Joseph_Stalin)和[莫洛托夫](https://en.wikipedia.org/wiki/Vyacheslav_Molotov)。斯大林向立陶宛提供维尔纽斯市（在波兰），以换取苏联在立陶宛的军事基地。立陶宛人很不情愿。
+	- ### 4日
+		- [法军](https://en.wikipedia.org/wiki/Military_history_of_France_during_World_War_II)从德国[萨尔州](https://en.wikipedia.org/wiki/Saarland)撤退，回到[马其诺防线](https://en.wikipedia.org/wiki/Maginot_Line)后方。
+	- ### 5日
+		- 5月5日[拉脱维亚](https://en.wikipedia.org/wiki/Latvia)与苏联签署了为期[10年的互助条约](https://en.wikipedia.org/wiki/Soviet-Latvian_Mutual_Assistance_Treaty)，允许苏联在拉脱维亚的军事基地拥有25,000名士兵。斯大林承诺尊重拉脱维亚的独立。
+		- 针对[德国水面袭击者](https://en.wikipedia.org/wiki/Deutschland-class_cruiser)瞄准商业航运的消息，英国[第一海务大臣](https://en.wikipedia.org/wiki/First_Sea_Lord_and_Chief_of_the_Naval_Staff)[达德利·庞德](https://en.wikipedia.org/wiki/Dudley_Pound)爵士下令联合法国八支狩猎部队，侦察大西洋并摧毁水面袭击者。
+	- ### 6日
+		- 据报道，中国军队在[长沙之战中](https://en.wikipedia.org/wiki/Battle_of_Changsha_(1939))击败了日本人。
+		- 波兰[九月战役](https://en.wikipedia.org/wiki/Invasion_of_Poland)中的波兰抵抗结束。[希特勒](https://en.wikipedia.org/wiki/Hitler)在[国会大厦](https://en.wikipedia.org/wiki/Reichstag_(Weimar_Republic))发表讲话，宣布希望与英国和法国举行会议以恢复和平。
+	- ### 9日
+		- 德国发布命令（[CaseYellow](https://en.wikipedia.org/wiki/Case_Yellow)）准备入侵[比利时](https://en.wikipedia.org/wiki/Belgium)、法国、[卢森堡](https://en.wikipedia.org/wiki/Luxembourg)和[荷兰](https://en.wikipedia.org/wiki/Netherlands)。
+		- 9[德国巡洋舰Deutschland](https://en.wikipedia.org/wiki/German_cruiser_Deutschland)扣押了美国货轮[SSCityofFlint](https://en.wikipedia.org/wiki/SS_City_of_Flint_(1919))及其船员，指控他们[走私](https://en.wikipedia.org/wiki/Contraband)。这艘船在一名[获奖船员](https://en.wikipedia.org/wiki/Prize_crew)的带领下被命令前往德国，引发了与美国的外交事件，并点燃了美国舆论。
+	- ### 10日
+		- 波兰最后一次向德国人投降。
+		- 德国海军领导人向[希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)建议他们需要占领[挪威](https://en.wikipedia.org/wiki/Norway)。
+		- 英国首相[张伯伦](https://en.wikipedia.org/wiki/Neville_Chamberlain)在[下议院](https://en.wikipedia.org/wiki/1935_United_Kingdom_general_election)发表演讲时正式拒绝希特勒的和平提议。
+		- 立陶宛与苏联签署了为期[15年的互助条约](https://en.wikipedia.org/wiki/Soviet%E2%80%93Lithuanian_Mutual_Assistance_Treaty)，允许苏联在立陶宛的军事基地拥有20,000名士兵。在一项秘密协议中，维尔纽斯成为立陶宛领土。
+	- ### 11日
+		- 估计有158,000名英国军队现在在法国。
+	- ### 12日
+		- [阿道夫·艾希曼](https://en.wikipedia.org/wiki/Adolf_Eichmann)开始将犹太人从奥地利和捷克斯洛伐克驱逐到波兰。
+		- 法国总理[爱德华·达拉第](https://en.wikipedia.org/wiki/%C3%89douard_Daladier)拒绝了希特勒的和平提议。
+		- 芬兰代表在莫斯科会见斯大林和莫洛托夫。苏联要求芬兰放弃[赫尔辛基](https://en.wikipedia.org/wiki/Helsinki)附近的军事基地并交换一些苏联和芬兰领土，以保护[列宁格勒](https://en.wikipedia.org/wiki/Leningrad)免受英国或德国未来的最终威胁。
+	- ### 13日
+		- 在夜晚的中间[U型47](https://en.wikipedia.org/wiki/German_submarine_U-47_(1938))的指挥下，[半滑舌鳎普里恩](https://en.wikipedia.org/wiki/G%C3%BCnther_Prien)在浸润[斯卡帕湾](https://en.wikipedia.org/wiki/Scapa_Flow)港口和汇英国[战舰](https://en.wikipedia.org/wiki/List_of_battleships_of_World_War_II) [HMS的皇家橡树](https://en.wikipedia.org/wiki/HMS_Royal_Oak_(08))，杀死833名船员。
+	- ### 14日
+		- 芬兰人再次遇见斯大林。斯大林表示，如果谈判持续太久，芬兰和苏联军队之间可能会发生“意外”。
+	- ### 16日
+		- 德国空军进行了首次空袭英国时，它发出的十几[Ju88轰炸机](https://en.wikipedia.org/wiki/Junkers_Ju_88)寄出后关闭[罗塞斯](https://en.wikipedia.org/wiki/Rosyth)，特别是[战列舰](https://en.wikipedia.org/wiki/List_of_battlecruisers_of_World_War_II) [HMS胡德](https://en.wikipedia.org/wiki/HMS_Hood)。突袭没有成功，在小组指挥官[赫尔穆斯·波勒](https://en.wikipedia.org/wiki/Helmuth_Pohle)被击落时未能击中任何目标。
+	- ### 17日
+		- 德国空军对英国发动了新的突袭，这次的目标是停泊在[斯卡帕湾](https://en.wikipedia.org/wiki/Scapa_Flow)的英国舰队，再次取得了有限的成功，只有[退役的](https://en.wikipedia.org/wiki/Ship_commissioning) [HMSIronDuke](https://en.wikipedia.org/wiki/HMS_Iron_Duke_(1912))被击中。
+	- ### 18日
+		- 第一批苏联军队进入爱沙尼亚。在Umsiedlung期间，12,600名[波罗的海德国人](https://en.wikipedia.org/wiki/Baltic_Germans)离开爱沙尼亚。
+	- ### 19日
+		- 波兰部分地区正式进入德国；第一个犹太人[聚居区](https://en.wikipedia.org/wiki/Ghetto)在[卢布林](https://en.wikipedia.org/wiki/Lublin)建立。
+	- ### 20日
+		- “[虚假战争](https://en.wikipedia.org/wiki/Phoney_War)”法国军队在马其诺防线的宿舍和隧道中安顿下来；英国人沿着马其诺防线和海峡之间的“缺口”建造新的防御工事。
+		- [教皇庇护十二世](https://en.wikipedia.org/wiki/Pope_Pius_XII)的第一次[通谕](https://en.wikipedia.org/wiki/Summi_Pontificatus)谴责种族主义和独裁统治。
+	- ### 21日
+		- 在英国开始登记，以招募所有18至23之间的健全男性。
+	- ### 23日
+		- 检获的货轮弗林特市达到[摩尔曼斯克](https://en.wikipedia.org/wiki/Murmansk)在[苏联的联盟](https://en.wikipedia.org/wiki/Soviet_Union)。四天后，尽管[罗斯福政府提出](https://en.wikipedia.org/wiki/Presidency_of_Franklin_D._Roosevelt,_first_and_second_terms)了愤怒的抗议，但它仍被允许在其获奖人员的控制下离开。摩尔曼斯克事件还会疏远美国公众舆论，从而产生持久的后果。
+	- ### 26日
+		- 德国附件的波兰前区[上西里西亚](https://en.wikipedia.org/wiki/Upper_Silesia)，[西普鲁士](https://en.wikipedia.org/wiki/West_Prussia)，[波美拉尼亚](https://en.wikipedia.org/wiki/Pomerania)，[波兹南](https://en.wikipedia.org/wiki/Pozna%C5%84)，[切哈努夫](https://en.wikipedia.org/wiki/Ciechan%C3%B3w)（Zichenau）的一部分，[罗兹](https://en.wikipedia.org/wiki/%C5%81%C3%B3d%C5%BA)和[但泽自由市](https://en.wikipedia.org/wiki/Free_City_of_Danzig)，并创建两个新的行政区域，[但泽-西普鲁士](https://en.wikipedia.org/wiki/Danzig-West_Prussia)和波森（后来被称为[地区Wartheland](https://en.wikipedia.org/wiki/Wartheland)或Warthegau）；未被德国或苏联直接吞并的被占领波兰地区置于称为总[政府](https://en.wikipedia.org/wiki/General_Government)的德国文职管理机构之下。
+	- ### 27日
+		- [比利时](https://en.wikipedia.org/wiki/Belgium)宣布在当前冲突中保持中立。
+	- ### 30日
+		- 英国政府发布了一份关于在欧洲为犹太人和反纳粹分子建造的集中营的报告。
+	- ### 31日
+		- 由于德国计划进攻法国，德国中将[埃里希·冯·曼施泰因](https://en.wikipedia.org/wiki/Erich_von_Manstein)建议德国应该通过[阿登](https://en.wikipedia.org/wiki/Ardennes)而不是通过比利时进行进攻——这是预期的进攻路线。
+- ## 11月
+	- ### 1日-2日
+		- 德国物理学家[汉斯·费迪南德·迈耶](https://en.wikipedia.org/wiki/Hans_Ferdinand_Mayer)（HansFerdinandMayer）在[奥斯陆](https://en.wikipedia.org/wiki/Oslo)之行中编写了所谓的[奥斯陆报告](https://en.wikipedia.org/wiki/Oslo_Report)，其中包含重要的德国秘密德国军事信息。
+	- ### 1日
+		- 波兰的部分地区，包括但[泽走廊](https://en.wikipedia.org/wiki/Danzig_Corridor)，被[德国](https://en.wikipedia.org/wiki/Nazi_Germany)吞并。[苏联](https://en.wikipedia.org/wiki/Soviet_Union)将被占领的波兰东部地区并入[乌克兰](https://en.wikipedia.org/wiki/Ukrainian_Soviet_Socialist_Republic)和[白俄罗斯](https://en.wikipedia.org/wiki/Byelorussian_Soviet_Socialist_Republic)。
+	- ### 3日
+		- [芬兰](https://en.wikipedia.org/wiki/Finland)和[苏联](https://en.wikipedia.org/wiki/Soviet_Union)再次谈判新边界。芬兰人不信任斯大林的目标，拒绝放弃突破防线的领土。
+		- 市弗林特在锚[豪根桑德](https://en.wikipedia.org/wiki/Haugesund)，[挪威](https://en.wikipedia.org/wiki/Norway)，声称医疗原因。他们在中立水域无正当理由的锚地被挪威当局判定为违反国际法，在夜间[登船](https://en.wikipedia.org/wiki/HNoMS_Olav_Tryggvason)释放船只并拘禁德国人。
+	- ### 4日
+		- 罗斯福将[中立法案](https://en.wikipedia.org/wiki/Neutrality_Acts_of_the_1930s)修正案签署为法律交战各方可以从美国购买武器，但严格按照[现金和携带](https://en.wikipedia.org/wiki/Cash_and_carry_(World_War_II))方式进行，禁止使用美国船只。
+		- HansMayer给在奥斯陆的英国[海军武官](https://en.wikipedia.org/wiki/Naval_attach%C3%A9)HectorBoyer上尉写了一封匿名信，询问英国人是否想从德国那里获得有关德国现在和未来武器的信息。如果答案是肯定的，他需要通过对BBCWorldService德语版的一个小改动来通知他，这已经完成。
+	- ### 5日
+		- HansMayer匿名向[英国驻挪威大使馆](https://en.wikipedia.org/wiki/Embassy_of_the_United_Kingdom,_Oslo)发送了他的报告；从那里它被送到[白厅](https://en.wikipedia.org/wiki/Government_of_the_United_Kingdom)进行评估，在那里它引起了空军部情报助理主任[雷金纳德维克多琼斯](https://en.wikipedia.org/wiki/Reginald_Victor_Jones)的注意，尽管许多人怀疑它是德国工厂。
+	- ### 8日
+		- 8月8日希特勒在慕尼黑啤酒馆的炸弹爆炸中逃脱，他在1923年[啤酒馆政变](https://en.wikipedia.org/wiki/Beer_Hall_Putsch)周年纪念日发表讲话。英国轰炸机巧合地轰炸了慕尼黑。
+	- ### 9日
+		- 在[瓦雷讷](https://en.wikipedia.org/wiki/Varennes-en-Argonne)举行的英法会议上，加姆林将军获得了[戴尔计划](https://en.wikipedia.org/wiki/French_war_planning_1920%E2%80%931940)的批准，这是一项旨在在希特勒[入侵比利时时](https://en.wikipedia.org/wiki/Battle_of_France)将战争排除在法国之外的战略。
+		- 在[芬洛事件中](https://en.wikipedia.org/wiki/Venlo_incident)，英国[秘密情报局](https://en.wikipedia.org/wiki/Secret_Intelligence_Service)官员[西吉斯蒙德佩恩贝斯特](https://en.wikipedia.org/wiki/Sigismund_Payne_Best)和[理查德亨利史蒂文斯](https://en.wikipedia.org/wiki/Richard_Henry_Stevens)成为[假旗](https://en.wikipedia.org/wiki/False_flag)行动的受害者在中立荷兰的[芬洛](https://en.wikipedia.org/wiki/Venlo)，他们被一群德国Sicherheitsdienst官员绑架并带到德国。
+	- ### 13日
+		- 芬兰和苏联之间的谈判破裂。芬兰人怀疑德国人和俄罗斯人已同意将芬兰纳入苏联的势力范围。
+		- 在战争中损失的第一艘英国驱逐舰是[英国皇家海军布兰奇](https://en.wikipedia.org/wiki/HMS_Blanche_(H47))号，它被一艘U艇在[泰晤士河口](https://en.wikipedia.org/wiki/Thames_Estuary)附近布设的雷区击沉。
+		- 德国号在只击沉了两艘船并捕获了一艘之后，回到了[哥滕哈芬的](https://en.wikipedia.org/wiki/Gdynia)家。
+	- ### 14日
+		- [波兰流亡政府](https://en.wikipedia.org/wiki/Polish_government-in-exile)迁往[伦敦](https://en.wikipedia.org/wiki/London)。
+	- ### 16日
+		- 当一名德国轰炸机在对[苏格兰奥克尼的](https://en.wikipedia.org/wiki/Orkney)空袭中杀死詹姆斯·伊斯比斯特时，发生了第一起英国平民伤亡事件。
+		- [统帅](https://en.wikipedia.org/wiki/Oberkommando_der_Marine)的的[德国海军](https://en.wikipedia.org/wiki/Kriegsmarine) [Grossadmiral](https://en.wikipedia.org/wiki/Grand_admiral) [埃里希·雷德尔](https://en.wikipedia.org/wiki/Erich_Raeder)命令他的U艇到水槽无预警所有盟军商船。
+	- ### 17日
+		- [爱尔兰共和军](https://en.wikipedia.org/wiki/Irish_Republican_Army)因在[伦敦](https://en.wikipedia.org/wiki/London)引爆的炸弹而受到指责。
+	- ### 20日
+		- [德国空军](https://en.wikipedia.org/wiki/Luftwaffe)和德国U型潜艇开始在泰晤士河口开采。
+	- ### 21日
+		- 种植的德国新战略[磁性水雷](https://en.wikipedia.org/wiki/Naval_mine)在[英国海域](https://en.wikipedia.org/wiki/British_Isles)获得了第一次重大成功，当由埋下了地雷[U型52](https://en.wikipedia.org/wiki/German_submarine_U-52_(1938))在[河口的第四](https://en.wikipedia.org/wiki/Firth_of_Forth)把[轻型巡洋舰](https://en.wikipedia.org/wiki/Town-class_cruiser_(1936)) [HMS贝尔法斯特](https://en.wikipedia.org/wiki/HMS_Belfast)停止服务，直到1942年秋天。
+		- [德国战列舰](https://en.wikipedia.org/wiki/Scharnhorst-class_battleship) [格奈森瑙号](https://en.wikipedia.org/wiki/German_battleship_Gneisenau)和[沙恩霍斯特号](https://en.wikipedia.org/wiki/German_battleship_Scharnhorst)被派往重温斯佩伯爵海军上将的压力，对航路造成严重破坏。
+	- ### 22日
+		- 德国空军在泰晤士河口的[Shoeburyness](https://en.wikipedia.org/wiki/Shoeburyness)附近的泥浆中投下了一个完整的磁性矿山。一旦打捞上来，海军部科学家发明了消磁技术，大大降低了磁性地雷带来的危险。
+	- ### 23日
+		- [德国战舰](https://en.wikipedia.org/wiki/Scharnhorst-class_battleship) [格奈泽瑙](https://en.wikipedia.org/wiki/German_battleship_Gneisenau)和[沙恩霍斯特](https://en.wikipedia.org/wiki/German_battleship_Scharnhorst) [沉](https://en.wikipedia.org/wiki/List_of_shipwrecks_in_November_1939)英国[军火商巡洋舰](https://en.wikipedia.org/wiki/List_of_cruisers_of_World_War_II) [HMS拉瓦尔品第](https://en.wikipedia.org/wiki/HMS_Rawalpindi)之间[冰岛](https://en.wikipedia.org/wiki/Iceland_in_World_War_II)和[法罗群岛](https://en.wikipedia.org/wiki/Faroe_Islands)。大约270名船员死亡，而只有38人幸存。
+		- 波兰犹太人被命令佩戴[大卫之星](https://en.wikipedia.org/wiki/Star_of_David)臂章。
+	- ### 24日
+		- 日本宣布占领中国南部的[南宁](https://en.wikipedia.org/wiki/Nanning)。
+	- ### 26日
+		- 苏联[炮击迈尼拉](https://en.wikipedia.org/wiki/Shelling_of_Mainila)，苏联炮兵炮击芬兰边境附近的一块场地，指责芬兰人杀死了苏联军队。
+	- ### 29日
+		- 苏联与芬兰断绝外交关系。
+	- ### 30日
+		- [苏联](https://en.wikipedia.org/wiki/Soviet_Union)在后来被称为冬季战争的战争中袭击了[芬兰](https://en.wikipedia.org/wiki/Finland)。
+- ## 12月
+	- ### 1日
+		- 俄罗斯继续对芬兰开战；[赫尔辛基被轰炸了](https://en.wikipedia.org/wiki/Bombing_of_Helsinki_in_World_War_II)。在本月的前两周，芬兰人撤退到[曼纳海姆防线](https://en.wikipedia.org/wiki/Mannerheim_line)，这是一条位于俄罗斯南部边界内的过时防线。
+	- ### 2日
+		- 红军[攻下佩察莫](https://en.wikipedia.org/wiki/Pechengsky_District)。
+	- ### 4日
+		- 英国[战舰](https://en.wikipedia.org/wiki/Nelson-class_battleship) [HMS纳尔逊](https://en.wikipedia.org/wiki/HMS_Nelson_(28))是另一个雷磁无行为能力的六个月离开了这个时间由[U型52](https://en.wikipedia.org/wiki/German_submarine_U-52_(1938))关[湖埃维](https://en.wikipedia.org/wiki/Loch_Ewe)。
+	- ### 5日
+		- 俄罗斯入侵者开始对曼纳海姆线进行猛烈攻击。[Kollaa](https://en.wikipedia.org/wiki/Battle_of_Kollaa)和[Suomussalmi](https://en.wikipedia.org/wiki/Battle_of_Suomussalmi)之战开始了。
+	- ### 7日
+		- 意大利、挪威和丹麦在俄芬战争中再次宣布中立。瑞典宣布“非好战”，它可以在不正式参加战争的情况下向芬兰提供军事支持。
+	- ### 11日
+		- 俄国人在战术上遭遇芬兰军队的几次失败。
+	- ### 12日
+		- 在护航的驱逐舰[HMS公爵夫人](https://en.wikipedia.org/wiki/HMS_Duchess_(H64))与战舰相撞后下沉[HMS巴勒姆](https://en.wikipedia.org/wiki/HMS_Barham_(04))关闭[金泰尔的马尔](https://en.wikipedia.org/wiki/Mull_of_Kintyre)的[北通道](https://en.wikipedia.org/wiki/North_Channel_(Great_Britain_and_Ireland))与137人的损失。
+	- ### 13日
+		- 在[拉普拉塔河口海战](https://en.wikipedia.org/wiki/Battle_of_the_River_Plate)关闭[蒙得维的亚](https://en.wikipedia.org/wiki/Montevideo)，乌拉圭。由三艘巡洋舰（[埃克塞特号](https://en.wikipedia.org/wiki/HMS_Exeter_(68))、[阿贾克斯号](https://en.wikipedia.org/wiki/HMS_Ajax_(22))和[阿基里斯号](https://en.wikipedia.org/wiki/HMNZS_Achilles_(70))）组成的皇家海军狩猎团F，[在河床河口附近袭击](https://en.wikipedia.org/wiki/Battle_of_the_River_Plate)了德国军舰[施佩伯爵海军上将号，](https://en.wikipedia.org/wiki/German_cruiser_Admiral_Graf_Spee)并对其造成了重创。
+	- ### 14日
+		- 本海军上将格拉夫施佩，受损严重，将锚定到港[蒙得维的亚](https://en.wikipedia.org/wiki/Montevideo)，[乌拉圭](https://en.wikipedia.org/wiki/Uruguay)，呼吁国际法律。
+		- [苏联](https://en.wikipedia.org/wiki/Soviet_Union)因11月30日对芬兰的入侵而被逐出国际[联盟](https://en.wikipedia.org/wiki/League_of_Nations)。
+	- ### 15日
+		- 苏联军队袭击[泰帕莱](https://en.wikipedia.org/wiki/Solovyovo,_Priozersky_District,_Leningrad_Oblast)期间，芬兰[泰帕莱战役](https://en.wikipedia.org/wiki/Battle_of_Taipale)。
+	- ### 17日
+		- 海军上将格拉夫·斯佩被[乌拉圭](https://en.wikipedia.org/wiki/Uruguay)强迫离开蒙得维的亚港口；柏林给予自由选择权，这艘船的KapitänzurSee[HansLangsdorff](https://en.wikipedia.org/wiki/Hans_Langsdorff)命令在港口外凿沉这艘船。该船的船长及其船员被[阿根廷](https://en.wikipedia.org/wiki/Argentina)当局拘留。
+	- ### 18日
+		- 第一批加拿大军队抵达欧洲。
+		- 德国在[黑尔戈兰湾海战中](https://en.wikipedia.org/wiki/Battle_of_the_Heligoland_Bight_(1939))击败英国。
+	- ### 20日
+		- [汉斯·兰斯多夫](https://en.wikipedia.org/wiki/Hans_Langsdorff)船长在[阿根廷](https://en.wikipedia.org/wiki/Argentina)自杀。
+	- ### 27日
+		- 第一批印度军队抵达法国。
+	- ### 28日
+		- 英国[食品部长](https://en.wikipedia.org/wiki/Minister_of_Food_(United_Kingdom)) [W.S.莫里森](https://en.wikipedia.org/wiki/William_Morrison,_1st_Viscount_Dunrossil)宣布，从1月8日开始，配给将扩大到包括黄油、培根、火腿和糖。
+		- 当巡逻[刘易斯对接](https://en.wikipedia.org/wiki/Butt_of_Lewis)的英国战舰[HMS巴勒姆](https://en.wikipedia.org/wiki/HMS_Barham_(04))是由德国损坏[的U30](https://en.wikipedia.org/wiki/German_submarine_U-30_(1936))和停止工作了四个月。
+	- ### 31日
+		- 德国宣传部长[约瑟夫·戈培尔](https://en.wikipedia.org/wiki/Joseph_Goebbels)(JosephGoebbels)发表广播讲话，回顾了纳粹官方版本的1939年事件。除了说明年“将是艰难的一年，我们必须为此做好准备之外，没有对1940年做出任何预测。””。
+# 1940年
+- ## 注释和参考文献1月
+- ## 1月
+	- ### 1日
+		- 10,000日军在中国山西省东部发动反击，试图解救几乎被包围的日军第36师。
+	- ### 2日
+		- 苏联在芬兰的攻势因芬兰的几次胜利而停止；许多苏联坦克被摧毁。
+	- ### 7日
+		- 英国建立了基本食品的定量配给制度。据报道，芬兰在[Suomussalmi](https://en.wikipedia.org/wiki/Battle_of_Suomussalmi)取得了重大胜利；整个苏军师被消灭，又俘获了数辆军车。
+		- 谢苗·季莫申科将军在芬兰指挥苏联军队。
+	- ### 10日
+		- [梅赫伦事件](https://en.wikipedia.org/wiki/Mechelen_incident)一架载有[FallGelb](https://en.wikipedia.org/wiki/Fall_Gelb)计划的德国飞机在中立的比利时坠毁。
+	- ### 16日
+		- 捕获的文件揭示了希特勒入侵斯堪的纳维亚的计划，并将入侵法国和低地国家的计划推迟到春天，届时天气更适合入侵。
+	- ### 17日
+		- 苏联人被赶回芬兰并以猛烈的空袭进行报复。
+	- ### 20日
+		- 德国潜艇U-44于0415时用鱼雷击沉希腊轮船EkatontarchosDracoulis，造成6人死亡。U-44过去6小时一直在寻找EkatontarchosDracoulis。
+	- ### 21日
+		- 一个U型船下沉英国的驱逐舰[HMS埃克斯茅斯](https://en.wikipedia.org/wiki/HMS_Exmouth_(H02))和其船员135都将丢失。
+	- ### 24日
+		- [莱因哈德·海德里希](https://en.wikipedia.org/wiki/Reinhard_Heydrich)被戈林任命为解决“犹太人问题”的问题。
+	- ### 27日
+		- 德国制定了入侵丹麦和挪威的最终计划。
+- ## 2月
+	- ### 1日
+		- 日本[国会](https://en.wikipedia.org/wiki/Diet_(assembly))公布了创纪录的高预算，其一半以上的支出用于军事。
+	- ### 5日
+		- 英国和法国决定干预挪威以切断铁矿石贸易，以期预期德国会占领，表面上是为了开辟一条援助芬兰的路线。手术定于3月20日左右开始。
+	- ### 9日
+		- [埃里希·冯·曼施坦因](https://en.wikipedia.org/wiki/Erich_von_Manstein)(ErichvonManstein)被任命为德国第三十八(38)装甲军团的指挥官，使他无法参与法国入侵的计划。
+	- ### 10日
+		- 苏联同意在新的贸易条约中向德国供应粮食和原材料。
+	- ### 14日
+		- 英国政府号召志愿者到芬兰作战。
+	- ### 15日
+		- 苏军攻占芬兰重要防御点苏马，从而突破[曼纳海姆防线](https://en.wikipedia.org/wiki/Mannerheim_Line)。希特勒下令进行[无限制潜艇战](https://en.wikipedia.org/wiki/Unrestricted_submarine_warfare)。
+	- ### 16日
+		- 英国驱逐舰[HMSCossack](https://en.wikipedia.org/wiki/HMS_Cossack_(F03))在挪威中立领海强行从德国运输[Altmark](https://en.wikipedia.org/wiki/German_tanker_Altmark)号驱逐303名英国战俘，引发[Altmark事件](https://en.wikipedia.org/wiki/Altmark_Incident)。
+	- ### 17日
+		- 芬兰人继续从[曼纳海姆防线](https://en.wikipedia.org/wiki/Mannerheim_Line)撤退。曼施坦因向希特勒展示了他通过[阿登森林](https://en.wikipedia.org/wiki/Ardennes)入侵法国的计划。
+	- ### 21日
+		- [NikolausvonFalkenhorst将军](https://en.wikipedia.org/wiki/Nikolaus_von_Falkenhorst)被任命为即将到来的德国入侵挪威的指挥官。
+- ## 3月
+	- ### 1日
+		- [阿道夫希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)指示他的将军们计划入侵丹麦和挪威。
+	- ### 3日
+		- 苏联开始攻击芬兰第二大城市[维伊普里](https://en.wikipedia.org/wiki/Viipuri)。
+	- ### 5日
+		- 芬兰告诉苏联，他们将同意结束战争的条件。第二天，他们派使者到莫斯科谈判和平条约。
+	- ### 11日
+		- 肉类配给始于英国。
+	- ### 12日
+		- 在莫斯科，芬兰在冲突105天后与苏联签署和平条约。芬兰人被迫放弃重要领土以换取和平。
+	- ### 16日
+		- 德国对[斯卡帕湾的](https://en.wikipedia.org/wiki/Scapa_Flow)空袭造成英国平民首次伤亡。
+	- ### 18日
+		- 希特勒和墨索里尼在奥地利边境的布伦纳山口相遇； [贝尼托墨索里尼](https://en.wikipedia.org/wiki/Benito_Mussolini)同意希特勒的观点，即意大利将“在适当的时候”参战。
+	- ### 21日
+		- [保罗雷诺](https://en.wikipedia.org/wiki/Paul_Reynaud)在达拉迪埃前一天辞职后成为法国总理。
+	- ### 28日
+		- 英法正式达成协议，两国均不寻求与德国单独和平。
+	- ### 29日
+		- 苏联想要新的领土。莫洛托夫向最高苏维埃谈到了“悬而未决的争端”，即罗马尼亚比萨拉比亚问题。
+	- ### 30日
+		- 日本在中国[南京](https://en.wikipedia.org/wiki/Nanking)建立了[汪精卫](https://en.wikipedia.org/wiki/Wang_Jingwei)的傀儡政权。
+		- 英国进行秘密侦察飞行，利用西德尼·科顿首创的高空、高速立体摄影技术，对苏联境内的目标区域进行拍摄，为[派克行动](https://en.wikipedia.org/wiki/Operation_Pike)做准备。
+- ## 4月
+	- ### 3日
+		- 部长级国防委员会由[第一](https://en.wikipedia.org/wiki/First_Lord_of_the_Admiralty)任海军大臣（[温斯顿·丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)）担任主席，取代[查特菲尔德勋爵](https://en.wikipedia.org/wiki/Ernle_Chatfield,_1st_Baron_Chatfield)[的国防部协调](https://en.wikipedia.org/wiki/Minister_for_Coordination_of_Defence)部长职位。
+	- ### 4日
+		- 4月22,000名波兰军官、警察和其他人在[卡廷大](https://en.wikipedia.org/wiki/Katyn_massacre)屠杀中被苏联内务人民委员会屠杀。
+	- ### 9日
+		- 德国人在几个挪威港口登陆并占领[奥斯陆](https://en.wikipedia.org/wiki/Oslo)；在[挪威战役](https://en.wikipedia.org/wiki/Norwegian_Campaign)持续两个月。英国人开始了他们的挪威战役。[丹麦被入侵](https://en.wikipedia.org/wiki/German_invasion_of_Denmark_(1940))并在六个小时内投降。在[德国重巡洋舰布吕歇尔](https://en.wikipedia.org/wiki/German_cruiser_Bl%C3%BCcher)在沉没[德勒巴克声音之战](https://en.wikipedia.org/wiki/Battle_of_Dr%C3%B8bak_Sound)。
+	- ### 10日
+		- 德国人在前国防部长[维德昆·吉斯林](https://en.wikipedia.org/wiki/Vidkun_Quisling)(VidkunQuisling)的领导下成立了挪威政府。在[德国轻型巡洋舰柯尼斯堡](https://en.wikipedia.org/wiki/German_cruiser_K%C3%B6nigsberg)由英国海军航空兵俯冲轰炸机击沉。
+	- ### 11日
+		- [纳尔维克第一次战役](https://en.wikipedia.org/wiki/First_Battle_of_Narvik)。英国驱逐舰和飞机成功地对一支规模更大的德国海军进行了突然袭击。4月13日的第二次袭击也将是英国的成功。
+	- ### 12日
+		- 英国军队占领[丹麦法罗群岛](https://en.wikipedia.org/wiki/Faroe_Islands)。
+	- ### 14日
+		- 英法军队开始在挪威特隆赫姆以北的[纳姆索斯](https://en.wikipedia.org/wiki/Namsos)登陆。
+	- ### 15日
+		- 英国军队在挪威纳尔维克附近的[哈尔斯塔](https://en.wikipedia.org/wiki/Harstad)登陆。
+	- ### 16日
+		- 更多英国登陆挪威，特别是[特隆赫姆的](https://en.wikipedia.org/wiki/Trondheim)北部和南部；特隆赫姆争夺战一直持续到22日。
+	- ### 27日
+		- 英国军队开始从挪威中部、[特隆赫姆](https://en.wikipedia.org/wiki/Trondheim)北部和南部撤出。
+- ## 5月
+	- ### 1日
+		- 盟友开始撤离挪威港口；努力将持续到六月。
+	- ### 5日
+		- 挪威流亡政府在伦敦成立。
+	- ### 8日
+		- 首相[内维尔张伯伦](https://en.wikipedia.org/wiki/Neville_Chamberlain)在下议院的[挪威辩论](https://en.wikipedia.org/wiki/Norway_Debate)投票中勉强幸免于难。
+	- ### 9日
+		- 英国的征兵年龄延长至36岁。
+	- ### 10日
+		- 德国入侵比利时、法国、卢森堡和荷兰；内维尔·张伯伦辞职后，[温斯顿·丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)成为[英国首相](https://en.wikipedia.org/wiki/Prime_Minister_of_the_United_Kingdom)。英国入侵冰岛。比利时宣布进入紧急状态。丘吉尔被要求组建战时联合政府。德国对西线的大规模攻势开始入侵卢森堡、比利时、荷兰和法国。德国伞兵大胆地攻占了比利时的埃本埃玛尔要塞。
+		- [海牙之战](https://en.wikipedia.org/wiki/Battle_for_The_Hague)成为历史上第一次失败的伞兵攻击，因为荷兰人迅速击​​败了入侵者。
+	- ### 11日
+		- 卢森堡被占领。丘吉尔为现居荷兰的前德皇[威廉二世](https://en.wikipedia.org/wiki/William_II,_German_Emperor)提供英国庇护；他拒绝了。
+	- ### 12日
+		- 比利时人炸毁了[默兹河](https://en.wikipedia.org/wiki/Meuse_River)上的所有桥梁以阻止德军前进。
+		- [汉努特之战](https://en.wikipedia.org/wiki/Battle_of_Hannut)在比利时开始。
+	- ### 13日
+		- [荷兰流亡政府](https://en.wikipedia.org/wiki/Dutch_government-in-exile)在伦敦成立。海因茨·古德里安将军的装甲军在法国色当突围。女王威廉敏娜荷兰出逃到英国避难。丘吉尔在下议院的“血、辛劳、泪水和汗水”演讲。
+		- 荷兰人[在格雷贝贝格战役中](https://en.wikipedia.org/wiki/Battle_of_the_Grebbeberg)输给了德国人。
+	- ### 14日
+		- 新任战争国务卿安东尼·伊登宣布成立[地方防卫志愿者](https://en.wikipedia.org/wiki/Local_Defence_Volunteers)（家庭卫队）。它主要由老年人和退休人员组成。在这些黑暗的日子里，丘吉尔向罗斯福总统和加拿大寻求援助。包括工党、自由党和保守党成员在内的新英国联盟的概要已公开。
+		- 荷兰人[在阿夫鲁戴克战役中](https://en.wikipedia.org/wiki/Battle_of_the_Afsluitdijk)击败德国人。
+		- [鹿特丹闪电战](https://en.wikipedia.org/wiki/Rotterdam_Blitz)导致德国在[鹿特丹战役中](https://en.wikipedia.org/wiki/Battle_of_Rotterdam)取得胜利，同时造成许多平民死亡和巨大破坏。荷兰决定投降，西兰除外。
+	- ### 15日
+		- 签署了荷兰军队的投降书。作为对鹿特丹闪电战的回应[，二战中](https://en.wikipedia.org/wiki/Strategic_bombing_during_World_War_II#Allied_response)第一次大规模战略轰炸的目标是盖尔森基兴，随后是汉堡、不来梅、科隆、埃森、杜伊斯堡、杜塞尔多夫和汉诺威。德军渡过[默兹河](https://en.wikipedia.org/wiki/Meuse_River)。
+	- ### 16日
+		- 丘吉尔访问巴黎并听说法国战争即将结束。
+		- 比利时政府离开比利时前往法国[波尔多](https://en.wikipedia.org/wiki/Bordeaux)，比利时军队撤退。后来搬到伦敦。
+	- ### 17日
+		- 德国人进入布鲁塞尔并占领安特卫普。[保罗雷诺](https://en.wikipedia.org/wiki/Paul_Reynaud)组建了新的法国政府，包括84岁的[贝当元帅](https://en.wikipedia.org/wiki/Marshal_P%C3%A9tain)，第一次世界大战的法国英雄。
+	- ### 18日
+		- [马克西姆·魏刚](https://en.wikipedia.org/wiki/Maxime_Weygand)替换[莫里斯·甘末林](https://en.wikipedia.org/wiki/Maurice_Gamelin)为法国武装部队司令。安特卫普被俘。
+		- 德军赢得[泽兰战役](https://en.wikipedia.org/wiki/Battle_of_Zeeland)。
+	- ### 19日
+		- 法国[亚眠](https://en.wikipedia.org/wiki/Amiens)被德军围困；[隆美尔](https://en.wikipedia.org/wiki/Erwin_Rommel)的军队包围了阿拉斯；其他德军部队到达海峡上的诺耶勒斯。
+		- 英国人完成了对[冰岛](https://en.wikipedia.org/wiki/Iceland)的入侵。
+	- ### 20日
+		- 古德里安将军的装甲部队[攻占阿比维尔](https://en.wikipedia.org/wiki/Abbeville)，威胁该地区的盟军。
+	- ### 23日
+		- 战前英国法西斯领袖[奥斯瓦尔德·莫斯利](https://en.wikipedia.org/wiki/Oswald_Mosley)被判入狱；他和他的妻子将在监狱中度过这段时间。
+	- ### 24日
+		- 英国人最终决定停止在挪威的行动。
+	- ### 25日-28日
+		- 86名比利时平民在Vinkt村被德军[杀害](https://en.wikipedia.org/wiki/Vinkt_Massacre)。
+	- ### 25日
+		- 英法联军撤退到[敦刻尔克](https://en.wikipedia.org/wiki/Dunkirk)。希特勒下令停止向盟军滩头阵地推进德国人，并允许赫尔曼·戈林使用德国空军进行攻击。英国皇家空军保卫滩头阵地。英国发生零星的德国空军轰炸。[滨海布洛涅](https://en.wikipedia.org/wiki/Boulogne-sur-Mer)向德国人投降。
+		- 苏联正准备全面接管波罗的海国家，组织和挑起波罗的海国家和苏联之间的冲突。苏联政府指责立陶宛绑架苏联士兵。
+	- ### 26日
+		- [巡逻船A4](https://en.wikipedia.org/wiki/Belgian_ship_A4)抵达[普利茅斯](https://en.wikipedia.org/wiki/Plymouth)，将最后40吨国家黄金储备撤离比利时。
+		- [加来](https://en.wikipedia.org/wiki/Calais)向德国人投降。[发电机行动](https://en.wikipedia.org/wiki/Operation_Dynamo)，盟军从[敦刻尔克](https://en.wikipedia.org/wiki/Dunkirk,_France)撤出340,000名士兵，开始了。在德国空军的猛烈轰炸下，此举将持续到6月3日。
+	- ### 28日
+		- 比利时向德国投降；[比利时](https://en.wikipedia.org/wiki/Leopold_III_of_Belgium)国王利奥波德三世投降并被拘禁。
+	- ### 30日
+		- 关键的英国内阁会议尽管[哈利法克斯勋爵](https://en.wikipedia.org/wiki/Lord_Halifax)和张伯伦激烈争论，丘吉尔还是赢得了关于继续战争的投票。
+	- ### 31日
+		- 日本重磅炸弹国民党首都[重庆](https://en.wikipedia.org/wiki/Chungking)，位于[长江](https://en.wikipedia.org/wiki/Yangtze)上游。
+- ## 6月
+	- ### 3日
+		- 发电机行动的最后一天。224,686名英国军队和121,445名法国和比利时军队已经撤离。德国人轰炸巴黎。
+	- ### 4日
+		- 温斯顿丘吉尔在下议院发表他的“我们永远不会投降”的演讲。
+	- ### 7日
+		- 德语战舰[格奈泽瑙](https://en.wikipedia.org/wiki/German_battleship_Gneisenau)和[沙恩霍斯特](https://en.wikipedia.org/wiki/German_battleship_Scharnhorst)沉航空母舰[HMS光荣](https://en.wikipedia.org/wiki/HMS_Glorious)和两个驱逐舰关闭挪威;英国船只没有空中掩护。
+	- ### 9日
+		- 红军在拉脱维亚边境挑起冲突。
+	- ### 10日
+		- 意大利对法国和英国宣战。挪威投降。三天前，[哈康国王](https://en.wikipedia.org/wiki/Haakon_VII_of_Norway)和他的政府已经撤离到英国。法国政府迁往[图尔](https://en.wikipedia.org/wiki/Tours)。
+	- ### 11日
+		- [马耳他围城战](https://en.wikipedia.org/wiki/Siege_of_Malta_(World_War_II))开始。
+	- ### 12日
+		- [第51（高地）师的](https://en.wikipedia.org/wiki/51st_(Highland)_Division)10,000多名英国士兵在[Saint-Valéry-en-Caux](https://en.wikipedia.org/wiki/Saint-Val%C3%A9ry-en-Caux)被俘。
+	- ### 13日
+		- 法国政府再次行动，这次是[波尔多](https://en.wikipedia.org/wiki/Bordeaux)。
+	- ### 14日
+		- 巴黎被德军占领；位于土伦的[法国海军](https://en.wikipedia.org/wiki/French_Navy)(MarineNationale)部队对利古里亚沿岸的意大利目标进行了进攻行动。苏联波罗的海舰队对波罗的海国家进行全面军事封锁。沿波罗的海边界的苏联军队准备在波罗的海国家组织共产主义政变。苏联轰炸机击落了一架从塔林飞往赫尔辛基的芬兰客机卡列娃，该客机携带着来自美国驻塔林、里加和赫尔辛基大使馆的三个外交邮袋。
+	- ### 15日
+		- 苏联向立陶宛发出8小时最后通牒。斯梅托纳总统逃离该国，因此接管不可能以正式合法的方式进行。苏联军队进入立陶宛并攻击拉脱维亚边防卫队。在[空中行动中](https://en.wikipedia.org/wiki/Operation_Aerial)开始从法国西部的港口撤离英国军队。
+	- ### 16日
+		- [菲利普·贝](https://en.wikipedia.org/wiki/Philippe_P%C3%A9tain)当在雷诺政府辞职后成为法国总理。法国单桅帆船[LaCurieuse](https://en.wikipedia.org/w/index.php?titleFrench_sloop_La_Curieuse&actionedit&redlink1)迫使意大利潜艇Provano浮出水面，然后通过撞击将其击沉。苏联向拉脱维亚和爱沙尼亚发出八小时最后通牒投降。
+	- ### 17日
+		- 班轮沉没[RMS兰开斯特里亚号](https://en.wikipedia.org/wiki/RMS_Lancastria)关闭[圣纳泽尔](https://en.wikipedia.org/wiki/St_Nazaire)同时被用作英国troopship-至少在3000英国最严重的海难被杀害。苏联军队进入拉脱维亚和爱沙尼亚。
+	- ### 18日
+		- [戴高乐将军](https://en.wikipedia.org/wiki/Charles_de_Gaulle)组建[法国民族解放委员会，这](https://en.wikipedia.org/wiki/French_Committee_of_National_Liberation)是一个法国流亡政府。[爱沙尼亚](https://en.wikipedia.org/wiki/Estonia)、[拉脱维亚](https://en.wikipedia.org/wiki/Latvia)和[立陶宛](https://en.wikipedia.org/wiki/Lithuania) [被](https://en.wikipedia.org/wiki/Occupation_of_the_Baltic_states)苏联占领。
+	- ### 20日
+		- 法国寻求与意大利停战。
+	- ### 21日
+		- 法德停战谈判在[贡比涅](https://en.wikipedia.org/wiki/Compi%C3%A8gne)开始。在[意大利入侵](https://en.wikipedia.org/wiki/Italian_invasion_of_France)法国期间，两支意大利军队的部队进入法国。
+		- 法国战舰洛林号在意大利北非的意大利港口[巴迪亚](https://en.wikipedia.org/wiki/Bardia)开火。在法国人对意大利人的最后一些行动中，法国海军飞机袭击了意大利本土的塔兰托和里窝那。
+		- 苏联领导的波罗的海国家政变。在塔林唯一的军事抵抗中，爱沙尼亚一方死亡2人，苏联一方死亡约10人。
+	- ### 22日
+		- [法德停战协定](https://en.wikipedia.org/wiki/Armistice_with_France_(Second_Compi%C3%A8gne))签署。
+	- ### 24日
+		- 法意停战协定签署。
+	- ### 25日
+		- 法国于0135正式向德国投降。空中行动的最后一次大撤离；191,870名盟军士兵、飞行员和一些平民逃离了法国。
+	- ### 26日
+		- 苏联发出最后通牒，要求罗马尼亚占领比萨拉比亚和北布科维纳。
+	- ### 27日
+		- 罗马尼亚人提议谈判。莫洛托夫回答说，要求是土地让步或战争。苏联对罗马尼亚的新最后通牒。
+	- ### 28日
+		- 28戴高乐将军被英国人承认为[自由法国的](https://en.wikipedia.org/wiki/Free_French)领袖。：意大利北非总司令[伊塔洛·巴尔博](https://en.wikipedia.org/wiki/Italo_Balbo)元帅在利比亚托布鲁克的一次“友军火灾事件”中被意大利的防空火力意外炸死。：红军占领罗马尼亚比萨拉比亚和布科维纳北部。：德国空军轰炸了非军事化的英属海峡群岛，他们没有被告知非军事化。在根西岛，33人死亡，67人受伤，在泽西岛，9人死亡，多人受伤。：轴心国和盟军车队在克里特岛西南部发生冲突。
+	- ### 29日
+		- 日本外相有田八郎宣布日本打算建立一个由日本领导的、不受西方列强影响的亚洲国家集团。
+	- ### 30日
+		- 德国入侵[海峡群岛](https://en.wikipedia.org/wiki/Occupation_of_the_Channel_Islands)。
+- ## 7月
+	- ### 1日
+		- [海峡群岛占领](https://en.wikipedia.org/wiki/Occupation_of_the_Channel_Islands)由德军完成。[法国政府](https://en.wikipedia.org/wiki/Vichy_France)迁往[维希](https://en.wikipedia.org/wiki/Vichy)。：[RodolfoGraziani](https://en.wikipedia.org/wiki/Rodolfo_Graziani)元帅在北非被任命为Balbo的接班人。：在[意大利皇家空军](https://en.wikipedia.org/wiki/Regia_Aeronautica)开始[轰炸](https://en.wikipedia.org/wiki/Bombing_of_Palestine_in_World_War_II)了[巴勒斯坦的英国的命令](https://en.wikipedia.org/wiki/Mandatory_Palestine)。
+	- ### 2日
+		- 希特勒下令准备入侵英国的计划，代号为[海狮行动](https://en.wikipedia.org/wiki/Operation_Sea_Lion)。
+		- [奥尔德尼岛](https://en.wikipedia.org/wiki/Alderney)向德国人投降。
+		- [布莱顿](https://en.wikipedia.org/wiki/Brighton)海滩对公众关闭，地雷、铁丝网和其他防御措施到位。
+	- ### 3日
+		- [加的夫](https://en.wikipedia.org/wiki/Cardiff)第一次被[德国空军](https://en.wikipedia.org/wiki/Luftwaffe)轰炸。
+		- 英国人[攻击并摧毁法国海军](https://en.wikipedia.org/wiki/Attack_on_Mers-el-K%C3%A9bir)，担心它会落入德国人的手中。
+	- ### 4日
+		- [法国舰队在市场汇率-EL-克比尔的破坏](https://en.wikipedia.org/wiki/Attack_on_Mers-el-K%C3%A9bir)，[阿尔及利亚](https://en.wikipedia.org/wiki/Algeria)由[皇家海军](https://en.wikipedia.org/wiki/Royal_Navy);[维希法国](https://en.wikipedia.org/wiki/Vichy_French)政府为了抗议与英国断绝外交关系。在亚历山大港，法国人同意将[法国战列舰洛林号](https://en.wikipedia.org/wiki/French_battleship_Lorraine)和几艘小型舰船非军事化。该[温莎公爵](https://en.wikipedia.org/wiki/Duke_of_Windsor)（亲纳粹嫌疑污点）被任命为省长[巴哈马](https://en.wikipedia.org/wiki/Bahamas)，把他从争议一段距离。
+		- [萨克](https://en.wikipedia.org/wiki/Sark)向德国人投降。德国人现在控制着所有的英属海峡群岛。
+		- 德国新闻局发布了在法国沦陷期间捕获的与[派克行动](https://en.wikipedia.org/wiki/Operation_Pike)有关的文件摘录，这是一项英法轰炸苏联油田的计划。被破坏的操作随后被中止。
+		- 意大利人[占领卡萨拉](https://en.wikipedia.org/wiki/Capture_of_Kassala)。
+	- ### 5日
+		- 两名比利时政客[卡米尔](https://en.wikipedia.org/wiki/Camille_Huysmans)[·休](https://en.wikipedia.org/wiki/Marcel-Henri_Jaspar)斯曼斯和马塞尔-亨利·贾斯帕组成了一个流亡伦敦的非官方政府，担心仍在法国的[比利时官方政府](https://en.wikipedia.org/wiki/Belgian_government_in_exile)会向德国人投降。
+	- ### 9日
+		- 意大利海岸发生了一场[相当优柔寡断的海军小规模冲突](https://en.wikipedia.org/wiki/Battle_of_Calabria)。没有船只丢失。
+	- ### 10日
+		- [不列颠之战](https://en.wikipedia.org/wiki/Battle_of_Britain)以德国空军对航道运输的袭击开始。罗斯福总统要求国会大幅增加军事准备。
+	- ### 11日
+		- [英国皇家空军](https://en.wikipedia.org/wiki/RAF)突袭荷兰的敌军阵地和德国军火工厂。
+	- ### 12日
+		- [德国空军](https://en.wikipedia.org/wiki/Luftwaffe)袭击威尔士、苏格兰和北爱尔兰。
+	- ### 14日
+		- 苏联在波罗的海国家组织了被操纵的选举。议会将由苏维埃控制。
+	- ### 16日
+		- [阿道夫希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)向他的军队提交了入侵英国的指令，[海狮行动](https://en.wikipedia.org/wiki/Operation_Sea_Lion)。
+	- ### 18日
+		- 作为对Mers-el-Kébir的回应，[维希法国空军](https://en.wikipedia.org/wiki/Vichy_French_Air_Force)轰炸了英国控制的[直布罗陀](https://en.wikipedia.org/wiki/Military_history_of_Gibraltar_during_World_War_II)。
+	- ### 19日
+		- 爱沙尼亚的[JohanLaidoner](https://en.wikipedia.org/wiki/Johan_Laidoner)将军被驱逐到西伯利亚。
+		- 19盟军船只与两艘意大利轻巡洋舰发生冲突，在[斯帕达角海战中](https://en.wikipedia.org/wiki/Battle_of_Cape_Spada)击沉一艘。
+	- ### 21日
+		- [捷克斯洛伐克流亡政府](https://en.wikipedia.org/wiki/Czechoslovak_government-in-exile)抵达伦敦。在波罗的海国家，苏联控制的议会要求加入苏联。
+	- ### 22日
+		- [哈瓦那会议](https://en.wikipedia.org/wiki/Havana_Conference_of_1940)召开；西半球国家开会讨论中立和经济合作。[近野文麻](https://en.wikipedia.org/wiki/Fumimaro_Konoye)被任命为日本首相。
+	- ### 23日
+		- 英国“[家庭卫队](https://en.wikipedia.org/wiki/British_Home_Guard)”正式成立，招募老年人和那些被认为无法在正规武装部队服役的人。
+	- ### 25日
+		- 命令所有妇女和儿童撤离[直布罗陀](https://en.wikipedia.org/wiki/Gibraltar)。
+	- ### 26日
+		- 美利坚合众国启动美国陆军总司令部(GHQ)，旨在通过监督美国大陆内陆军野战部队的组织和训练来促进动员，该地区代号为“[战区”。内政](https://en.wikipedia.org/wiki/Zone_of_the_Interior)。
+	- ### 30日
+		- [爱沙尼亚总统](https://en.wikipedia.org/wiki/President_of_Estonia)，[康斯坦丁·帕茨](https://en.wikipedia.org/wiki/Konstantin_P%C3%A4ts)，被逮捕和驱逐苏联到俄罗斯。
+- ## 8月
+	- ### 1日-4日
+		- [马耳他车队](https://en.wikipedia.org/wiki/Malta_Convoys)的第一个快点行动完成。
+	- ### 1日
+		- 希特勒将9月15日定为[海狮行动](https://en.wikipedia.org/wiki/Operation_Sea_Lion)的日期，即入侵英国。苏联外交部长莫洛托夫重申莫洛托夫-里宾特洛甫条约在苏联最高，同时口头攻击英国和美国。他还断言，苏联的边界已移至波罗的海沿岸。：[意大利皇家海军](https://en.wikipedia.org/wiki/Regia_Marina)在波尔多建立[BETASOM](https://en.wikipedia.org/wiki/BETASOM)潜艇基地，加入“大西洋海战”。
+	- ### 2日
+		- [戴高乐将军](https://en.wikipedia.org/wiki/Charles_de_Gaulle)被法国军事法庭缺席判处死刑。苏联[吞并了比萨拉比亚和北布科维纳](https://en.wikipedia.org/wiki/Soviet_occupation_of_Bessarabia_and_Northern_Bukovina)。
+	- ### 3日
+		- 苏联正式吞并[立陶宛](https://en.wikipedia.org/wiki/Lithuanian_Soviet_Socialist_Republic)。
+	- ### 4日
+		- 在东非战役期间，[古列尔莫·纳西](https://en.wikipedia.org/wiki/Guglielmo_Nasi) 将军率领的意大利军队[入侵并占领](https://en.wikipedia.org/wiki/Italian_conquest_of_British_Somaliland) [英属索马里兰](https://en.wikipedia.org/wiki/British_Somaliland)。
+	- ### 5日
+		- 未能在英吉利海峡取得空中优势和恶劣天气导致对英国的入侵推迟。苏联正式吞并[拉脱维亚](https://en.wikipedia.org/wiki/Latvian_Soviet_Socialist_Republic)。
+	- ### 6日
+		- 苏联正式吞并[爱沙尼亚](https://en.wikipedia.org/wiki/Estonian_Soviet_Socialist_Republic)。
+	- ### 11日-15日
+		- 意大利入侵期间在英属索马里兰进行的[TugArgan战役](https://en.wikipedia.org/wiki/Italian_conquest_of_British_Somaliland)。为了避免包围，英国人撤退了。
+	- ### 13日
+		- 这是“[阿德勒标签](https://en.wikipedia.org/wiki/Adler_Tag)”或“鹰日”。[赫尔曼戈林](https://en.wikipedia.org/wiki/Hermann_G%C3%B6ring)开始对英国机场进行为期两周的袭击，为入侵做准备。（对于一些德国历史学家来说，这是“[不列颠之战](https://en.wikipedia.org/wiki/Battle_of_Britain)”的开始。）。
+	- ### 14日
+		- 英国科学家[亨利·提扎](https://en.wikipedia.org/wiki/Henry_Tizard)德爵士前往美国执行[提扎德任务](https://en.wikipedia.org/wiki/Tizard_Mission)，将多项英国绝密技术交给美国人，包括位于雷达核心的秘密装置[磁控管](https://en.wikipedia.org/wiki/Magnetron)。雷达已经在英国的防御中证明了自己。
+	- ### 15日
+		- [英国皇家](https://en.wikipedia.org/wiki/Royal_Air_Force)[空军](https://en.wikipedia.org/wiki/Luftwaffe)在东海岸的一场广泛战斗中继续战胜德国空军。英国战斗机生产开始加速。1940年8月15日，意大利潜艇在蒂诺斯港击沉了希腊巡洋舰[埃利号](https://en.wikipedia.org/wiki/Greek_cruiser_Elli_(1912))。
+	- ### 16日
+		- [不列颠之战](https://en.wikipedia.org/wiki/Battle_of_Britain)仍在继续；德国人受到飞机航程差和英国广泛使用雷达的阻碍。美国和英国的“[基地驱逐舰协议”](https://en.wikipedia.org/wiki/Destroyers_for_Bases_Agreement)初稿已公开。
+	- ### 17日
+		- 希特勒宣布封锁不列颠群岛。
+	- ### 18日
+		- [不列颠之战的](https://en.wikipedia.org/wiki/Battle_of_Britain)激烈战斗；德国人在轰炸机编队中遭受严重损失。戈林宣称他的战斗机飞行员很懦弱，并命令他们严密保护轰炸机，进一步限制了他们的能力。
+	- ### 19日
+		- [意大利](https://en.wikipedia.org/wiki/Kingdom_of_Italy)军队占领英属索马里兰首都[柏培拉](https://en.wikipedia.org/wiki/Berbera)，英军逃往亚丁。柏培拉的沦陷完成了对英国殖民地的入侵。到了月底，意大利控制英属索马里和几个城镇和堡垒随着边境苏丹和肯尼亚，包括卡萨拉，Gallabat和莫亚莱。
+	- ### 20日
+		- 意大利宣布[封锁](https://en.wikipedia.org/wiki/Blockade)地中海地区的英国港口。丘吉尔在下议院发表的演讲“[从来没有这么多人欠这么少人这么多](https://en.wikipedia.org/wiki/Never_was_so_much_owed_by_so_many_to_so_few)”的演讲。
+		- 中国共产党在华北发动[百团攻势](https://en.wikipedia.org/wiki/Hundred_Regiments_Offensive)。
+	- ### 22日
+		- 德国人现在用远程火炮炮击[多佛](https://en.wikipedia.org/wiki/Dover)和附近的沿海地区。
+	- ### 24日
+		- 德国飞机错误地轰炸了[Cripplegate的](https://en.wikipedia.org/wiki/Cripplegate)一座教堂，意外地决定了不列颠之战的未来形态。
+	- ### 25日
+		- 丘吉尔下令轰炸柏林，以报复前一晚对Cripplegate的轰炸。
+	- ### 26日
+		- 伦敦和柏林都被轰炸柏林是第一次。
+	- ### 27日
+		- [杜阿拉](https://en.wikipedia.org/wiki/Douala)在[法国喀麦隆](https://en.wikipedia.org/wiki/French_Cameroons)被捕获，并且不久之后整个殖民地被捕获以及。
+	- ### 30日
+		- 对英格兰的轰炸仍在继续；伦敦现在被轰炸以报复[柏林](https://en.wikipedia.org/wiki/Bombing_of_Berlin)的轰炸；于是，“伦敦闪电战”开始了。阿道夫希特勒和贝尼托墨索里尼口述了所谓的[第二届维也纳奖](https://en.wikipedia.org/wiki/Second_Vienna_Award)，迫使罗马尼亚将[北特兰西瓦尼亚](https://en.wikipedia.org/wiki/Northern_Transylvania)（包括整个[马拉穆雷什](https://en.wikipedia.org/wiki/Maramure%C8%99)和部分[克里沙纳](https://en.wikipedia.org/wiki/Cri%C8%99ana)）移交给[匈牙利](https://en.wikipedia.org/wiki/Hungary)。
+	- ### 31日
+		- 德国空军继续袭击英国机场以及伦敦。对雷达装置的攻击证明是无效的。
+		- 两艘皇家海军驱逐舰在所谓的“[特塞尔灾难](https://en.wikipedia.org/wiki/Texel_Disaster)”中在荷兰海岸沉没。
+- ## 9月
+	- ### 2日
+		- [基地驱逐舰协议](https://en.wikipedia.org/wiki/Destroyers_for_Bases_Agreement)完成。英国以[巴哈马](https://en.wikipedia.org/wiki/Bahamas)、[安提瓜](https://en.wikipedia.org/wiki/Antigua)、[圣卢西亚](https://en.wikipedia.org/wiki/St._Lucia)、[特立尼达](https://en.wikipedia.org/wiki/Trinidad)等基地的九十九年免租租约换取美国在英国各属地的土地赠款，用于建立美国海军和空军基地，从而获得50艘驱逐舰、[牙买加](https://en.wikipedia.org/wiki/Jamaica)和[英属圭亚那](https://en.wikipedia.org/wiki/British_Guiana)。
+	- ### 3日
+		- 希特勒推迟了对英国的入侵，因为德国空军未能打破英国的防御。然而，对即将到来的入侵的恐惧继续困扰着英国。
+	- ### 6日
+		- 6[卡罗尔国王](https://en.wikipedia.org/wiki/Carol_II_of_Romania)让位给他的儿子[迈克尔，](https://en.wikipedia.org/wiki/Michael_I_of_Romania)同时由[安东内斯库](https://en.wikipedia.org/wiki/Ion_Antonescu)元帅控制政府。
+	- ### 7日
+		- 在战争的主要误判之一中，德国空军将注意力转移到伦敦，远离英国皇家空军的机场。成功只能以估计有2,000名平民死亡来衡量。其他英国城市受到打击。[闪电战](https://en.wikipedia.org/wiki/The_Blitz)开始。
+	- ### 9日
+		- [西部沙漠战役期间](https://en.wikipedia.org/wiki/Western_Desert_Campaign)，马里奥·贝尔蒂将军在[利比亚的](https://en.wikipedia.org/wiki/Libya)意大利殖民军发动了对埃及的入侵。第一个目标是从利比亚境内的防御阵地向埃及边境推进。英国驻巴勒斯坦托管地特拉维夫被意大利飞机轰炸，造成137人死亡。
+	- ### 10日
+		- [海狮行动](https://en.wikipedia.org/wiki/Operation_Sea_Lion)现在定于9月24日。[意大利空军](https://en.wikipedia.org/wiki/Corpo_Aereo_Italiano)的组建是为了参加[不列颠之战](https://en.wikipedia.org/wiki/Battle_of_Britain)。
+	- ### 13日
+		- 在利比亚境内重新[夺回卡普佐堡](https://en.wikipedia.org/wiki/Fort_Capuzzo)后，意大利殖民军队越过边界进入埃及。意大利人占领了小港口[索卢姆](https://en.wikipedia.org/wiki/Sallum)，但唯一抵抗入侵的是一支轻型英国掩护部队，随着意大利人的推进而撤退。
+	- ### 14日
+		- [海狮行动](https://en.wikipedia.org/wiki/Operation_Sea_Lion)被推迟到9月27日，这是本月的最后一天，潮汐适合入侵。
+	- ### 15日
+		- 德国对英国城市的大规模轰炸；大多数都被赶走了。英国皇家空军开始在不列颠之战中取得胜利。
+	- ### 16日
+		- [1940年选择性训练和服务法案](https://en.wikipedia.org/wiki/Selective_Training_and_Service_Act_of_1940)引入了美国历史上第一次和平时期的[征兵](https://en.wikipedia.org/wiki/Conscription)（这次是针对21至35岁的男性）。当大约五个意大利师在向西迪巴拉尼推进约95公里（59英里）后在一系列武装营地中进行防御时，[意大利对埃及的入侵](https://en.wikipedia.org/wiki/Italian_invasion_of_Egypt)停止了。意大利人从未接近在MersaMatruh的主要英国阵地。
+	- ### 17日
+		- 解码信息现在显示希特勒已推迟海狮行动，直至另行通知。
+	- ### 18日
+		- BBC的法语和荷兰语[广播电台比利时](https://en.wikipedia.org/wiki/Radio_Belgique)广播电台开始从其位于伦敦的基地向被占领的比利时广播。
+	- ### 22日
+		- 大西洋的U型艇损失惨重。日本人占领[法属印度支那](https://en.wikipedia.org/wiki/French_Indochina)；当地的法国行政人员成为唯一的傀儡当局。
+	- ### 23日
+		- 自由的法国和英国军队[试图在](https://en.wikipedia.org/wiki/Battle_of_Dakar)法属西非的达喀尔登陆；维希法国海军连续两天零星开火，远征队被召回。
+	- ### 24日
+		- 柏林遭到英国皇家空军的大规模轰炸。为响应达喀尔，维希法国空军自7月18日以来首次轰炸[直布罗陀](https://en.wikipedia.org/wiki/Military_history_of_Gibraltar_during_World_War_II)。
+	- ### 25日
+		- [维希法国飞机](https://en.wikipedia.org/wiki/Vichy_French_Air_Force)返回直布罗陀进行第二天的轰炸。日本五师进军[河内](https://en.wikipedia.org/wiki/Hanoi)，[法属印度支那](https://en.wikipedia.org/wiki/French_Indochina)。
+	- ### 27日
+		- 德国、意大利和日本在柏林签署[三方协议](https://en.wikipedia.org/wiki/Tripartite_Pact)，承诺互助。出现了一个非正式名称“轴”。
+	- ### 28日
+		- [维德昆·吉斯林](https://en.wikipedia.org/wiki/Vidkun_Quisling)成为挪威国家元首。
+- ## 10月
+	- ### 1日
+		- 中国国民党和中国共产党人在中国南方相互斗争。与此同时，日军在长沙遭遇挫折。
+	- ### 1日-31日
+		- 美国将1921年成立的执行美国各地区行政任务的军区与1932年成立的四个野战军区分开来。
+	- ### 2日
+		- [伦敦](https://en.wikipedia.org/wiki/Bombing_of_London)的轰炸持续了整个月。
+	- ### 3日
+		- [华沙](https://en.wikipedia.org/wiki/Warsaw)的犹太人被指示迁入华沙隔都。
+	- ### 4日
+		- [阿道夫·希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)和[贝尼托·墨索里尼](https://en.wikipedia.org/wiki/Benito_Mussolini)在[布伦纳山口](https://en.wikipedia.org/wiki/Brenner_Pass)会面，讨论战争前景。
+	- ### 7日
+		- 应罗马尼亚9月7日提出的要求，德国[向罗马尼亚部署军事任务，](https://en.wikipedia.org/wiki/Invasion_of_Yugoslavia#Deployment_in_Romania)为罗马尼亚军队提供训练并保卫罗马尼亚油田。
+	- ### 9日
+		- [内维尔·张伯伦](https://en.wikipedia.org/wiki/Neville_Chamberlain)因健康原因从[下议院](https://en.wikipedia.org/wiki/British_House_of_Commons)辞职；[WinstonChurchill](https://en.wikipedia.org/wiki/Winston_Churchill)iselectedheadoftheConservativeParty.。
+	- ### 12日
+		- 德国对英国的任何入侵最早都推迟到1941年春天。
+		- 皇家海军[与](https://en.wikipedia.org/wiki/Battle_of_Cape_Passero_(1940))几艘意大利船只发生冲突并击败了几艘意大利船只，这些船只在前往马耳他执行护航任务后袭击了他们。
+	- ### 13日
+		- 尽管袭击已显着减少，但英国平民仍被德国炸弹炸死。
+	- ### 14日
+		- [巴勒姆站](https://en.wikipedia.org/wiki/Balham_station)灾难。德国炸弹穿透地下32英尺，炸死66人。
+	- ### 15日
+		- [克拉伦斯·艾迪生·戴克斯特拉(ClarenceAddisonDykstra)](https://en.wikipedia.org/wiki/Clarence_Addison_Dykstra)成为美国[兵役](https://en.wikipedia.org/wiki/Selective_Service_System)署署长。
+		- 墨索里尼和他最亲密的顾问决定[入侵希腊](https://en.wikipedia.org/wiki/Battle_of_Greece)。
+	- ### 16日
+		- 草稿注册在美国开始。
+	- ### 19日
+		- 意大利人[弹巴林](https://en.wikipedia.org/wiki/Bombing_of_Bahrain_in_World_War_II)。
+	- ### 20日
+		- 意大利飞机轰炸[埃及开罗](https://en.wikipedia.org/wiki/Cairo,_Egypt)和英属[巴林](https://en.wikipedia.org/wiki/Bahrain)保护国的美国经营的炼油厂。
+	- ### 21日
+		- [利物浦](https://en.wikipedia.org/wiki/Liverpool)第200次遭到轰炸。
+	- ### 23日
+		- [阿道夫·希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)在西法边境附近的亨达耶会见[佛朗哥](https://en.wikipedia.org/wiki/Francisco_Franco)；几乎没有取得任何成就，尤其是希特勒希望说服佛朗哥加入轴心国的战争。
+	- ### 24日
+		- 与佛朗哥会面后，希特勒前往[蒙蒂瓦](https://en.wikipedia.org/wiki/Montoire)，在那里与[菲利普·](https://en.wikipedia.org/wiki/Philippe_P%C3%A9tain)贝当会面，标志着法国与纳粹政权开始有组织的合作。
+		- [意大利空军](https://en.wikipedia.org/wiki/Corpo_Aereo_Italiano)在[不列颠之战中](https://en.wikipedia.org/wiki/Battle_of_Britain)首次行动。
+	- ### 25日
+		- 柏林和汉堡遭到重创。
+	- ### 28日
+		- 凌晨0300左右，意大利驻希腊大使向希腊发出最后通牒，希腊总理[梅塔克萨斯](https://en.wikipedia.org/wiki/Ioannis_Metaxas)回复：“这就是战争”。在[意大利皇家陆军](https://en.wikipedia.org/wiki/Italian_Royal_Army)发射从攻击到希腊[意大利举行的阿尔巴尼亚](https://en.wikipedia.org/wiki/Albania_under_Italy)。希特勒对他的盟友的倡议感到愤怒。
+	- ### 29日
+		- 在此期间，随着U艇数量的增加，护航损失非常严重。
+		- 第一个数字制图美国[选择性服务法案](https://en.wikipedia.org/wiki/Selective_Training_and_Service_Act_of_1940)应征入伍者。
+	- ### 30日
+		- 罗斯福总统在竞选期间承诺不会将“我们的孩子”送入战争。
+	- ### 31日
+		- 华沙区政府将所有居住在华沙的犹太人转移到隔都。
+- ## 11月
+	- ### 1日
+		- 土耳其在意大利-希腊战争中宣布中立。
+	- ### 2日
+		- 意大利继续进军希腊。[Vovousa](https://en.wikipedia.org/wiki/Vovousa)被俘，意大利飞机轰炸了[萨洛尼卡](https://en.wikipedia.org/wiki/Salonika)。
+	- ### 5日
+		- 罗斯福总统赢得第三个任期。英国人认为这次活动有望得到美国的更多帮助。
+		- [HMSJervisBay](https://en.wikipedia.org/wiki/HMS_Jervis_Bay)，一艘商船巡洋舰，在执行护航任务时沉没，但大部分护航舰都逃脱了。损失成为媒体事件。
+	- ### 7日
+		- 很明显，爱尔兰将拒绝允许英国将其港口用作海军基地。
+	- ### 8日
+		- [埃莱亚-卡拉马斯战役](https://en.wikipedia.org/wiki/Battle_of_Elaia%E2%80%93Kalamas)结束，意大利人结束了他们在希腊的徒劳进攻。
+	- ### 9日
+		- 内维尔张伯伦去世。
+	- ### 11日
+		- 英国海军在[塔兰托](https://en.wikipedia.org/wiki/Battle_of_Taranto)对意大利海军发动攻击。[HMSIllustrious的](https://en.wikipedia.org/wiki/HMS_Illustrious_(87))剑鱼轰炸机摧毁了三艘战列舰、两艘巡洋舰和多艘辅助舰艇。该事件确保了英国在地中海的补给线。已经准备[袭击珍珠港](https://en.wikipedia.org/wiki/Attack_on_Pearl_Harbor)的日本军队将研究英国的成功。
+	- ### 12日
+		- 莫洛托夫在柏林会见希特勒和里宾特洛甫。新世界秩序正在讨论中。莫洛托夫表达了苏联对芬兰、保加利亚、罗马尼亚、达达尼尔海峡和博斯普鲁斯海峡的兴趣，但希特勒大谈俄罗斯、德国、意大利和日本之间的全球势力范围。
+		- 在[加蓬战役中](https://en.wikipedia.org/wiki/Battle_of_Gabon)，英国军队从维希法国人手中夺取了中非。
+	- ### 13日
+		- 莫洛托夫再次会见希特勒，要求接受清算芬兰。希特勒现在抵制任何扩大苏联在欧洲影响力的企图。他认为英国已被击败，并把印度提供给苏联。品都斯之[战](https://en.wikipedia.org/wiki/Battle_of_Pindus)以希腊的胜利告终。
+	- ### 14日
+		- [对考文垂的夜袭](https://en.wikipedia.org/wiki/Coventry_Blitz)。[考文垂大教堂](https://en.wikipedia.org/wiki/Coventry_Cathedral)被毁，城市的中世纪中心被夷为平地。希腊对意大利人[的反攻](https://en.wikipedia.org/wiki/Greco-Italian_War#Greek_counter-offensive_(14_November_1940_–_6_January_1941))开始了。
+	- ### 15日
+		- 邀请苏联加入三方条约，分享大英帝国的战利品。华沙的犹太人聚居区与该市的其他地方隔离开来。
+	- ### 16日
+		- 丘吉尔下令将一些在北非的英国军队派往希腊，尽管他的军事领导人担心当前在北非对抗意大利人的行动中需要这些军队。
+	- ### 19日
+		- 希腊人继续前进，并将意大利军队驱逐出希腊领土。
+	- ### 20日
+		- 匈牙利签署[三方协议](https://en.wikipedia.org/wiki/Tripartite_Pact)。
+	- ### 21日
+		- 流亡英国的比利时政府向意大利宣战。
+	- ### 22日
+		- [科里察沦陷](https://en.wikipedia.org/wiki/Korytsa)于希腊人。
+	- ### 23日
+		- [罗马尼亚](https://en.wikipedia.org/wiki/Romania)签署[三方协议](https://en.wikipedia.org/wiki/Tripartite_Pact)。
+	- ### 24日
+		- [斯洛伐克共和国](https://en.wikipedia.org/wiki/Slovak_Republic_(1939%E2%80%931945))签署[三方协议](https://en.wikipedia.org/wiki/Tripartite_Pact)。
+	- ### 25日
+		- 苏联给予她加入三方条约的条件，包括为俄罗斯获得大量新领土。
+	- ### 29日
+		- 对[利物浦的](https://en.wikipedia.org/wiki/Liverpool)大规模夜间轰炸袭击。
+	- ### 30日
+		- 对英格兰南部[南安普敦的](https://en.wikipedia.org/wiki/Southampton)大规模轰炸；第二天晚上这座城市再次遭到袭击，其次是12月2日的[布里斯托尔](https://en.wikipedia.org/wiki/Bristol)和3日的[伯明翰](https://en.wikipedia.org/wiki/Birmingham)。
+- ## 12月
+	- ### 1日
+		- 德国和英国之间整个月都在交换轰炸袭击。先是德国的炸弹，然后是英国的。
+	- ### 1日-8日
+		- 希腊军队继续击退意大利军队，夺取了[波格拉德茨](https://en.wikipedia.org/wiki/Pogradec)、[萨兰达](https://en.wikipedia.org/wiki/Sarand%C3%AB)和[吉诺卡斯特等城市](https://en.wikipedia.org/wiki/Gjirokast%C3%ABr)。
+	- ### 5日
+		- 英国皇家空军轰炸杜塞尔多夫和都灵。
+	- ### 6日-9日
+		- [西部沙漠部队的](https://en.wikipedia.org/wiki/Western_Desert_Force)英印军队发动[罗盘行动](https://en.wikipedia.org/wiki/Operation_Compass)，对埃及的意大利军队发起进攻。意大利人有七个步兵师和[马莱蒂集团](https://en.wikipedia.org/wiki/Maletti_Group)在强化防御阵地。最初的攻击是针对[西迪巴拉尼](https://en.wikipedia.org/wiki/Sidi_Barrani)(SidiBarrani)周围和南部的五个意大利营地发起的。营地被占领，意大利将军[彼得罗·马莱蒂](https://en.wikipedia.org/wiki/Pietro_Maletti)被杀，[马莱蒂集团](https://en.wikipedia.org/wiki/Maletti_Group)、利比亚第1师、利比亚第2师和第4黑衫师几乎被摧毁。其余在埃及的意大利部队被迫向利比亚撤退。
+	- ### 8日
+		- [弗朗西斯科佛朗哥](https://en.wikipedia.org/wiki/Francisco_Franco)排除西班牙参战；直接的结果是希特勒被迫取消对直布罗陀的进攻。
+	- ### 12日
+		- 在北非，超过39,000名意大利人在埃及丢失或被俘。
+	- ### 16日
+		- 第一次英国皇家空军夜袭——德国曼海姆。在北非，英国人在埃及的[索卢姆](https://en.wikipedia.org/wiki/Sallum)指挥并占领利比亚的[卡普佐堡](https://en.wikipedia.org/wiki/Fort_Capuzzo)。
+	- ### 18日
+		- 希特勒发布指令，开始规划德国入侵苏联的[巴巴罗萨行动](https://en.wikipedia.org/wiki/Operation_Barbarossa)。
+	- ### 22日-24日
+		- 轰炸[曼彻斯特](https://en.wikipedia.org/wiki/Manchester_Blitz)。
+	- ### 28日
+		- [希腊-意大利战争](https://en.wikipedia.org/wiki/Greco-Italian_War)继续对意大利人不利，希腊人控制着阿尔巴尼亚大约四分之一的领土。意大利请求德国对希腊人提供军事援助。
+	- ### 29日
+		- 德国对伦敦的大规模空袭；[圣保罗大教堂](https://en.wikipedia.org/wiki/St_Paul%27s_Cathedral)受损。
+# 1941年
+- ## 1月
+	- ### 1日
+		- 对前一晚伦敦爆炸案的调查显示，[老贝利](https://en.wikipedia.org/wiki/Old_Bailey)、[市政厅](https://en.wikipedia.org/wiki/Guildhall,_London)和[克里斯托弗·雷恩](https://en.wikipedia.org/wiki/Christopher_Wren)(ChristopherWren)设计的八座教堂被摧毁或严重损坏。英国皇家空军轰炸德国不来梅的飞机工厂。
+	- ### 2日-4日
+		- [巴迪亚](https://en.wikipedia.org/wiki/Bardia)被英国轰炸机轰炸，被离岸海军舰艇轰炸。
+	- ### 2日
+		- 德国轰炸机，也许不正常，连续第二天晚上轰炸[爱尔兰](https://en.wikipedia.org/wiki/Ireland)。
+	- ### 3日
+		- 英国皇家空军轰炸机袭击德国的不来梅和基尔运河。基尔运河大桥在芬兰轮船Yrsa上遭受直接撞击并倒塌。
+	- ### 5日
+		- [指南针行动](https://en.wikipedia.org/wiki/Operation_Compass)[第十三军](https://en.wikipedia.org/wiki/XIII_Corps_(United_Kingdom))（重新指定的[西部沙漠部队](https://en.wikipedia.org/wiki/Western_Desert_Force)）的澳大利亚军队俘获了意大利控制的[巴迪亚，](https://en.wikipedia.org/wiki/Bardia)并俘虏了45,000名意大利囚犯。下一个目标托布鲁克在70英里外。
+	- ### 6日
+		- 希腊人[向克利苏拉山口前进](https://en.wikipedia.org/wiki/Capture_of_Klisura_Pass)。
+	- ### 7日
+		- 英国和英联邦在北非的攻势逼近托布鲁克；机场被采取。
+	- ### 10日
+		- [Lend-Lease](https://en.wikipedia.org/wiki/Lend-Lease)引入[美国国会](https://en.wikipedia.org/wiki/United_States_Congress)。签署了[德苏边境和商业协定](https://en.wikipedia.org/wiki/German%E2%80%93Soviet_Border_and_Commercial_Agreement)。德国航母光荣号航空母舰，正驶向马耳他。现在很明显，德国空军拥有地中海上空的指挥权。这次袭击也是马耳他未来几个月痛苦的开始。在阿尔巴尼亚的希腊军队占领了具有重要战略意义的克利苏拉山口。
+	- ### 11日
+		- 在伦敦，一枚德国炸弹落在[英格兰银行](https://en.wikipedia.org/wiki/Bank_of_England)外，炸毁了下方的[地铁](https://en.wikipedia.org/wiki/London_Underground)站并留下了一个120英尺的弹坑，造成57人死亡、69人受伤。
+	- ### 12日
+		- [指南针行动](https://en.wikipedia.org/wiki/Operation_Compass)[第十三军的](https://en.wikipedia.org/wiki/XIII_Corps_(United_Kingdom))英国和澳大利亚军队准备进攻意大利控制的[托布鲁克](https://en.wikipedia.org/wiki/Tobruk)。
+	- ### 13日
+		- 德国空军对普利茅斯的夜袭。
+	- ### 14日
+		- VictordeLaveleye在BBC的比利时服务比利时广播电台首次使用“[VforVictory](https://en.wikipedia.org/wiki/V_sign#The_V_for_Victory_campaign_and_the_victory-freedom_sign)”。
+	- ### 15日
+		- 中国国民党和中国共产党之间的竞争更加明显；许多后者被迫放弃武器，当然是不情愿的。
+	- ### 16日
+		- 英国军队从肯尼亚开始对意大利控制的埃塞俄比亚发动[东非反攻](https://en.wikipedia.org/wiki/East_African_Campaign_(World_War_II)#Allied_counter-offensive)的第一次进攻。德国轰炸机轰炸马耳他瓦莱塔，HMSIllustrious再次被击中。
+	- ### 17日
+		- [象岛](https://en.wikipedia.org/wiki/Battle_of_Ko_Chang)海战以[维希法国](https://en.wikipedia.org/wiki/Vichy_French)海军在[法泰战争](https://en.wikipedia.org/wiki/Franco-Thai_War)中的决定性胜利告终。莫洛托夫在莫斯科会见了德国大使舒伦堡。苏联人对他们[加入轴心国的提议](https://en.wikipedia.org/wiki/German-Soviet_Axis_talks)（1940年11月26日）没有收到德国的任何答复感到惊讶。舒伦堡回答说，必须首先与意大利和日本进行讨论。
+	- ### 18日
+		- 对马耳他的空袭越来越集中和强度。
+	- ### 19日
+		- 印度第4和第5师继续英国[在东非的反攻，](https://en.wikipedia.org/wiki/East_African_Campaign_(World_War_II)#Allied_counter-offensive)从苏丹进攻意大利控制的[厄立特里亚](https://en.wikipedia.org/wiki/Eritrea)。希特勒和墨索里尼在贝希特斯加登会面；希特勒同意向北非提供援助。
+	- ### 21日
+		- [指南针行动](https://en.wikipedia.org/wiki/Operation_Compass)[第十三军的](https://en.wikipedia.org/wiki/XIII_Corps_(United_Kingdom))英国和澳大利亚军队完全占领了意大利控制的[托布鲁克](https://en.wikipedia.org/wiki/Tobruk)。有报道称罗马尼亚法西斯分子（“[铁卫军](https://en.wikipedia.org/wiki/Iron_Guard)”）正在布加勒斯特处决犹太人。
+	- ### 23日
+		- HMSIllustrious严重受损，离开马耳他前往亚历山大进行维修。[查尔斯·林德伯格](https://en.wikipedia.org/wiki/Charles_Lindbergh)在[美国国会](https://en.wikipedia.org/wiki/United_States_Congress)作证并建议美国与阿道夫·希特勒谈判达成[中立](https://en.wikipedia.org/wiki/Neutrality_(international_relations))协议。
+	- ### 24日
+		- 驻[肯尼亚](https://en.wikipedia.org/wiki/Kenya)英军继续东非反攻，进攻[意属索马里](https://en.wikipedia.org/wiki/Italian_Somaliland)。
+	- ### 29日
+		- 希腊独裁者[伊奥尼斯·梅塔克萨斯](https://en.wikipedia.org/wiki/Ioannis_Metaxas)(IoannisMetaxas)之死。
+	- ### 30日
+		- 英军在北非拿下[德尔纳](https://en.wikipedia.org/wiki/Derna,_Libya)；托布鲁克以西100英里。
+	- ### 31日
+		- 印度第4师侧翼，然后攻占意大利东非厄立特里亚的阿戈尔达。1,000名意大利军队和43门野战炮被缴获。
+- ## 2月
+	- ### 1日
+		- 海军上将HusbandKimmel被任命为美国太平洋海军司令。
+	- ### 3日
+		- 隆美尔[中将](https://en.wikipedia.org/wiki/Lieutenant-General) 被任命为“德国在非洲的军队”的负责人。这个单位后来被正式指定为“非洲军团”。德国强行恢复皮埃尔·拉瓦尔在维希的办公室。
+	- ### 7日
+		- [指南针行动](https://en.wikipedia.org/wiki/Operation_Compass)经过几天的拼死战斗，在贝达福姆战役期间，一支名为康贝部队的第十三军[飞行纵队](https://en.wikipedia.org/wiki/Flying_column)切断了撤退的意大利第10集团军。意大利人无法突破小规模的封锁力量，英国人接受了班加西及其南部大约130,000名意大利人的投降。
+	- ### 8日
+		- 美国众议院通过租借法案。
+	- ### 9日
+		- 墨索里尼得知德国增援部队正在前往北非的途中。英国军队到达[萨尔瓦多阿盖拉](https://en.wikipedia.org/wiki/El_Agheila)，[昔兰尼加](https://en.wikipedia.org/wiki/Cyrenaica)。英国战列舰炮击[热那亚](https://en.wikipedia.org/wiki/Genoa)，英国飞机攻击[里窝那](https://en.wikipedia.org/wiki/Livorno)。丘吉尔再次恳求美国“给我们工具。”。
+	- ### 10日
+		- 马耳他的关键时期从现在到三月，它每天都在遭受重创。
+	- ### 11日
+		- 非洲军团的成员开始抵达[的黎波里](https://en.wikipedia.org/wiki/Tripoli)，[的黎波里](https://en.wikipedia.org/wiki/Tripolitania)。英国军队进入[意大利索马里兰](https://en.wikipedia.org/wiki/Italian_Somaliland)。
+	- ### 14日
+		- 隆美尔抵达的黎波里AfrikaKorps开始向东移动到ElAgheila的英军先遣阵地。北非的英国人已经被一些军队转移到希腊削弱了。
+	- ### 15日
+		- 开始将奥地利犹太人驱逐到波兰的隔都。
+	- ### 19日
+		- “三夜闪电战”的开始[斯旺西](https://en.wikipedia.org/wiki/Swansea)，[南威尔士](https://en.wikipedia.org/wiki/South_Wales)。在这三个晚上的密集轰炸中，斯旺西市中心几乎被完全摧毁。
+	- ### 20日
+		- 德国和英国军队在北非首次对峙——在利比亚西部的ElAgheila。
+	- ### 21日
+		- 德军穿过保加利亚向希腊前线前进。
+	- ### 24日
+		- 德国U艇在大西洋的攻势现在越来越成功。海军上将达尔兰被任命为法国维希政府首脑。
+	- ### 25日
+		- 英国潜艇[HMSUpright](https://en.wikipedia.org/wiki/HMS_Upright_(N89))在北非战役的众多海战之一中[击沉](https://en.wikipedia.org/wiki/Italian_cruiser_Armando_Diaz)了意大利巡洋舰ArmandoDiaz。意大利索马里兰的首都[摩加迪沙](https://en.wikipedia.org/wiki/Mogadishu)在东非战役期间被英国军队占领。
+	- ### 28日
+		- 英国皇家空军飞机轰炸厄立特里亚的阿斯马拉。
+- ## 3月
+	- ### 1日
+		- 希特勒下令扩建[奥斯威辛](https://en.wikipedia.org/wiki/Auschwitz)集中营，由指挥官[鲁道夫霍斯管理](https://en.wikipedia.org/wiki/Rudolf_H%C3%B6ss)。保加利亚正式签署[三方协议](https://en.wikipedia.org/wiki/Tripartite_Pact)。
+	- ### 4日
+		- 英国突击队袭击了挪威[纳尔维克的](https://en.wikipedia.org/wiki/Narvik)石油设施。英国在利比亚的军事力量正在减少，因为一些人被派去协助希腊人与接近的德国军队进行新的战斗。南斯拉夫的摄政王保罗[同意](https://en.wikipedia.org/wiki/Yugoslav_accession_to_the_Tripartite_Pact#4_March_1941)加入轴心国协定。
+	- ### 7日
+		- 第一批英国军队在希腊比雷埃夫斯登陆。
+	- ### 8日
+		- 伦敦的另一次轰炸，值得注意的是[白金汉宫](https://en.wikipedia.org/wiki/Buckingham_Palace)被击中。
+	- ### 9日
+		- 阿尔巴尼亚前线的[意大利春季攻势](https://en.wikipedia.org/wiki/Italian_Spring_Offensive)开始。
+	- ### 10日
+		- 英国和意大利军队在厄立特里亚发生短暂冲突。朴茨茅斯在德国空军又一夜猛烈轰炸后遭受了重大伤亡。
+	- ### 11日
+		- 美国总统[富兰克林·德拉诺·罗斯福](https://en.wikipedia.org/wiki/Franklin_Delano_Roosevelt)签署《[租借法案》](https://en.wikipedia.org/wiki/Lend_Lease)（现已获得国会全体通过），允许英国、中国和其他盟国购买军事装备并将付款推迟到战后。
+	- ### 12日
+		- 德国装甲车抵达北非，为德国的第一次重大攻势提供重型装甲。
+	- ### 13日
+		- 德国空军在格拉斯哥和[克莱德河沿岸](https://en.wikipedia.org/wiki/River_Clyde)的航运业大举进攻。
+	- ### 17日
+		- 本周大西洋中部的车队损失惨重。美利坚合众国将其军区转变为防御司令部，将军区一词重新分配为野战军的中级战地司令部。
+	- ### 19日
+		- 今年迄今为止最严重的伦敦轰炸，燃烧弹造成严重破坏；普利茅斯和布里斯托尔再次遭到轰炸。
+	- ### 20日
+		- 意大利春季攻势在损失惨重且几乎没有进展后被取消。
+	- ### 21日
+		- 南斯拉夫内阁辞职以抗议保罗亲王与纳粹的协议。街头示威发生，表达了对德国的深深厌恶。
+	- ### 24日
+		- 隆美尔在他的第一次进攻中进攻并重新占领了利比亚的[阿赫拉](https://en.wikipedia.org/wiki/El_Agheila)。英国撤退并在三周内被赶回埃及。
+	- ### 25日
+		- 在意大利MTMS[Decima的MAS](https://en.wikipedia.org/wiki/Decima_MAS)沉重巡洋舰[HMS约克（90）](https://en.wikipedia.org/wiki/HMS_York_(90))，一辆大罐车（挪威伯里克利），另一油轮和货船[苏达湾](https://en.wikipedia.org/wiki/Suda_Bay)，[克里特岛](https://en.wikipedia.org/wiki/Crete)。
+	- ### 27日
+		- 在军队政变推翻亲德摄政王政府后，[彼得](https://en.wikipedia.org/wiki/Peter_II_of_Yugoslavia)王储成为南斯拉夫的彼得二世并控制南斯拉夫。日本间谍[吉川武夫](https://en.wikipedia.org/wiki/Takeo_Yoshikawa)抵达[夏威夷檀香山，](https://en.wikipedia.org/wiki/Honolulu,_Hawaii)开始研究[珍珠港的](https://en.wikipedia.org/wiki/Pearl_Harbor)美国舰队。希特勒命令他的军事领导人计划入侵南斯拉夫。这一决定的结果之一将是入侵苏联的关键时间延迟。从[苏丹](https://en.wikipedia.org/wiki/Sudan)推进的英军在厄立特里亚赢得了决定性[的克伦战役](https://en.wikipedia.org/wiki/Battle_of_Keren)。[马塔潘角海战](https://en.wikipedia.org/wiki/Battle_of_Cape_Matapan)英国海军在希腊南部附近遇到一支意大利舰队。战斗一直持续到29日。
+	- ### 31日
+		- [非洲军团](https://en.wikipedia.org/wiki/Afrika_Korps)继续德国在北非的攻势；位于ElAgheila以北的[MersaBrega](https://en.wikipedia.org/wiki/Mersa_Brega)被占领。
+- ## 4月
+	- ### 1日
+		- 英国在利比亚埃尔阿盖拉失利后撤退。隆美尔大吃一惊，决定继续进攻。本月对英国城市的猛烈轰炸仍在继续，车队损失依然惨重。在[伊拉克](https://en.wikipedia.org/wiki/Kingdom_of_Iraq)，亲[德的](https://en.wikipedia.org/wiki/Nazi_Germany) [拉希德·阿里](https://en.wikipedia.org/wiki/Rashid_Ali_Al-Gaylani)和“[黄金广场](https://en.wikipedia.org/wiki/Golden_Square_(Iraq))”的其他成员发动[军事](https://en.wikipedia.org/wiki/Military_coup) 政变，[推翻](https://en.wikipedia.org/wiki/1941_Iraqi_coup_d%27%C3%A9tat)亲英的[摄政王](https://en.wikipedia.org/wiki/Regent) [阿卜杜勒-伊拉的政权](https://en.wikipedia.org/wiki/%27Abd_al-Ilah)。拉希德·阿里称自己为“国防政府”的首长。
+	- ### 2日
+		- 在占领阿格达比亚后，隆美尔决定占领整个利比亚，并将他的军队向班加西移动。所有昔兰尼语（利比亚）似乎都准备好了。
+	- ### 3日
+		- 在伊拉克建立了一个支持轴心国的政府。英国布里斯托尔再次遭受重创。英军从意大利军队手中夺取厄立特里亚首都阿斯马拉。隆美尔攻下利比亚班加西；托布鲁克在接下来的七个月内仍将是一个威胁。
+	- ### 4日
+		- 隆美尔现在位于ElAgheila以东约200英里，前往托布鲁克和埃及。大西洋护航队在U-boat战役中遭受了近50%的损失。
+	- ### 6日
+		- 德国、匈牙利和意大利的军队，通过罗马尼亚和匈牙利，开始入侵[南斯拉夫](https://en.wikipedia.org/wiki/Invasion_of_Yugoslavia)和[希腊](https://en.wikipedia.org/wiki/Battle_of_Greece)。意大利军队被赶出[埃塞俄比亚的亚的斯亚贝巴](https://en.wikipedia.org/wiki/Addis_Ababa)。隆美尔军队的北翼占领了利比亚海岸的德尔纳。南翼向[Mechili](https://en.wikipedia.org/wiki/Mechili)移动，并在8日占据它。
+	- ### 7日
+		- 德国空军开始对南斯拉夫贝尔格莱德进行为期两天的进攻；希特勒对南斯拉夫的抵抗感到愤怒。
+	- ### 8日
+		- 德国人占领希腊的萨洛尼卡。
+	- ### 9日
+		- 9月9日巴勒斯坦领导人[阿明·侯赛尼](https://en.wikipedia.org/wiki/Amin_al-Husseini)在巴格达的广播讲话中发布了[一项教令](https://en.wikipedia.org/wiki/Fatwa)，呼吁穆斯林对英国进行[圣战](https://en.wikipedia.org/wiki/Jihad)。
+	- ### 10日
+		- [格陵兰](https://en.wikipedia.org/wiki/Greenland)被美国占领。在“自由丹麦”获批后，美国将建立海空军基地以对抗U艇战争。[南斯拉夫王国](https://en.wikipedia.org/wiki/Kingdom_of_Yugoslavia)还在被侵略的同时被德国和意大利瓜分了。在[克罗地亚独立国](https://en.wikipedia.org/wiki/Independent_State_of_Croatia)（NezavisnaDržava赫尔瓦，NDH）下建立[安特帕韦利奇](https://en.wikipedia.org/wiki/Ante_Paveli%C4%87)和他[Ustaša](https://en.wikipedia.org/wiki/Usta%C5%A1a)。德军包围利比亚托布鲁克港，开始围城；隆美尔的一些军队向东移动，占领了与埃及接壤的卡普佐堡和索伦堡。驱逐舰[USSNiblack](https://en.wikipedia.org/wiki/USS_Niblack_(DD-424))袭击了一艘刚刚击沉荷兰货轮的德国U型潜艇。该Niblack当它发现U艇准备攻击时，它正在接载货轮的幸存者。该Niblack [攻击与深水炸弹和赶走了U型艇](https://en.wikipedia.org/wiki/First_American_shots_fired_in_World_War_II)。
+	- ### 11日
+		- 虽然仍然是一个“中立”国家，但美国开始在北大西洋进行海上巡逻。德国空军对英国考文垂和伯明翰的大规模袭击。
+	- ### 12日
+		- 南斯拉夫[贝尔格莱德](https://en.wikipedia.org/wiki/Belgrade)投降。德国人在[维维战役中](https://en.wikipedia.org/wiki/Battle_of_Vevi_(1941))击败了英联邦军队。
+	- ### 13日
+		- 马耳他再次被轰炸；它仍然是德国在地中海供应运动的眼中钉。日本和苏联[签署了中立条约](https://en.wikipedia.org/wiki/Soviet%E2%80%93Japanese_Neutrality_Pact)。在伊拉克，一小部分英国增援部队被空运到[英国皇家空军谢巴](https://en.wikipedia.org/wiki/RAF_Shaibah)。
+	- ### 14日
+		- 隆美尔攻击托布鲁克，但被迫折返。其他攻击，同样是失败，发生在16日和30日。德国[LSSAH](https://en.wikipedia.org/wiki/LSSAH)装甲师[抓住](https://en.wikipedia.org/wiki/Battle_of_Kleisoura_Pass)战略Kleisoura通行证，并开始削减退线在阿尔巴尼亚的希腊军队。
+	- ### 15日
+		- 英国驱逐舰拦截了一支AfrikaKorps车队并击沉了所有五艘运输船和三艘覆盖的意大利驱逐舰。
+	- ### 16日
+		- 德国空军对[北爱尔兰贝尔法斯特进行了](https://en.wikipedia.org/wiki/Belfast)猛烈袭击。德国人继续向南入侵南斯拉夫；他们切断了在阿尔巴尼亚的希腊军队，该军队在1月份对意大利人取得了显着的成功。
+	- ### 17日
+		- 南斯拉夫投降。流亡政府在伦敦成立。彼得王逃往希腊。
+	- ### 18日
+		- 希腊总理[亚历山德罗斯·科里齐斯](https://en.wikipedia.org/wiki/Alexandros_Koryzis)(AlexandrosKoryzis)自杀；英国计划大规模撤离希腊。在伊拉克，根据[英伊条约](https://en.wikipedia.org/wiki/Anglo-Iraqi_Treaty_(1930))，来自印度的英军开始在[巴士拉](https://en.wikipedia.org/wiki/Basra)登陆。
+	- ### 19日
+		- 伦敦遭受了战争中最严重的空袭之一；St.Paul's受到轻微损坏，但仍然关闭；其他雷恩教堂遭到严重破坏或摧毁。
+	- ### 21日
+		- 由于德军的进攻切断了他们的撤退，在阿尔巴尼亚的希腊军队的223,000名希腊士兵投降。
+	- ### 22日
+		- 英国军队和平民开始撤离希腊。
+	- ### 23日
+		- 希腊政府撤离到[克里特岛](https://en.wikipedia.org/wiki/Crete)，丘吉尔决心保卫克里特岛。
+	- ### 24日
+		- 英国和澳大利亚军队从希腊撤离到克里特岛和埃及。普利茅斯遭受了德国空军第三个晚上的猛烈轰炸。
+	- ### 25日
+		- 隆美尔在靠近埃及边境的哈法亚山口取得重要胜利。在澳大利亚将军乔治·瓦西(GeorgeVasey)坚定地声称不会被打败之后，轴心国军队在[温泉关](https://en.wikipedia.org/wiki/Battle_of_Thermopylae_(1941))击败了英联邦军队。
+	- ### 26日
+		- 隆美尔进攻加扎拉防线，越过埃及；然而，托布鲁克继续持有。
+	- ### 27日
+		- [雅典](https://en.wikipedia.org/wiki/Athens)被德国军队占领。希腊投降。[飓风](https://en.wikipedia.org/wiki/Hawker_Hurricane)战斗机作为被围困的马耳他的重要增援部队交付。
+	- ### 30日
+		- 隆美尔被命令在又一次失败后停止对托布鲁克的攻击。在[伊拉克](https://en.wikipedia.org/wiki/Kingdom_of_Iraq)，伊拉克武装部队占领了[皇家空军哈巴尼亚](https://en.wikipedia.org/wiki/RAF_Habbaniya)空军基地以南的高原，并通知基地指挥官所有飞行应立即停止。
+- ## 5月
+	- ### 1日
+		- 德国空军对[利物浦](https://en.wikipedia.org/wiki/Liverpool)的七夜轰炸开始，造成广泛的破坏。
+	- ### 2日
+		- 英国皇家空军哈巴尼亚空军对围攻他们的伊拉克军队发动先发制人的空袭，[英伊战争](https://en.wikipedia.org/wiki/Anglo-Iraqi_War)开始。
+	- ### 3日
+		- 在埃塞俄比亚的英军开始投资[安巴阿拉吉](https://en.wikipedia.org/wiki/Amba_Alagi)[，奥斯塔公爵](https://en.wikipedia.org/wiki/Amedeo,_3rd_Duke_of_Aosta)领导下的意大利军队在那里占据了防御阵地。
+	- ### 4日
+		- 北爱尔兰的贝尔法斯特经历了德国空军的又一次猛烈轰炸。
+	- ### 5日
+		- 从被迫逃离之日起五年后，海尔·塞拉西[皇帝](https://en.wikipedia.org/wiki/Emperor_of_Ethiopia) 凯旋地进入了他的首都亚的斯亚贝巴。
+	- ### 6日
+		- 随着伊拉克空军的大部分被摧毁并面临定期轰炸，围攻哈巴尼亚皇家空军的伊拉克地面部队撤退。德国空军安排向伊拉克派遣一支小部队。
+	- ### 7日
+		- 在哈巴尼亚和[费卢杰之间](https://en.wikipedia.org/wiki/Fallujah)，两支伊拉克纵队在空旷的地方被大约四十架英国飞机袭击；伊拉克人伤亡惨重。
+	- ### 8日
+		- 大西洋上的重大护航损失仍在继续；然而，一艘U型潜艇([U-110](https://en.wikipedia.org/wiki/German_submarine_U-110_(1940)))被英国海军俘获，另一台“谜”机器的副本被发现并保存。这将有助于扭转大西洋之战的命运。德国空军轰炸[诺丁汉](https://en.wikipedia.org/wiki/Nottingham)。
+	- ### 9日
+		- 日本斡旋在东京签署的和平条约结束了[法泰战争](https://en.wikipedia.org/wiki/French-Thai_War)。
+	- ### 10日
+		- [鲁道夫·赫斯](https://en.wikipedia.org/wiki/Rudolf_Hess)从飞机上跳下来后在[苏格兰](https://en.wikipedia.org/wiki/Scotland)被捕；他自封的使命是与英国和解。英国[下议院](https://en.wikipedia.org/wiki/British_House_of_Commons)在一次空袭中被[德国空军](https://en.wikipedia.org/wiki/Luftwaffe)摧毁。其他目标是赫尔、利物浦、贝尔法斯特和苏格兰克莱德河的造船区。随着德国将注意力转向苏联和东方，闪电战即将结束。“十万人罢工”在列日开始1940年德国入侵周年纪念日在比利时举行。它很快蔓延到全省，直到近70,000名工人罢工。
+	- ### 12日
+		- 英国皇家空军轰炸了几个德国城市，包括汉堡、埃姆登和柏林。苏联承认[拉希德·阿里](https://en.wikipedia.org/wiki/Rashid_Ali)在伊拉克的“国防政府”。
+	- ### 13日
+		- 南斯拉夫陆军上校[德拉扎·米哈伊洛维奇](https://en.wikipedia.org/wiki/Dra%C5%BEa_Mihailovi%C4%87)召集“[祖国南斯拉夫军队](https://en.wikipedia.org/wiki/Chetniks)”，主要由塞尔维亚人组成，但也包括斯洛文尼亚人、波斯尼亚人和克罗地亚人。Mihailović波斯尼亚跋涉[RavnaGora酒店](https://en.wikipedia.org/wiki/Ravna_Gora_(highland))在塞尔维亚中部，并发出起义称为大有作为的反对占领者斗争和恢复[南斯拉夫君主制](https://en.wikipedia.org/wiki/Kingdom_of_Yugoslavia)。在这一点上，[约瑟普·布罗兹·铁托](https://en.wikipedia.org/wiki/Josip_Broz_Tito)和[南斯拉夫游击队](https://en.wikipedia.org/wiki/Yugoslav_Partisans)与苏联结盟，苏联对德国仍然友好。德军“[伊拉克飞行司令部](https://en.wikipedia.org/wiki/Fliegerf%C3%BChrer_Irak)”（[FliegerführerIrak](https://en.wikipedia.org/wiki/Fliegerf%C3%BChrer_Irak)）大军抵达[摩苏尔](https://en.wikipedia.org/wiki/Mosul)支持拉希德·阿里的伊拉克政府。
+	- ### 14日
+		- 英国皇家空军被授权在叙利亚和维希法国机场对德国飞机采取行动。
+	- ### 15日
+		- 第一个[平民公共服务](https://en.wikipedia.org/wiki/Civilian_Public_Service)营地在美国向[依良心拒服兵役者](https://en.wikipedia.org/wiki/Conscientious_objectors)开放。
+	- ### 16日
+		- 隆美尔在哈法亚山口击败了反击“简洁”。双方交换对卡普佐堡和哈法亚山口的控制权。
+	- ### 17日
+		- 哈巴尼亚地区的英军向伊拉克控制的费卢杰推进，并在五天的战斗中将伊拉克人赶出。
+	- ### 18日
+		- 意大利东非总督奥斯塔公爵在安巴阿拉吉投降。
+	- ### 20日
+		- 德国伞兵[登陆克里特岛](https://en.wikipedia.org/wiki/Battle_of_Crete)；克里特岛之战将持续7天。德国驻伊拉克军事特派团，[SpecialStaffF](https://en.wikipedia.org/wiki/Special_Staff_F)（[SonderstabF](https://en.wikipedia.org/wiki/Special_Staff_F)），是为了支持“中东的[阿拉伯自由运动](https://en.wikipedia.org/wiki/Arab_nationalism)”而设立的。SonderstabF将包括FliegerführerIrak和其他已经在伊拉克的部队。
+	- ### 21日
+		- 美国商船[SSRobinMoor](https://en.wikipedia.org/wiki/SS_Robin_Moor)被[德国潜艇U-69](https://en.wikipedia.org/wiki/German_submarine_U-69_(1940))击沉。这一事件震惊了全国，罗斯福总统很快宣布了“无限的国家紧急状态”。埃塞俄比亚的意大利总督投降了。残余的意大利军队继续战斗。
+	- ### 22日
+		- 伊拉克军队在费卢杰反击英军未果，遭到拒绝。
+	- ### 23日
+		- 德国独裁者阿道夫·希特勒发布“[第30号元首指令](https://en.wikipedia.org/wiki/F%C3%BChrer_Directive_No._30)”，支持“中东阿拉伯自由运动”，他的“反对英国的天然盟友”。
+	- ### 24日
+		- 英国战列舰[HMS胡德](https://en.wikipedia.org/wiki/HMS_Hood_(51))由来自德国战舰强大的齐射击沉[俾斯麦](https://en.wikipedia.org/wiki/German_battleship_Bismarck)在北大西洋。希腊政府离开克里特岛前往[开罗](https://en.wikipedia.org/wiki/Cairo)。
+	- ### 26日
+		- 在北大西洋，皇家海军[剑鱼式鱼雷轰炸机](https://en.wikipedia.org/wiki/Fairey_Swordfish)从航母舰载机[HMS皇家方舟](https://en.wikipedia.org/wiki/HMS_Ark_Royal_(91))致命的削弱[俾斯麦](https://en.wikipedia.org/wiki/German_battleship_Bismarck)的鱼雷攻击。
+	- ### 27日
+		- 德国战舰[俾斯麦号](https://en.wikipedia.org/wiki/German_battleship_Bismarck)被[击沉](https://en.wikipedia.org/wiki/Last_battle_of_the_battleship_Bismarck)在北大西洋由皇家海军，逃避战术后，并迫使它注入源源不断的系列圆形运动的损伤转向系统。来自哈巴尼亚地区的英军开始向巴格达推进，并在四天内从西部和北部接近这座城市。12架[意大利](https://en.wikipedia.org/wiki/Kingdom_of_Italy_(1861-1946))飞机抵达摩苏尔与伊拉克飞行员会合。
+	- ### 28日
+		- 英国和英联邦军队开始撤离克里特岛。到了这个日期，很明显“简洁”操作失败了。
+	- ### 29日
+		- 德国军事任务的成员逃离伊拉克。
+	- ### 30日
+		- 当英国军队接近巴格达时，支持轴心国的伊拉克领导人[拉希德·阿里·盖伊拉尼](https://en.wikipedia.org/wiki/Rashid_Ali_al-Gaylani)及其支持者，包括[阿明·侯赛尼](https://en.wikipedia.org/wiki/Amin_al-Husseini)，逃离伊拉克。
+	- ### 31日
+		- 德国空军轰炸中立的爱尔兰[首都](https://en.wikipedia.org/wiki/Dublin)；无数平民伤亡。巴格达市长向英军投降，结束了英伊战争。
+- ## 6月
+	- ### 1日
+		- 英联邦军队完成[从克里特岛](https://en.wikipedia.org/wiki/Battle_of_Crete)的撤军。衣服的定量配给始于英国。
+	- ### 2日
+		- [塔斯基吉空军](https://en.wikipedia.org/wiki/Tuskegee_Airmen)开始组建第99战斗机中队。
+	- ### 4日
+		- [德皇威廉二世](https://en.wikipedia.org/wiki/Kaiser_William_II)在流亡荷兰时去世。
+	- ### 6日
+		- 更多英国战斗机交付马耳他；德国空军的袭击仍在继续。
+	- ### 8日
+		- 维希法国控制的[叙利亚](https://en.wikipedia.org/wiki/Syria)和[黎巴嫩](https://en.wikipedia.org/wiki/Lebanon)被澳大利亚、英国、自由法国和印度军队入侵。
+	- ### 9日
+		- 芬兰开始动员，准备抵御苏联侵略者的可能袭击。英国人和澳大利亚人渡过[利塔尼河](https://en.wikipedia.org/wiki/Battle_of_the_Litani_River)，击退了维希法国军队。在这场战斗中，带领澳大利亚部队的[摩舍达彦](https://en.wikipedia.org/wiki/Moshe_Dayan)失明了。当他的故事在一天后发表时，他就成名了。
+	- ### 10日
+		- 东非最后一个意大利控制的港口[阿萨布](https://en.wikipedia.org/wiki/Assab)陷落。
+	- ### 13日
+		- 澳大利亚人继续通过维希法国的防御作战，向贝鲁特挺进，赢得了[杰津战役](https://en.wikipedia.org/wiki/Battle_of_Jezzine_(1941))。苏联开始将立陶宛人驱逐到西伯利亚。驱逐持续了五天，共有35,000名立陶宛人，其中7000名犹太人。
+	- ### 14日
+		- 在美国的所有德国和意大利资产都被冻结。10,100人来自[爱沙尼亚](https://en.wikipedia.org/wiki/Estonia)，15,000[拉脱维亚](https://en.wikipedia.org/wiki/Latvia)34,000（或35,000开始前一天）从[立陶宛](https://en.wikipedia.org/wiki/Lithuania)被苏联流放到西伯利亚。
+	- ### 15日
+		- 英国[战斧行动](https://en.wikipedia.org/wiki/Operation_Battleaxe)试图解除[对托布鲁克](https://en.wikipedia.org/wiki/Siege_of_Tobruk)的围攻，但未能成功。英国人在绰号“地狱火通道”的[哈法亚山口](https://en.wikipedia.org/wiki/Halfaya_Pass)惨败。
+	- ### 16日
+		- 所有德国和意大利驻美国领事馆被勒令关闭，其工作人员在7月10日前离开美国。
+	- ### 20日
+		- 根据[美国战争部](https://en.wikipedia.org/wiki/United_States_Department_of_War)的指示，从今天起，迄今为止被称为[美国陆军航空队](https://en.wikipedia.org/wiki/United_States_Army_Air_Corps)的大部分人员都被纳入了成为[美国陆军航空队的部队](https://en.wikipedia.org/wiki/United_States_Army_Air_Forces)，与[一般](https://en.wikipedia.org/wiki/General_officer) [亨利·阿诺德](https://en.wikipedia.org/wiki/Henry_H._Arnold)作为它的第一任指挥官。作为改组的一部分，[空军总司令部](https://en.wikipedia.org/wiki/United_States_Army_Air_Corps#GHQ_Air_Force)更名为空军作战司令部；新的陆军航空兵组织由空军作战司令部（其作战分队）组成，现有的后勤和训练分队保留了旧的“美国陆军航空队”名称。
+	- ### 22日
+		- 德国以[巴巴罗萨行动](https://en.wikipedia.org/wiki/Operation_Barbarossa)入侵苏联，这是一项针对列宁格勒、莫斯科和高加索南部油田的三管齐下的行动，结束了[莫洛托夫-里宾特洛甫条约](https://en.wikipedia.org/wiki/Molotov%E2%80%93Ribbentrop_Pact)。罗马尼亚站在德国一边入侵欧洲的苏联西南边境地区。在利比亚/埃及的英国将军Wavell被Auchinleck将军取代。[六月](https://en.wikipedia.org/wiki/Lithuanian_1941_independence)在[立陶宛](https://en.wikipedia.org/wiki/Lithuania)反苏起义。
+	- ### 23日
+		- 在深夜，希特勒第一次来到他的总部[拉斯滕堡](https://en.wikipedia.org/wiki/Rastenburg)，[东普鲁士](https://en.wikipedia.org/wiki/East_Prussia)，代号为“[狼穴](https://en.wikipedia.org/wiki/Wolf%27s_Lair)”（Wolfsschanze）。从这个日期到1944年11月20日，希特勒将在狼穴度过800天。德国军队在[阿布林加](https://en.wikipedia.org/wiki/Ablinga)屠杀42人。
+	- ### 24日
+		- 德军进入[维尔纽斯](https://en.wikipedia.org/wiki/Vilnius)。立陶宛民兵继续疯狂射击，在街上杀死了数十名犹太人，平民观众为他们加油。德国人绑架了60名犹太人“人质”和30名波兰人。只返回6个。
+	- ### 25日
+		- 苏联轰炸赫尔辛基。芬兰宣布芬兰和苏联之间进入战争状态。
+	- ### 26日
+		- 匈牙利和[斯洛伐克](https://en.wikipedia.org/wiki/Slovakia)向苏联宣战。
+	- ### 27日
+		- 对立陶宛的占领正式开始。
+	- ### 28日
+		- 意大利占领的[阿尔巴尼亚](https://en.wikipedia.org/wiki/Albania)向苏联宣战。德军在[明斯克](https://en.wikipedia.org/wiki/Minsk)和[比亚韦斯托克](https://en.wikipedia.org/wiki/Bia%C5%82ystok)附近包围了300,000名红军。
+	- ### 29日
+		- 芬兰和德国军队开始对抗苏联的[北极狐](https://en.wikipedia.org/wiki/Operation_Arctic_Fox)行动。[纽伦堡法律](https://en.wikipedia.org/wiki/Nuremberg_Laws)强加于[立陶宛](https://en.wikipedia.org/wiki/Lithuania)和[维尔纽斯的](https://en.wikipedia.org/wiki/Vilnius)犹太人。
+- ## 7月
+	- ### 1日
+		- 奥金莱克将军在北非接替韦维尔将军。英国在中东赢得了对法国的巴尔米拉战役。所有21岁以上的美国男性都必须登记参加选秀。德军在前往列宁格勒的途中占领了拉脱维亚首都[里加](https://en.wikipedia.org/wiki/Riga)。
+	- ### 2日
+		- [波那利大](https://en.wikipedia.org/wiki/Ponary_massacre)屠杀开始，两周前开始的[巴巴罗萨行动中](https://en.wikipedia.org/wiki/Operation_Barbarossa)俘获的苏联战俘被枪杀，数百名犹太人从[维尔纽斯](https://en.wikipedia.org/wiki/Vilnius)被驱逐到维尔纽斯波纳赖郊区附近的苏联挖的油箱坑，他们在那里被枪杀或活埋。幸存者的报告被认为是幻觉。大规模驱逐和射杀犹太人一直持续到1943年。匈牙利军队接管了斯坦尼斯瓦夫和现在乌克兰境内的其他城镇。
+	- ### 3日
+		- 斯大林宣布“焦土政策”。美利坚合众国提升其[美国陆军](https://en.wikipedia.org/wiki/United_States_Army)总司令部，以指挥和计划[内政区内的](https://en.wikipedia.org/wiki/American_Theater_(1939%E2%80%931945))军事行动。意大利将军[PietroGazzera](https://en.wikipedia.org/wiki/Pietro_Gazzera)在[吉马地区](https://en.wikipedia.org/wiki/Jimma)投降了他的残余部队。英国军队采用勇敢和冒险的侧翼战术赢得[代尔祖尔战役](https://en.wikipedia.org/wiki/Battle_of_Deir_ez-Zor_(1941))。
+	- ### 4日
+		- [大规模屠杀波兰科学家和作家](https://en.wikipedia.org/wiki/Massacre_of_Lw%C3%B3w_professors)，通过致力于[德国军队](https://en.wikipedia.org/wiki/Nazi_Germany)中的被俘波兰城市[利沃夫](https://en.wikipedia.org/wiki/Lvov)。[VilnaGhetto](https://en.wikipedia.org/wiki/Vilna_Ghetto)第一个[Judenrat](https://en.wikipedia.org/wiki/Judenrat)成立。 美国情报部门通过其MAGIC拦截发现日本攻击东南亚的计划。
+	- ### 5日
+		- 英国政府排除与纳粹德国谈判和平的可能性。英国鱼雷飞机在托布鲁克击沉了一艘意大利驱逐舰；20日，又有两艘沉没。德军到达[第聂伯河](https://en.wikipedia.org/wiki/Dnieper)。[厄瓜多尔-秘鲁战争](https://en.wikipedia.org/wiki/Ecuadorian%E2%80%93Peruvian_War)冲突始于南美洲。
+	- ### 7日
+		- 在[冰岛的](https://en.wikipedia.org/wiki/Iceland)英国和加拿大军队被美国人取代。
+	- ### 8日
+		- 南斯拉夫，凡尔赛条约成立的国家，被轴心国解散成其组成部分；特别重要的是克罗地亚，它有一个支持轴心国的政府。英国和苏联签署共同防御协议，承诺不与德国签署任何形式的单独和平协议。
+	- ### 9日
+		- [维捷布斯克](https://en.wikipedia.org/wiki/Vitebsk)（白俄罗斯）被俘；这开启了[斯摩棱斯克战役，](https://en.wikipedia.org/wiki/Battle_of_Smolensk_(1941))这是一个重要的通信中心，被德国最高统帅部视为“通往莫斯科的门户”。
+	- ### 10日
+		- 对拉脱维亚的占领正式开始。古德里安的装甲队攻下[明斯克](https://en.wikipedia.org/wiki/Minsk)；德国人进一步深入乌克兰。[在俄罗斯](https://en.wikipedia.org/wiki/Italian_Expeditionary_Corps_in_Russia)的意大利远征军部队开始抵达。来自[克罗地亚独立国的](https://en.wikipedia.org/wiki/Independent_State_of_Croatia)一个军团是意大利军团的一部分。
+	- ### 12日
+		- 维希法国在叙利亚投降。英国和苏联签署的援助协定。
+	- ### 13日
+		- 在塞尔维亚的保皇党开始起义后不久，[黑山](https://en.wikipedia.org/wiki/Montenegro)就开始了反对轴心国的[起义](https://en.wikipedia.org/wiki/Uprising_in_Montenegro_(1941))。可疑的共产主义计划煽动平行的起义和内战。
+	- ### 15日
+		- 红军在列宁格勒附近开始对国防军的反击。[阿根廷海军空军基地](https://en.wikipedia.org/wiki/Naval_Station_Argentia)设在纽芬兰；几年后，它将成为盟军的重要中转站。
+	- ### 16日
+		- 古德里安率领的德国装甲车抵达斯摩棱斯克，增加了对莫斯科的风险。
+	- ### 17日
+		- 德国空军对马耳他的空袭仍在继续。
+	- ### 19日
+		- 丘吉尔最著名的“[V形标志](https://en.wikipedia.org/wiki/V-sign)”与[贝多芬第五交响曲](https://en.wikipedia.org/wiki/Symphony_No._5_(Beethoven))的主题一起被非正式地用作盟军信号。
+	- ### 20日
+		- [海因里希·希姆莱](https://en.wikipedia.org/wiki/Heinrich_Himmler)访问[明斯克](https://en.wikipedia.org/wiki/Minsk)和[卢布林](https://en.wikipedia.org/wiki/Lublin)附近的苏联战俘，并决定在卢布林附近建造被称为[马伊达内克集中营的集中营](https://en.wikipedia.org/wiki/Majdanek_concentration_camp)。
+	- ### 21日
+		- 德国空军对莫斯科进行猛烈打击。
+	- ### 26日
+		- 为响应日本对[法属印度支那的](https://en.wikipedia.org/wiki/French_Indochina)占领，美国总统[富兰克林·D·罗斯福](https://en.wikipedia.org/wiki/Franklin_Delano_Roosevelt)下令没收日本在美国的所有资产。德国订购一个[犹太居民委员会](https://en.wikipedia.org/wiki/Judenrat)成立于[斯坦尼斯拉沃，加利西亚](https://en.wikipedia.org/wiki/Stanis%C5%82aw%C3%B3w_Ghetto)。它由以色列塞巴尔德领导。
+	- ### 28日
+		- 日军占领法属印度支那南部。日本允许维希法国殖民政府继续管理[越南](https://en.wikipedia.org/wiki/Vietnam)。法国的镇压仍在继续。维希法国人也同意日本人占领印度支那的基地。德国人向斯摩棱斯克发起进攻，同时巩固了他们在波罗的海国家的存在；波罗的海国家的本土犹太人正在被灭绝。日元变得毫无价值，日元债券的价值下降到其在华尔街的面值的20%到30%。
+	- ### 31日
+		- 在[阿道夫·希特勒的](https://en.wikipedia.org/wiki/Adolf_Hitler)指示下，[纳粹](https://en.wikipedia.org/wiki/Nazism)官员[赫尔曼·戈林](https://en.wikipedia.org/wiki/Hermann_G%C3%B6ring)命令[党卫军](https://en.wikipedia.org/wiki/SS)将军[莱因哈德·海德里希](https://en.wikipedia.org/wiki/Reinhard_Heydrich)“尽快向我提交一份行政材料和财政措施的总体计划，以实现犹太人问题的[最终解决方案](https://en.wikipedia.org/wiki/Final_solution)。”日本海军省指责美国入侵其在[宿毛](https://en.wikipedia.org/wiki/Sukumo,_K%C5%8Dchi)湾的领海，然后逃离。没有提供任何证据来证明这一指控。[LewisB.Hershey](https://en.wikipedia.org/wiki/Lewis_B._Hershey)接替克拉伦斯·戴克斯特拉(ClarenceDykstra)担任美国选择性服务系统主管。[厄瓜多尔-秘鲁战争](https://en.wikipedia.org/wiki/Ecuadorian%E2%80%93Peruvian_War)结束。
+- ## 8月
+	- ### 1日
+		- 美国宣布对“侵略者”实施石油禁运。日本占领[越南西贡](https://en.wikipedia.org/wiki/Saigon)。德国人宣布加利西亚为[总督府](https://en.wikipedia.org/wiki/General_Government)的第五区。
+	- ### 2日
+		- 挪威所有民用收音机被德国占领没收。党卫军指挥官[汉斯克鲁格](https://en.wikipedia.org/wiki/Hans_Krueger)（另一种拼写，汉斯克鲁格）下令在斯坦尼斯瓦夫登记数百名犹太和波兰[知识分子](https://en.wikipedia.org/wiki/Intelligentsia)，他们随后遭到酷刑和谋杀。这是加利西亚“一枪一犹太人”方法的首次实施。
+	- ### 5日
+		- 德军将红军困在斯摩棱斯克的口袋里，带走30万士兵；奥利尔被带走了。
+	- ### 6日
+		- 德国人占领斯摩棱斯克。美国和英国政府警告日本不要入侵[泰国](https://en.wikipedia.org/wiki/Thailand)。
+	- ### 7日
+		- 德军抵达[芬兰湾](https://en.wikipedia.org/wiki/Gulf_of_Finland)，将爱沙尼亚的苏军一分为二，塔林的部队与苏军的其余战线分离。
+	- ### 9日
+		- [富兰克林·德拉诺·罗斯福](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)和[丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)相遇在[NSArgentia](https://en.wikipedia.org/wiki/Naval_Station_Argentia)，[纽芬兰](https://en.wikipedia.org/wiki/Dominion_of_Newfoundland)。在[大西洋宪章](https://en.wikipedia.org/wiki/Atlantic_Charter)创建，签署，并释放到世界媒体。
+	- ### 11日
+		- 马耳他被车队解救。位于长江上游的国民党名义上的首都重庆遭受了数天的猛烈轰炸。
+	- ### 12日
+		- 希特勒不顾将军的建议，将部分部队从莫斯科前线转移到列宁格勒和克里米亚攻势。
+	- ### 18日
+		- [阿道夫·希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)的命令暂时停止[纳粹德国](https://en.wikipedia.org/wiki/Nazi_Germany)的系统[安乐死](https://en.wikipedia.org/wiki/Euthanasia)的[精神病患者](https://en.wikipedia.org/wiki/Mental_illness)和[阻碍](https://en.wikipedia.org/wiki/Disability)因抗议。然而，[ActionT4](https://en.wikipedia.org/wiki/Action_T4)行动的毕业生随后被转移到[集中营](https://en.wikipedia.org/wiki/Concentration_camp)，在那里他们继续从事他们的行业。
+	- ### 20日
+		- 德国第250步兵师，绰号“蓝色师”，由西班牙志愿者组成，并开始向波兰转移。
+	- ### 22日
+		- 德军逼近列宁格勒；公民继续即兴建造防御工事。
+	- ### 25日
+		- 英苏军队[入侵](https://en.wikipedia.org/wiki/Anglo-Soviet_invasion_of_Iran) [伊朗，](https://en.wikipedia.org/wiki/Iran)以拯救[阿巴丹](https://en.wikipedia.org/wiki/Abadan)油田和通往苏联的重要铁路和路线，以供应战争物资。
+	- ### 27日
+		- 德国U型潜艇U-570被迫在冰岛浮出水面，被英国皇家海军俘获，后来作为[HMSGraph](https://en.wikipedia.org/wiki/HMS_Graph)投入战斗。
+	- ### 28日
+		- 德国军队在爱沙尼亚志愿者的帮助下从苏联手中夺取了[塔林](https://en.wikipedia.org/wiki/Tallinn)。在[远离城市的苏联撤离](https://en.wikipedia.org/wiki/Soviet_evacuation_of_Tallinn)对其造成重大人员伤亡超过12,000人死亡，数十船在芬兰和德国水雷击沉领域的[芬兰湾](https://en.wikipedia.org/wiki/Gulf_of_Finland)。爱沙尼亚剩余的苏军撤退到[西爱沙尼亚群岛](https://en.wikipedia.org/wiki/West_Estonian_archipelago)。
+	- ### 30日
+		- [设得兰群岛巴士](https://en.wikipedia.org/wiki/Shetland_bus)，一个秘密的特种作战小组，在设得兰群岛、苏格兰和德国占领的挪威之间建立了永久联系，开始运营。
+	- ### 31日
+		- 第一个迹象表明列宁格勒“围攻”正在开始。维尔纽斯的“[大挑衅](https://en.wikipedia.org/wiki/Vilna_Ghetto#Establishment)”——德国军队发动犹太人袭击他们的士兵，导致对旧犹太区居民的“报复”大规模逮捕，三天后在[波纳利](https://en.wikipedia.org/wiki/Ponary_massacre)被谋杀。
+- ## 9月
+	- ### 1日
+		- 在北方芬兰军队的协助下，列宁格勒现在完全被切断了。在米兰·内迪奇领导下的塞尔维亚军事指挥官领土内成立了一个亲德[的救国政府](https://en.wikipedia.org/wiki/Government_of_National_Salvation)。所有在德国统治下的犹太人都必须佩戴黄色的大卫之星徽章，上面清楚地写着“犹太人”，禁止与非犹太人同住或结婚，未经书面同意，禁止离开他们的城镇，根据纽伦堡1935年法律。海德里希签署的法令将于9月19生效。
+	- ### 3日
+		- 在维尔纽斯旧犹太区的所有3,700名居民与Judenrat的10名成员一起在[Ponary死亡地点](https://en.wikipedia.org/wiki/Ponary_massacre)被谋杀。一位幸存者对波纳里事件的首次书面证词。维尔纳隔都犹太人被要求交出任何金银。
+	- ### 4日
+		- [USS格里尔](https://en.wikipedia.org/wiki/USS_Greer_(DD-145))成为第一艘美国军舰在战争后由德国U艇发射，尽管美国是一个中立的力量。结果两国之间的紧张局势加剧。美国现在致力于西半球和欧洲之间的护航任务。
+	- ### 6日
+		- 6,000名犹太人向波纳里开枪，这是在下达形成[维尔纳隔](https://en.wikipedia.org/wiki/Vilna_Ghetto)都的命令后的第二天。日本帝国会议决定，如果石油禁运不解除，日本将与美国开战。
+	- ### 7日
+		- 柏林受到英国皇家空军轰炸机的重创。
+	- ### 8日
+		- [列宁格勒围城战](https://en.wikipedia.org/wiki/Siege_of_Leningrad)开始——开始测量“900天”的合理日期。德国军队开始围攻苏联第二大城市[列宁格勒](https://en.wikipedia.org/wiki/Saint_Petersburg)；斯大林下令将[伏尔加德国人](https://en.wikipedia.org/wiki/Volga_Germans)驱逐到西伯利亚。
+	- ### 10日
+		- 德国军队现在已经[完全包围了基辅](https://en.wikipedia.org/wiki/Battle_of_Kiev_(1941))。
+	- ### 11日
+		- [富兰克林·D·罗斯福](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)命令[美国海军](https://en.wikipedia.org/wiki/United_States_Navy)在任何船只或车队受到威胁时立即射击。
+	- ### 15日
+		- [爱沙尼亚的](https://en.wikipedia.org/wiki/Estonia)“自治政府”，由[哈尔马梅](https://en.wikipedia.org/wiki/Hjalmar_M%C3%A4e)领导，由德国军政府任命。[维尔纳贫民窟的](https://en.wikipedia.org/wiki/Vilna_Ghetto)“移动行动”。在隔都区之间“移动”的3,500名犹太人中，只有550人到达。其余2,950名犹太人在[波纳利大屠杀](https://en.wikipedia.org/wiki/Ponary_massacre)死亡现场被枪杀。
+	- ### 16日
+		- [礼萨·巴列维](https://en.wikipedia.org/wiki/Reza_Pahlavi_of_Iran)，[伊朗国王](https://en.wikipedia.org/wiki/Pahlavi_dynasty)被迫倾向于他的儿子的辞职[伊朗的穆罕默德礼巴列维](https://en.wikipedia.org/wiki/Mohammad_Reza_Pahlavi_of_Iran)来自英国和苏联的压力下。
+	- ### 19日
+		- 德军占领基辅现在是正式的。红军在保卫苏维埃乌克兰主城的过程中伤亡惨重。
+	- ### 26日
+		- 美国海军司令部下令对美国水域的轴心国航运发动全面战争。
+	- ### 27日
+		- 第一艘“[自由舰](https://en.wikipedia.org/wiki/Liberty_Ship)”[SSPatrickHenry](https://en.wikipedia.org/wiki/SS_Patrick_Henry)下水。自由舰将被证明是盟军补给系统的主要部分。
+		- [民族解放阵线](https://en.wikipedia.org/wiki/National_Liberation_Front_(Greece))（EAM）在希腊成立。
+	- ### 28日-29日
+		- 反对希腊北部保加利亚占领的[戏剧起义](https://en.wikipedia.org/wiki/Drama_Uprising)开始。它被迅速镇压，约有3,000人被处决作为报复。
+	- ### 28日
+		- 德国党卫军在苏维埃乌克兰基辅郊区的[巴比亚尔](https://en.wikipedia.org/wiki/Babi_Yar)杀害了超过30,000名犹太人，以回应德国人将其归咎于当地犹太人的破坏活动。
+- ## 10月
+	- ### 1日
+		- [Majdanek集中营](https://en.wikipedia.org/wiki/Majdanek_concentration_camp)（德语Konzentrationslager[Lublin](https://en.wikipedia.org/wiki/Lublin)）和后来成为[灭绝营](https://en.wikipedia.org/wiki/Extermination_camp)的开放。[VilnaGhetto](https://en.wikipedia.org/wiki/Vilna_Ghetto) [YomKippur](https://en.wikipedia.org/wiki/Yom_Kippur)Aktions（德国歼灭行动）开始。在四次单独的事件中，有3,900名犹太人在[波纳利大屠杀](https://en.wikipedia.org/wiki/Ponary_massacre)死亡现场被绑架、枪杀和杀害，接下来的两天内还有2,000名犹太人在那里被绑架和杀害。
+	- ### 2日
+		- [台风行动](https://en.wikipedia.org/wiki/Operation_Typhoon)——德国“中央”部队开始全面进攻莫斯科。领导首都保卫战的是格奥尔基·朱可夫将军，他在俄罗斯远东地区和列宁格勒的抗日战争中指挥作战，已成为苏联英雄。
+	- ### 3日
+		- [圣雄甘地](https://en.wikipedia.org/wiki/Mahatma_Gandhi)敦促他的追随者开始消极抵抗英国在印度的统治。
+	- ### 5日
+		- 德国军队从苏联手中夺取了爱沙尼亚的[萨列马岛](https://en.wikipedia.org/wiki/Saaremaa)。
+	- ### 7日
+		- 皇家空军夜间轰炸柏林、鲁尔和科隆，但损失惨重。
+	- ### 8日
+		- 在入侵苏联南部的过程中，德国占领了马里乌波尔，到达了[亚速海](https://en.wikipedia.org/wiki/Sea_of_Azov)。然而，有迹象表明，由于阴雨天气为坦克和人员造成泥泞的道路，入侵开始陷入困境。
+	- ### 10日
+		- 德军在维亚斯马附近（斯摩棱斯克以东）包围了约66万红军；有些人对战争的结束做出了热烈的预测。
+	- ### 12日
+		- 12[HMSArkRoyal](https://en.wikipedia.org/wiki/HMS_Ark_Royal_(91))向马耳他交付了一个飓风战斗机中队。[血腥星期天屠杀](https://en.wikipedia.org/wiki/Stanis%C5%82aw%C3%B3w_Ghetto#Bloody_Sunday_massacre)在[斯坦尼斯拉沃](https://en.wikipedia.org/wiki/Stanis%C5%82aw%C3%B3w_Ghetto)，8000-12000犹太人被围捕并拍摄成坑国家知识产权局（[乌克兰警察](https://en.wikipedia.org/wiki/Ukrainische_Hilfspolizei)）连同德国均匀党卫军士兵。[Judenrat的](https://en.wikipedia.org/wiki/Judenrat)Tenenbaum博士英勇地拒绝了豁免的提议，并与其他人一起被枪杀。德军占领了爱沙尼亚的最后一个苏联主要前哨[希乌马岛](https://en.wikipedia.org/wiki/Hiiumaa)。
+	- ### 13日
+		- 随着曾经泥泞的地面变硬，德国人试图再次驶向莫斯科。
+	- ### 14日
+		- 莫斯科方面的气温进一步下降；大雪接踵而至，使德国坦克无法移动。
+	- ### 15日
+		- 德国人在莫斯科开车。
+	- ### 16日
+		- 苏联政府开始东迁至伏尔加河畔的[萨马拉](https://en.wikipedia.org/wiki/Samara,_Russia)市，但[斯大林](https://en.wikipedia.org/wiki/Joseph_Stalin)仍留在莫斯科。莫斯科市民为即将到来的围攻疯狂地建造坦克陷阱和其他防御工事。[维尔纳贫民窟](https://en.wikipedia.org/wiki/Vilna_Ghetto)行动。3000名犹太人被杀。
+	- ### 17日
+		- 驱逐舰[USSKearny(DD-432)](https://en.wikipedia.org/wiki/USS_Kearny_(DD-432))在冰岛附近被[U-568](https://en.wikipedia.org/wiki/German_submarine_U-568)鱼雷击中并损坏，造成11名水手死亡。他们是这场战争中第一批美军伤亡人员。日本首相近野文麻太子政府垮台，太平洋和平的希望渺茫。
+	- ### 18日
+		- 红军增援部队从西伯利亚抵达莫斯科；斯大林确信日本不会从东方进攻苏联。一般[东条英机](https://en.wikipedia.org/wiki/Hideki_T%C5%8Dj%C5%8D)成为第40届[日本首相](https://en.wikipedia.org/wiki/Prime_Minister_of_Japan)。
+	- ### 19日
+		- 莫斯科宣布正式“戒严状态”；这座城市处于戒严状态。
+		- [德国占领的卢森堡](https://en.wikipedia.org/wiki/German_occupation_of_Luxembourg_during_World_War_II)被宣布为“[Judenrein](https://en.wikipedia.org/wiki/Judenrein)”（“清除犹太人”）。
+	- ### 20日
+		- 中校[卡尔·霍茨](https://en.wikipedia.org/wiki/Karl_Hotz)，在德国指挥官[南特](https://en.wikipedia.org/wiki/Nantes)，由电阻杀害;50名人质被枪杀以示报复。该事件将成为未来占领政策的典范。
+	- ### 21日
+		- 新西兰军队登陆埃及并占领[卡普佐堡](https://en.wikipedia.org/wiki/Fort_Capuzzo)。美日在华盛顿的谈判似乎走向了失败。
+	- ### 22日
+		- [敖德萨大屠杀](https://en.wikipedia.org/wiki/1941_Odessa_massacre)开始并持续了两天。25,000至34,000名犹太人被带领进行长长的游行，在反坦克沟中被枪杀，或在挤进四栋建筑物后被活活烧死。大屠杀开始于那天之后，苏联人放置的延迟炸弹在罗马尼亚总部造成67人死亡，其中包括罗马尼亚指挥官Glogojeanu将军。35,000名犹太人被驱逐到[Slobodka](https://en.wikipedia.org/wiki/Vilijampol%C4%97)隔都，并在寒冷的环境中待了10天。许多人在寒冷中死去。
+	- ### 24日
+		- 在[乌克兰](https://en.wikipedia.org/wiki/Ukraine)，重要的矿业和工业中心[哈尔科夫落入](https://en.wikipedia.org/wiki/First_Battle_of_Kharkov)德国[南方集团军的](https://en.wikipedia.org/wiki/Army_Group_South)手中。[VilnaGhetto](https://en.wikipedia.org/wiki/Vilna_Ghetto)GelbscheinIAktion。包括140名老人或瘫痪者在内的5,500名犹太人被杀。
+	- ### 27日
+		- 德国[南方集团军群](https://en.wikipedia.org/wiki/Army_Group_South)抵达克里米亚的[塞瓦斯托波尔](https://en.wikipedia.org/wiki/Sevastopol)，但“北方”部队的坦克被泥泞拖慢或完全停下。
+	- ### 28日
+		- [Bolekhiv第一次行动大屠杀——1000](https://en.wikipedia.org/wiki/Holocaust_in_Bolekhiv)名主要犹太人被列入名单，受到酷刑，第二天，800名幸存的犹太人被枪杀或活埋在附近的森林中。1996年重新发现的暴行和证词导致帕特里克·德斯布瓦(PatrickDesbois)在1941年和1942年对德国“一颗子弹，一个犹太人”的灭绝方法进行了研究。
+	- ### 29日
+		- [维尔纳贫民窟](https://en.wikipedia.org/wiki/Vilna_Ghetto)II清算。2,500名犹太人被杀。
+	- ### 30日
+		- [富兰克林·德拉诺·罗斯福](https://en.wikipedia.org/wiki/Franklin_Delano_Roosevelt)批准向苏联提供10亿美元的[租借](https://en.wikipedia.org/wiki/Lend-Lease)援助。
+	- ### 31日
+		- 驱逐舰鲁本·詹姆斯[号](https://en.wikipedia.org/wiki/USS_Reuben_James_(DD-245))在冰岛附近被[埃里希·托普](https://en.wikipedia.org/wiki/Erich_Topp)的[U-552](https://en.wikipedia.org/wiki/German_submarine_U-552)鱼雷击中，造成100多名美国海军水手死亡。这是美国“中立军舰”的首次损失。
+- ## 11月
+	- ### 1日
+		- 富兰克林·D·罗斯福总统宣布美国海岸警卫队现在将接受美国海军的指挥，这是一种通常仅在战时保留的权力过渡。
+	- ### 2日
+		- 南斯拉夫的政治冲突，铁托(JosipBroz)领导下的左派与[德拉扎·米哈伊洛维奇](https://en.wikipedia.org/wiki/Dra%C5%BEa_Mihailovi%C4%87)(DražaMihailović)领导下的更保守的塞尔维亚人竞争。
+	- ### 3日
+		- 德国人拿下[库尔斯克](https://en.wikipedia.org/wiki/Kursk)。[VilnaGhetto](https://en.wikipedia.org/wiki/Vilna_Ghetto)GelbscheinIIIAktion。1,200名犹太人被杀。
+	- ### 4日
+		- 裕仁批准偷袭珍珠港。
+	- ### 6日
+		- 苏联领导人[约瑟夫斯大林](https://en.wikipedia.org/wiki/Joseph_Stalin)在他的三年统治期间仅第二次向苏联发表讲话（第一次是当年早些时候的7月2日）。他表示，尽管迄今为止德国的袭击有350,000名士兵丧生，但德国人已经损失了450万名士兵（严重夸张），而且苏联的胜利已近在咫尺。
+	- ### 7日
+		- 皇家空军夜间轰炸柏林、鲁尔和科隆，但损失惨重。
+	- ### 9日
+		- [力K](https://en.wikipedia.org/wiki/Force_K)，包括[轻型巡洋舰](https://en.wikipedia.org/wiki/Light_cruiser) [HMS佩内洛普](https://en.wikipedia.org/wiki/HMS_Penelope_(97))和[HMS极光](https://en.wikipedia.org/wiki/HMS_Aurora_(12))和[驱逐舰](https://en.wikipedia.org/wiki/Destroyer) [HMS活泼](https://en.wikipedia.org/wiki/HMS_Lively_(G40))和[HMS兰斯](https://en.wikipedia.org/wiki/HMS_Lance_(G87))，击沉7艘商船，油轮和1级[驱逐舰](https://en.wikipedia.org/wiki/Destroyer)期间[杜伊斯堡康宏战役](https://en.wikipedia.org/wiki/Battle_of_the_Duisburg_Convoy)。
+	- ### 12日
+		- [莫斯科之战——莫斯科](https://en.wikipedia.org/wiki/Battle_of_Moscow)周围的气温降至负12°C，苏联首次派出[滑雪部队](https://en.wikipedia.org/wiki/Ski_warfare)对抗城市附近冰冻的德军。HMSArkRoyal向马耳他交付了一个飓风战斗机中队。
+	- ### 13日
+		- 随着泥泞的地面再次结冰，德国人开始对莫斯科发起新的攻势。[航空母舰](https://en.wikipedia.org/wiki/Aircraft_carrier) [HMSArkRoyal](https://en.wikipedia.org/wiki/HMS_Ark_Royal_(91))被[德国潜艇U-81用](https://en.wikipedia.org/wiki/German_submarine_U-81_(1941))鱼雷击中并于次日沉没。
+	- ### 15日
+		- 德国人在莫斯科开车。
+	- ### 17日
+		- 美国驻日本大使[约瑟夫·格鲁](https://en.wikipedia.org/wiki/Joseph_Grew)(JosephGrew)电报[国务院](https://en.wikipedia.org/wiki/United_States_Department_of_State)，称日本计划对夏威夷[珍珠港](https://en.wikipedia.org/wiki/Pearl_Harbor)发动袭击（他的电报被忽略）。[恩斯特·乌德特](https://en.wikipedia.org/wiki/Ernst_Udet)(ErnstUdet)是德国空军生产和发展部的负责人，因认为无法正确执行任务而自杀。
+	- ### 18日
+		- [十字军行动](https://en.wikipedia.org/wiki/Operation_Crusader)英联邦和其他盟军进入[利比亚](https://en.wikipedia.org/wiki/Libya)并至少暂时解除[托布鲁克](https://en.wikipedia.org/wiki/Siege_of_Tobruk)之围。
+	- ### 19日
+		- 澳大利亚[轻型巡洋舰](https://en.wikipedia.org/wiki/Light_cruiser) [HMAS悉尼](https://en.wikipedia.org/wiki/HMAS_Sydney_(1934))和[德国的辅助巡洋舰Kormoran](https://en.wikipedia.org/wiki/German_auxiliary_cruiser_Kormoran)下沉相互关西澳大利亚海岸。HMASSydney上的所有648名船员都失踪了。
+	- ### 21日
+		- [罗斯托夫战役](https://en.wikipedia.org/wiki/Battle_of_Rostov_(1941))——[顿河畔罗斯托夫](https://en.wikipedia.org/wiki/Rostov-on-Don)，南部战线的重要枢纽，被德军占领。
+	- ### 22日
+		- 英国向芬兰发出最后通牒，要求结束与苏联的战争或与盟国开战。隆美尔开始反攻，夺回了盟军[几天前](https://en.wikipedia.org/wiki/Sidi_Rezegh)占领的西迪·雷泽格（托布鲁克以南）。英国坦克损失惨重。
+	- ### 23日
+		- 隆美尔的进攻继续围绕西迪·雷泽格展开；盟军损失继续增加。美国与荷兰流亡政府达成协议，美国人占领[苏里南](https://en.wikipedia.org/wiki/Suriname)以保护那里的[铝土矿](https://en.wikipedia.org/wiki/Bauxite)。
+	- ### 24日
+		- 美国拨款[租借](https://en.wikipedia.org/wiki/Lend-Lease)到[自由法国](https://en.wikipedia.org/wiki/Free_French)。隆美尔开始了令人惊讶的15英里进军埃及；他没有遇到任何反对意见。
+	- ### 25日
+		- [U型331](https://en.wikipedia.org/wiki/German_submarine_U-331)汇的英国战舰[HMS巴勒姆](https://en.wikipedia.org/wiki/HMS_Barham_(04))同时覆盖地中海车队。
+	- ### 26日
+		- 一支由33艘军舰和辅助舰艇（包括6艘航空母舰）组成的日本攻击舰队从日本北部驶向夏威夷群岛。[赫尔纸条](https://en.wikipedia.org/wiki/Hull_note)最后通牒是美国交给日本的。在短暂冲入埃及之后，隆美尔撤退到巴迪亚加油；正是在这个短暂的撤退期间，当第8集团军与被围困者会面时，托布鲁克才暂时得到解脱。
+	- ### 28日
+		- [罗斯托夫战役](https://en.wikipedia.org/wiki/Battle_of_Rostov_(1941))——[顿河畔罗斯托夫](https://en.wikipedia.org/wiki/Rostov-on-Don)被红军收复。[莫斯科之战](https://en.wikipedia.org/wiki/Battle_of_Moscow)——德国装甲车在莫斯科郊区，靠近莫斯科-伏尔加运河。东非最后一支意大利武装部队在[贡德尔](https://en.wikipedia.org/wiki/Battle_of_Gondar)投降。
+- ## 12月
+	- ### 1日
+		- 马耳他标志着其第1,000次轰炸袭击。[FiorelloH.LaGuardia](https://en.wikipedia.org/wiki/Fiorello_H._La_Guardia)发布了[第9号行政命令，](https//en.wikisource.org/wiki/Administrative_Order_9)为美国海岸巡逻队创建了[民用空中巡逻队](https://en.wikipedia.org/wiki/Civil_Air_Patrol)，并任命了其国家指挥官[约翰·F·库里](https://en.wikipedia.org/wiki/John_F._Curry)少将。大约20,000名Stanisławów犹太人下令进入[隔都地区](https://en.wikipedia.org/wiki/Stanis%C5%82aw%C3%B3w_Ghetto)，非犹太人下令离开。党卫军军官[卡尔·耶格](https://en.wikipedia.org/wiki/Karl_J%C3%A4ger)报告“立陶宛清除了犹太人”，但有一些例外。
+	- ### 2日-3日
+		- 苏联在爱沙尼亚（[奥斯穆萨岛](https://en.wikipedia.org/wiki/Osmussaar)）和芬兰（汉科海[军基地](https://en.wikipedia.org/wiki/Hanko_Naval_Base)）的最后一个前哨基地撤离到[喀琅施塔得](https://en.wikipedia.org/wiki/Kronstadt)。
+	- ### 2日
+		- 东条首相拒绝来自美国的“和平触角”。一支德国战斗工兵巡逻队抵[达希姆基](https://en.wikipedia.org/wiki/Khimki)镇，同时在莫斯科周围的俄罗斯防线中寻找一个漏洞。这是德国人最接近俄罗斯首都的进展。
+	- ### 3日
+		- 莱利福克斯船被日本轰炸。英国的战船征兵现在包括所有18至50岁的男性。女性不会被忽视，因为她们将在消防队和妇女辅助团体中服役。
+		- [比利时刚果](https://en.wikipedia.org/wiki/Belgian_Congo)当地矿工开始总罢工。
+		- 3[VilnaGhetto](https://en.wikipedia.org/wiki/Vilna_Ghetto)'CriminalAktion'开始，第二天继续。157名犹太人在波纳利被杀。
+	- ### 4日
+		- 莫斯科锋面的温度降至-31°F(-37°C)。德国的攻击失败了。
+		- 日本海军和陆军继续向珍珠港和东南亚进军。
+	- ### 5日
+		- 德国人取消了对莫斯科的攻击，距离现在11英里；苏联在暴风雪中进行反击。
+	- ### 6日
+		- 英国对芬兰宣战。[VilnaGhetto](https://en.wikipedia.org/wiki/Vilna_Ghetto)GestapoWorkersAktion–800名犹太人和10名波兰人在[波纳利大屠杀](https://en.wikipedia.org/wiki/Ponary_massacre)死亡现场被枪杀。气温为负23摄氏度。
+	- ### 7日
+		- （12月8日，亚洲时区）日本偷袭[珍珠港](https://en.wikipedia.org/wiki/Pearl_Harbor)，对美英宣战，入侵[泰国](https://en.wikipedia.org/wiki/Thailand)和[英属马来亚](https://en.wikipedia.org/wiki/British_Malaya)，空袭[关岛](https://en.wikipedia.org/wiki/Guam)、香港、[菲律宾](https://en.wikipedia.org/wiki/Philippines)、上海、新加坡和[威克岛](https://en.wikipedia.org/wiki/Wake_Island)。加拿大对日本宣战。澳大利亚对日本宣战。阿道夫·希特勒签署了德国的[“黑夜和雾](https://en.wikipedia.org/wiki/Nacht_und_Nebel)令”，规定在西欧消除反纳粹抵抗活动。
+	- ### 8日
+		- 美国、英国、荷兰和新西兰对日本宣战。日军占领吉尔伯特群岛（包括塔拉瓦）。菲律宾的[克拉克机场](https://en.wikipedia.org/wiki/Clark_Air_Base)遭到轰炸，许多美国飞机在地面上被摧毁。日本军队在[巴蜀战役中](https://en.wikipedia.org/wiki/Battle_of_Prachuab_Khirikhan)进攻泰国。[香港战役](https://en.wikipedia.org/wiki/Battle_of_Hong_Kong)开始[马来亚战役](https://en.wikipedia.org/wiki/Malayan_Campaign)开始。卡缅卡、[卡拉斯拉雅波利亚纳](https://en.wikipedia.org/wiki/Lobnya)和[克留科沃](https://en.wikipedia.org/wiki/Kryukovo_District)被红军解放。德国人再也没有进入[莫斯科的](https://en.wikipedia.org/wiki/Moscow,_Russia)火炮射程。
+	- ### 9日
+		- [中国](https://en.wikipedia.org/wiki/The_Republic_of_China)正式对日宣战，尽管自1937年7月7日卢沟桥事变以来两国之间一直处于事实上的战争状态。中国也对德国和意大利宣战。澳大利亚正式对日本宣战。南非对日本宣战，从1941年12月8日起被视为战争。
+		- 9月9日在比利时刚果的伊丽莎白[维尔](https://en.wikipedia.org/wiki/Union_Mini%C3%A8re_du_Haut_Katanga)，罢工的矿工矿工在谈判期间被比利时殖民部队开火，估计造成70人死亡。
+	- ### 10日
+		- 英国战列巡洋舰[HMSRepulse](https://en.wikipedia.org/wiki/HMS_Repulse_(1916))和战列舰[HMS威尔士亲王](https://en.wikipedia.org/wiki/HMS_Prince_of_Wales_(53))号[在](https://en.wikipedia.org/wiki/Sinking_of_Prince_of_Wales_and_Repulse)南中国海的日本空袭中沉没。
+	- ### 11日
+		- 德国和意大利对美国宣战。美国作为回报，对德国和意大利宣战。美军击退了日本在[威克岛的](https://en.wikipedia.org/wiki/Wake_Island)登陆企图。日本侵略缅甸。
+	- ### 12日
+		- 日军登陆菲律宾南部群岛——萨马岛、霍洛岛、棉兰老岛。美国和英国在[罗马尼亚](https://en.wikipedia.org/wiki/Romania)向美国和英国宣战后对罗马尼亚宣战；印度向日本宣战。美国扣押法国船只[诺曼底号](https://en.wikipedia.org/wiki/SS_Normandie)。
+	- ### 13日
+		- 保加利亚和匈牙利对美英宣战，美英互惠互利，对保加利亚和匈牙利宣战。山下将军领导下的日本人继续向马来亚进军。在本间将军的领导下，日本军队在菲律宾北部稳固地建立起来。香港受到威胁。
+	- ### 14日
+		- 英国巡洋舰[HMSGalatea](https://en.wikipedia.org/wiki/HMS_Galatea_(71))在亚历山大[港](https://en.wikipedia.org/wiki/German_submarine_U-557)附近被U-557击沉，开始了盟军在海上的一系列失败。
+	- ### 15日
+		- 意大利“[人类鱼雷](https://en.wikipedia.org/wiki/Human_torpedo)”损害两位英国战列舰，[HMS伊丽莎白女王号](https://en.wikipedia.org/wiki/HMS_Queen_Elizabeth_(1913))和[HMS忠烈](https://en.wikipedia.org/wiki/HMS_Valiant_(1914))在亚历山大港。英联邦军队将隆美尔推回加扎拉线。[VilnaGhetto](https://en.wikipedia.org/wiki/Vilna_Ghetto)'Gestapoblock'Aktion。300名犹太人在[波纳利大屠杀](https://en.wikipedia.org/wiki/Ponary_massacre)现场被枪杀。
+	- ### 16日
+		- 隆美尔下令撤退到他于3月开始的ElAgheila。他在等待士兵和坦克的增援。日本入侵[婆罗洲](https://en.wikipedia.org/wiki/Borneo)。德国在莫斯科附近的攻势现在完全停止。
+	- ### 17日
+		- [塞瓦斯托波尔战役](https://en.wikipedia.org/wiki/Battle_of_Sevastopol)开始。
+	- ### 18日
+		- 日军登陆[港岛](https://en.wikipedia.org/wiki/Hong_Kong_Island)。
+	- ### 19日
+		- [希特勒](https://en.wikipedia.org/wiki/Hitler)成为最高[统帅](https://en.wikipedia.org/wiki/Commander-in-Chief)的的[德国军队](https://en.wikipedia.org/wiki/German_Army_(Wehrmacht))。[HMSNeptune](https://en.wikipedia.org/wiki/HMS_Neptune_(20))，领导[K部队](https://en.wikipedia.org/wiki/Force_K)，袭击了一个雷区并与一名幸存者和766名船员一起沉没。
+	- ### 20日
+		- 威克岛之战仍在继续，几艘日本船只沉没或损坏。[StanisławówGhetto](https://en.wikipedia.org/wiki/Stanis%C5%82aw%C3%B3w_Ghetto)从外面正式关闭并用墙壁密封。[维尔纳隔都](https://en.wikipedia.org/wiki/Vilna_Ghetto)400名犹太人在隔都内被立陶宛民兵杀害。
+	- ### 21日
+		- 被围困的列宁格勒的苦难仍在继续；据估计，每天约有3000人死于饥饿和各种疾病。[Bogdanovka](https://en.wikipedia.org/wiki/Bogdanovka)集中营的囚犯被屠杀以平息[斑疹伤寒](https://en.wikipedia.org/wiki/Typhus)的爆发。大约有40,000人死亡。
+	- ### 22日
+		- 日本人在菲律宾吕宋岛北部的林加延湾登陆。在华盛顿特区[举行](https://en.wikipedia.org/wiki/Arcadia_Conference)的阿卡迪亚会议开始，这是英美政治和军事领导人的第一次正式会议。
+	- ### 23日
+		- 日本在[威克岛的](https://en.wikipedia.org/wiki/Wake_Island)第二次登陆尝试成功，美国驻军在经过数小时的战斗后投降。麦克阿瑟将军宣布[马尼拉](https://en.wikipedia.org/wiki/Manila)为“开放城市”。日军登陆[砂拉越](https://en.wikipedia.org/wiki/Sarawak)（婆罗洲）。
+	- ### 24日
+		- 在[菲律宾](https://en.wikipedia.org/wiki/Philippines)，美军撤退到[巴丹半岛](https://en.wikipedia.org/wiki/Bataan_Peninsula)。日本炸弹[仰光](https://en.wikipedia.org/wiki/Yangon)。[纳粹占领的欧洲的](https://en.wikipedia.org/wiki/Ghettos_in_Nazi-occupied_Europe)所有犹太人聚居区都必须从犹太人那里收集所有皮大衣或其他皮草。圣诞节前夕，[自由法国](https://en.wikipedia.org/wiki/Free_France) 从维希法国[解放了](https://en.wikipedia.org/wiki/History_of_Saint_Pierre_and_Miquelon#World_War_II) [圣皮埃尔和密克隆](https://en.wikipedia.org/wiki/Saint_Pierre_and_Miquelon)[岛](https://en.wikipedia.org/wiki/Vichy_France)。
+	- ### 25日
+		- 香港向日本投降。盟军收复[班加西](https://en.wikipedia.org/wiki/Benghazi)。红军和海军两栖部队在克里米亚的刻赤登陆；他们的职业将持续到四月。
+	- ### 27日
+		- 英国和挪威[突击队](https://en.wikipedia.org/wiki/Commandos)突袭了挪威的[Vågsøy](https://en.wikipedia.org/wiki/V%C3%A5gs%C3%B8y)港口，导致希特勒加强驻军和防御。
+	- ### 28日
+		- 日本伞兵在[苏门答腊](https://en.wikipedia.org/wiki/Sumatra)登陆。
+# 1942年
+- ## 1月
+	- ### 1日
+		- 26个盟国在阿卡迪亚会议期间签署了[联合国宣言](https://en.wikipedia.org/wiki/Declaration_by_United_Nations)。
+	- ### 2日
+		- 马尼拉被日军占领。他们还占领了[甲美地海军基地](https://en.wikipedia.org/wiki/Naval_Station_Sangley_Point)，美国和菲律宾军队继续撤退到巴丹。
+	- ### 5日
+		- [朱可夫将军](https://en.wikipedia.org/wiki/Georgy_Zhukov)领导下的红军大攻势开始。
+	- ### 6日
+		- 英国继续向利比亚西部边缘的[ElAgheila](https://en.wikipedia.org/wiki/El_Agheila)进军。
+	- ### 7日
+		- 苏联冬季反攻在将精疲力竭和冻僵的德国军队推回莫斯科62-155英里后停止。“巴巴罗萨行动”失败了。
+	- ### 8日
+		- 日军侵入防御在外部线路[吉隆坡](https://en.wikipedia.org/wiki/Kuala_Lumpur)，[马来西亚](https://en.wikipedia.org/wiki/British_Malaya)。
+	- ### 9日
+		- 日本在婆罗洲的进步几乎没有遭到反对。
+	- ### 10日
+		- 日本对荷兰宣战。
+	- ### 11日
+		- 日军攻占马来亚吉隆坡。
+	- ### 13日
+		- 红军攻占基洛夫和梅迪亚，继续反攻。
+	- ### 15日
+		- 德国当局开始将犹太人从罗兹隔都驱逐到海乌姆诺集中营。
+	- ### 19日
+		- 日军在新加坡北部俘虏了大量英军。
+	- ### 20日
+		- [纳粹](https://en.wikipedia.org/wiki/Nazism)的[万湖会议](https://en.wikipedia.org/wiki/Wannsee_conference)在柏林决定的“[最终解决方案](https://en.wikipedia.org/wiki/Final_solution)的[犹太人问题](https://en.wikipedia.org/wiki/Jewish_Question)”是搬迁，后来灭绝。
+	- ### 21日
+		- 隆美尔的非洲军团在埃尔阿赫拉开始出人意料的反攻；他的部队带着新的增援部队和坦克占领了[阿格达比亚](https://en.wikipedia.org/wiki/Ajdabiya)，然后向北推进到[贝达福姆](https://en.wikipedia.org/wiki/Beda_Fomm)。在[维尔纳犹太人区](https://en.wikipedia.org/wiki/Vilna_Ghetto)，[FareyniktePartizanerOrganizatsye](https://en.wikipedia.org/wiki/Fareynikte_Partizaner_Organizatsye)成立了一个犹太[游击队](https://en.wikipedia.org/wiki/Partisan_(military))组织，其中包括[AbaKovner](https://en.wikipedia.org/wiki/Aba_Kovner)。
+	- ### 23日
+		- 新不列颠[岛的拉包尔战役](https://en.wikipedia.org/wiki/Battle_of_Rabaul_(1942))开始。
+	- ### 24日
+		- 美国军队在萨摩亚登陆，作为阻止日本在太平洋推进的战略的一部分。
+	- ### 25日
+		- [泰国](https://en.wikipedia.org/wiki/Thailand)向美国和英国宣战。
+	- ### 26日
+		- 第一批抵达欧洲的美军在[北爱尔兰](https://en.wikipedia.org/wiki/Northern_Ireland)登陆。
+	- ### 27日
+		- 英国将所有军队撤回新加坡。
+	- ### 28日
+		- 巴西与轴心国断绝关系。
+	- ### 29日
+		- 隆美尔的非洲军团在向东行驶时夺回了利比亚班加西。在接下来的几个月里，双方将休息和重新武装。
+	- ### 30日
+		- 希特勒在[柏林体育馆](https://en.wikipedia.org/wiki/Berlin_Sportpalast)发表讲话，威胁要消灭全世界的犹太人；他还将苏联攻势的失败归咎于天气。
+	- ### 31日
+		- 日本人占领缅甸穆拉曼港；他们现在威胁仰光和新加坡。
+- ## 2月
+	- ### 1日
+		- 维德昆·吉斯林成为与纳粹结盟的挪威部长兼总统。
+	- ### 2日
+		- [约瑟夫](https://en.wikipedia.org/wiki/Joseph_Stilwell)将军（“醋乔”）史迪威被任命为[蒋介石](https://en.wikipedia.org/wiki/Chiang_Kai-shek)的参谋长和中国盟军总司令。
+	- ### 3日
+		- 日本空军对[爪哇](https://en.wikipedia.org/wiki/Java_(island))，特别是[泗水](https://en.wikipedia.org/wiki/Surabaya)海军基地进行空袭。
+	- ### 7日
+		- 美国人继续保卫巴丹，对抗Homma将军的军队。
+	- ### 9日
+		- 英国军队现在全面撤退到新加坡进行最后的防御。
+	- ### 10日
+		- 邮轮[SSNormandie](https://en.wikipedia.org/wiki/SS_Normandie)在纽约港着火并倾覆。虽然原因很可能是焊工的焊枪，但媒体上却想象着各种阴谋。
+	- ### 11日
+		- “[英吉利海峡冲刺](https://en.wikipedia.org/wiki/Channel_Dash)”——德国战列舰[沙恩霍斯特号](https://en.wikipedia.org/wiki/German_battleship_Scharnhorst)和[格奈森瑙号](https://en.wikipedia.org/wiki/German_battleship_Gneisenau)，带着[欧根亲王号](https://en.wikipedia.org/wiki/German_cruiser_Prinz_Eugen)重巡洋舰，从[布雷斯特](https://en.wikipedia.org/wiki/Brest,_France)出发，穿过[英吉利海峡](https://en.wikipedia.org/wiki/English_Channel)前往北部港口，包括德国威廉港；英国海军部队未能击沉其中任何一个。
+	- ### 13日
+		- [巴丹之战](https://en.wikipedia.org/wiki/Battle_of_Bataan)仍在继续。
+	- ### 15日
+		- [新加坡向日军投降](https://en.wikipedia.org/wiki/Fall_of_Singapore)；这可以说是英国军事史上最具毁灭性的损失。
+	- ### 16日
+		- 美国政府高层正在讨论关押普遍居住在美国西部的日裔美国人的计划。
+	- ### 17日
+		- 命令在日军逼近时撤离仰光。
+	- ### 19日
+		- 日本飞机袭击澳大利亚北领地[达尔文](https://en.wikipedia.org/wiki/Darwin,_Northern_Territory)。
+	- ### 20日
+		- 日军渡过缅甸重要的[萨尔温江](https://en.wikipedia.org/wiki/Salween_River)。
+	- ### 21日
+		- 美国空军现在在英国的基地稳固地建立起来。
+	- ### 22日
+		- 总统[富兰克林·德拉诺·罗斯福](https://en.wikipedia.org/wiki/Franklin_Delano_Roosevelt)的订单一般[道格拉斯·麦克阿瑟](https://en.wikipedia.org/wiki/Douglas_MacArthur)到[撤离](https://en.wikipedia.org/wiki/Douglas_MacArthur%27s_escape_from_the_Philippines)的[菲律宾](https://en.wikipedia.org/wiki/Philippines)作为国家的美国国防崩溃。
+	- ### 25日
+		- 随着对入侵的恐惧增加，美国西部开始[拘留日裔美国公民](https://en.wikipedia.org/wiki/Japanese_American_internment)。
+	- ### 26日
+		- 班卡岛大屠杀的唯一幸存者[薇薇安·布尔温克尔](https://en.wikipedia.org/wiki/Vivian_Bullwinkel)被日本人俘虏并监禁。
+	- ### 27日
+		- [爪哇海海战](https://en.wikipedia.org/wiki/Battle_of_the_Java_Sea)——在荷兰海军少将卡尔·多尔曼的带领下，联合部队失去了2艘轻巡洋舰和3艘驱逐舰。
+	- ### 28日
+		- 日本陆军入侵爪哇。
+- ## 3月
+	- ### 1日
+		- [克里米亚的](https://en.wikipedia.org/wiki/Crimea)红军攻势开始；在北部，列宁格勒的围困仍在继续。
+	- ### 3日
+		- 日军飞机做出惊人的[袭击](https://en.wikipedia.org/wiki/Attack_on_Broome)在飞机场和海港[布鲁姆](https://en.wikipedia.org/wiki/Broome,_Western_Australia)，[西澳大利亚州](https://en.wikipedia.org/wiki/Western_Australia)。
+	- ### 4日
+		- [日本海军](https://en.wikipedia.org/wiki/Japanese_Imperial_Navy) [操作ķ](https://en.wikipedia.org/wiki/Operation_K)打算作为[侦察](https://en.wikipedia.org/wiki/Reconnaissance)的[珍珠港](https://en.wikipedia.org/wiki/Pearl_Harbor)以及维修和打捞作业的中断。
+	- ### 5日
+		- 日本占领了荷属东印度群岛的首都[巴达维亚](https://en.wikipedia.org/wiki/Jakarta)。
+	- ### 6日
+		- 马耳他的持续防守接收了更多的战士。
+	- ### 8日
+		- 日本人在新几内亚Huon湾的[Lae](https://en.wikipedia.org/wiki/Lae)和[Salamaua](https://en.wikipedia.org/wiki/Salamaua)登陆，开始向新几内亚的莫尔兹比港移动，然后是澳大利亚。
+	- ### 9日
+		- 日军进入[缅甸仰光](https://en.wikipedia.org/wiki/Yangon)，两天前被英国人遗弃。日本人似乎控制着爪哇、缅甸和新几内亚。
+	- ### 11日
+		- 日本人登陆菲律宾最南端的棉兰老岛。
+	- ### 12日
+		- 美军开始在土地[努美阿](https://en.wikipedia.org/wiki/Noum%C3%A9a)，[新喀里多尼亚](https://en.wikipedia.org/wiki/New_Caledonia);它将成为最终入侵瓜达尔卡纳尔岛的重要集结基地。
+	- ### 13日
+		- 英国皇家空军对德国埃森发动空袭。
+	- ### 14日
+		- 日军在[所罗门群岛](https://en.wikipedia.org/wiki/Solomon_Islands)登陆，突显了澳大利亚的危险局势，特别是如果很快就清楚地表明，在瓜达尔卡纳尔岛建造了一个机场。
+	- ### 17日
+		- 美国将军[道格拉斯麦克阿瑟](https://en.wikipedia.org/wiki/Douglas_MacArthur)在离开他在菲律宾的总部后抵达澳大利亚。
+	- ### 20日
+		- [向外行动](https://en.wikipedia.org/wiki/Operation_Outward)开始，一项通过自由飞行的气球攻击德国的计划。
+	- ### 22日
+		- 在德国空军和一支意大利海上部队遭受重大损失后，一支支离破碎的车队抵达马耳他。继续对岛上进行猛烈的轰炸袭击，但受到过度负担的英国皇家空军空军的轻微反对。
+	- ### 25日
+		- 英国皇家空军派出轰炸机袭击法国和德国的目标。
+	- ### 26日
+		- 柏林的犹太人现在必须清楚地确定他们的房屋。
+	- ### 28日
+		- 英国皇家空军对[吕贝克](https://en.wikipedia.org/wiki/L%C3%BCbeck)发动突袭，摧毁了超过30%的城市和80%的中世纪中心。希特勒怒不可遏。
+- ## 4月
+	- ### 1日
+		- [东海边境](https://en.wikipedia.org/wiki/Eastern_Sea_Frontier)在《[基地驱逐舰协议》](https://en.wikipedia.org/wiki/Destroyers_for_Bases_Agreement)之后极度缺乏合适的护航舰艇，制定了一项名为“BucketBrigaid”的临时安排，其中受保护港口外的船只在天黑后被放置在有网保护的锚地，然后移动仅在白天可用的任何护送下。当[Dönitz听说](https://en.wikipedia.org/wiki/Karl_Doenitz)这种和类似的措施时，他没有等待测试它们的有效性，而是将他的U艇转移到[海湾海上边境](https://en.wikipedia.org/wiki/Gulf_Sea_Frontier)控制的地区，那里美国的反潜措施没有那么有效。因此，与整个东海岸相比，5月份将有更多船只沉没在海湾地区，其中许多是在密西西比海峡附近。
+	- ### 2日
+		- 现在有超过24,000名生病和饥饿的士兵（美国和菲律宾）被困在[巴丹半岛](https://en.wikipedia.org/wiki/Bataan_Peninsula)。
+	- ### 3日
+		- 日军开始全面进攻巴丹的美国和[菲律宾](https://en.wikipedia.org/wiki/Philippines)军队。
+	- ### 4日
+		- 德国人计划对旅游景点或英国历史遗址[进行“贝德克袭击”](https://en.wikipedia.org/wiki/Baedeker_Blitz)，以报复吕贝克轰炸。
+	- ### 5日
+		- 在巴丹，日军压倒了盟军防线上的一个强点萨马特山。
+	- ### 6日
+		- 日本海军在俾斯麦群岛的[马努斯岛上](https://en.wikipedia.org/wiki/Manus_Island)派兵上岸（一些消息来源将这些登陆日期定为4月8日）。
+	- ### 8日
+		- 英国皇家空军对汉堡的重型轰炸。
+	- ### 9日
+		- 日本海军空袭锡[兰亭可马里](https://en.wikipedia.org/wiki/Trincomalee)；皇家海军[航空母舰](https://en.wikipedia.org/wiki/Aircraft_carrier) [HMSHermes](https://en.wikipedia.org/wiki/HMS_Hermes_(95))和[澳大利亚皇家海军](https://en.wikipedia.org/wiki/Royal_Australian_Navy) [驱逐舰](https://en.wikipedia.org/wiki/Destroyer) [HMASVampire](https://en.wikipedia.org/wiki/HMAS_Vampire_(D68))在该国东海岸沉没。
+	- ### 10日
+		- 日本人在[菲律宾中部的](https://en.wikipedia.org/wiki/Cebu_Island)一个大岛宿雾岛登陆。
+	- ### 12日
+		- 日军攻占[缅甸的](https://en.wikipedia.org/wiki/Burma)米江耶。
+	- ### 13日
+		- 奥地利国防军士兵[安东·施密德(AntonSchmid)](https://en.wikipedia.org/wiki/Anton_Schmid)在目睹[波纳利大屠杀](https://en.wikipedia.org/wiki/Ponary_Massacre)并拯救犹太人后被处死。
+	- ### 14日
+		- [温斯顿·丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)担心马耳他的局势会导致北非的轴心国军队比英国军队得到更好的补给，给开罗的[斯塔福德·克里普斯爵士](https://en.wikipedia.org/wiki/Sir_Stafford_Cripps)发了一封电报，要求他在此之前[向奥金莱克将军](https://en.wikipedia.org/wiki/Claude_Auchinleck)施压，要求他采取进攻行动。发生。
+	- ### 15日
+		- 马耳他因“英雄主义和奉献精神”被乔治六世国王授予[乔治十字勋章](https://en.wikipedia.org/wiki/George_Cross)。
+	- ### 17日
+		- 1940年被捕的法国将军[亨利·吉罗](https://en.wikipedia.org/wiki/Henri_Giraud)(HenriGiraud)从位于Königstein的一座城堡监狱中越狱，他将自己放低了城墙，跳上一辆行驶中的火车，将他带到了法国边境。
+	- ### 18日
+		- [Doolittle袭击](https://en.wikipedia.org/wiki/Doolittle_Raid)在[名古屋](https://en.wikipedia.org/wiki/Nagoya)，[东京](https://en.wikipedia.org/wiki/Tokyo)和[横滨](https://en.wikipedia.org/wiki/Yokohama)。[JimmyDoolittle](https://en.wikipedia.org/wiki/Jimmy_Doolittle)的B-25从大黄蜂[号航空母舰上](https://en.wikipedia.org/wiki/USS_Hornet_(CV-8))起飞。对于饮食一直是坏消息的美国人来说，突袭行动极大地鼓舞了他们的士气。
+	- ### 20日
+		- 马耳他总督兼总司令[多比](https://en.wikipedia.org/wiki/William_Dobbie)将军给温斯顿·丘吉尔发信息说“很明显，如果我们不能补充我们的基本需求，特别是面粉和弹药，最坏的情况可能会发生，而且非常很快……”丘吉尔从这个和其他“令人不安的消息”中得出结论，多比没有足够的能力胜任如此重要的工作，并决定用戈特勋爵取代他。
+	- ### 23日
+		- 德国空军开始对埃克塞特、巴斯、诺维奇和约克等英国省级城镇进行所谓的[贝德克突袭](https://en.wikipedia.org/wiki/Baedeker_Blitz)；袭击偶尔会持续到6月6日。
+	- ### 24日
+		- 英国皇家空军对德国[罗斯托克进行猛烈](https://en.wikipedia.org/wiki/Rostock)轰炸。
+	- ### 26日
+		- 希特勒对德国享有某种最高权威。
+	- ### 27日
+		- [罗斯托克](https://en.wikipedia.org/wiki/Rostock)连续第四晚遭到轰炸。
+	- ### 28日
+		- 英国的突击部队的离开的散装[德班](https://en.wikipedia.org/wiki/Durban)在[南非](https://en.wikipedia.org/wiki/South_Africa)的[马达加斯加](https://en.wikipedia.org/wiki/Madagascar);几天前，运载运输工具和重型武器的速度较慢的船只已经秘密启航。
+	- ### 29日
+		- “[贝德克袭击](https://en.wikipedia.org/wiki/Baedeker_raids)”继续进行，重点是诺维奇和约克。
+- ## 5月
+	- ### 1日
+		- 隆美尔准备在本月初发起新的攻势。
+	- ### 2日
+		- 为响应美国情报拦截，警告日本即将登陆，澳大利亚驻军从[图拉吉](https://en.wikipedia.org/wiki/Tulagi)撤离。
+	- ### 3日
+		- 在日本占领[莫尔兹比港](https://en.wikipedia.org/wiki/Port_Moresby)战略计划的初期，[志摩清秀](https://en.wikipedia.org/wiki/Kiyohide_Shima)海军上将率领的日本军队在[图拉吉](https://en.wikipedia.org/wiki/Invasion_of_Tulagi_(May_1942))岛登陆，开启[了珊瑚海海战](https://en.wikipedia.org/wiki/Battle_of_the_Coral_Sea)。
+	- ### 4日
+		- 美国海军少将[弗兰克·杰克·弗莱彻](https://en.wikipedia.org/wiki/Frank_Jack_Fletcher)的第[17特遣队](https://en.wikipedia.org/wiki/Task_Force_17)[进行了珊瑚海海战](https://en.wikipedia.org/wiki/Battle_of_the_Coral_Sea)的第一次航母打击，攻击了[图拉吉](https://en.wikipedia.org/wiki/Invasion_of_Tulagi_(May_1942))附近的日本海军目标。
+	- ### 5日
+		- 日本重炮攻击科雷吉多。
+	- ### 6日
+		- 在[Corregidor上](https://en.wikipedia.org/wiki/Corregidor)，[JonathanM.Wainwright](https://en.wikipedia.org/wiki/Jonathan_M._Wainwright_(general))中将向本间正治中将投降了[菲律宾](https://en.wikipedia.org/wiki/Philippines)的最后一支美军。大约12,000人被囚禁。Homma很快将面临上司的批评，因为他花费了大量时间来减少菲律宾，并被迫退休（1943年）。
+	- ### 7日
+		- 维希军队将马达加斯加最重要的港口[迭戈苏亚雷斯](https://en.wikipedia.org/wiki/Diego_Suarez,_Malagasy_Republic)交给参与[铁甲行动的](https://en.wikipedia.org/wiki/Operation_Ironclad)英国军队。然而，维希军队能够有条不紊地撤退。
+	- ### 8日
+		- 在[珊瑚海](https://en.wikipedia.org/wiki/Battle_of_the_Coral_Sea)，双方终于找到了对方的主要航母群，由日本航母Shōkaku和Zuikaku以及美国航母列克星敦和约克敦组成。数次攻击接踵而至。只有瑞鹤毫发无损；翔鹤的驾驶舱弯曲，需要两个月的修理；列克星敦沉没，约克镇损坏的。弗莱彻退休；这个动作结束了战斗。虽然对于沉没吨位最大和唯一大型航母的日本来说可以说是僵局甚至战术上的胜利，但珊瑚海海战通常被视为美国的战略胜利，因为[井上](https://en.wikipedia.org/wiki/Shigeyoshi_Inoue)海军上将取消了莫尔兹比港的行动这是日本[太平洋战区](https://en.wikipedia.org/wiki/Pacific_War)战略行动的第一次重大失败。此外，约克镇会及时修复，为[中途岛](https://en.wikipedia.org/wiki/The_Battle_of_Midway)做出重要贡献（虽然她不会活下来），而受损的翔鹤和瑞阁都没有（虽然没有受到直接攻击，但在飞机上遭受了不可持续的损失），将能够及时改装中途岛，使日本只有四艘可操作的航母可用于这场战斗。
+	- ### 9日
+		- 1942年5月8/9的晚上，枪手的[锡兰驻军炮兵](https://en.wikipedia.org/wiki/Ceylon_Garrison_Artillery)对[霍斯布鲁格岛](https://en.wikipedia.org/wiki/Horsburgh_Island)在科科斯群岛反抗。[他们的兵变](https://en.wikipedia.org/wiki/Cocos_Islands_mutiny)被镇压，其中三人被处决，这是二战期间唯一因兵变而被处决的英联邦士兵。
+	- ### 10日
+		- 不了解这些，因为他讲的潮流正在转向，甚至，[凯塞林](https://en.wikipedia.org/wiki/Albert_Kesselring)通知[希特勒](https://en.wikipedia.org/wiki/Hitler)是[马耳他](https://en.wikipedia.org/wiki/Siege_of_Malta_(World_War_II))已经被中和。
+	- ### 12日
+		- [德国潜艇U型553](https://en.wikipedia.org/wiki/German_submarine_U-553)，由Kapitänleutnant卡尔·瑟曼指挥，汇英国货轮尼科亚的口附近[圣劳伦斯河](https://en.wikipedia.org/wiki/St._Lawrence_River)，标志着开幕[圣劳伦斯之战](https://en.wikipedia.org/wiki/Battle_of_St._Lawrence)。
+	- ### 13日
+		- [史迪威将军](https://en.wikipedia.org/wiki/Joseph_Stilwell)一[行人](https://en.wikipedia.org/wiki/Chindwin_River)渡过钦德温河。他们现在几乎可以肯定免受日本人的袭击，但仍然依赖自己在非常偏远地区的补给，并竞相抵御季风。
+	- ### 14日
+		- 针对在苏联进攻[哈尔科夫](https://en.wikipedia.org/wiki/Second_Battle_of_Kharkov)地区，[希特勒](https://en.wikipedia.org/wiki/Hitler)的命令元素[李希霍芬的](https://en.wikipedia.org/wiki/Wolfram_von_Richthofen) [Fliegerkorps八](https://en.wikipedia.org/wiki/8th_Air_Corps_(Germany))北做地面保障任务。结果，到5月14日结束时，德国人已经在哈尔科夫区建立了试探性但不断增强的空中优势。此外，在这一天，希特勒命令位于苏军左翼对面和南部位置的[克莱斯特将军](https://en.wikipedia.org/wiki/Paul_Ludwig_Ewald_von_Kleist)迅速准备并发动强大的装甲反攻。
+	- ### 15日
+		- 在美国，一项建立[妇女辅助军](https://en.wikipedia.org/wiki/Women%27s_Army_Corps)(WAAC)的法案签署成为法律。
+	- ### 16日
+		- 美国[第1装甲师](https://en.wikipedia.org/wiki/1st_Armored_Division_(United_States))抵达北爱尔兰。
+	- ### 17日
+		- 在[哈尔科夫](https://en.wikipedia.org/wiki/Second_Battle_of_Kharkov)以北的突出部，俄罗斯[第28](https://en.wikipedia.org/wiki/28th_Army_(Soviet_Union))和第57集团军在与[保卢斯将军](https://en.wikipedia.org/wiki/Friedrich_Paulus) [（德国）第6集团军的](https://en.wikipedia.org/wiki/6th_Army_(Wehrmacht))对抗中遇到了困难。
+	- ### 18日
+		- 大量投降后，红军在[刻赤](https://en.wikipedia.org/wiki/Battle_of_the_Kerch_Peninsula)大撤退。
+	- ### 19日
+		- 在[哈尔科夫](https://en.wikipedia.org/wiki/Second_Battle_of_Kharkov)，[克莱斯特](https://en.wikipedia.org/wiki/Paul_Ludwig_Ewald_von_Kleist)的反攻继续发扬光大；现在[保卢斯](https://en.wikipedia.org/wiki/Friedrich_Paulus)从北方发起了第二次反击，旨在与克莱斯特会合并包围尽可能多的苏军。该[Stavka](https://en.wikipedia.org/wiki/Stavka)，逐渐意识到了危险的程度，订单Gorodnyanski的[第6集团军](https://en.wikipedia.org/wiki/6th_Army_(Soviet_Union))停止自己前进。但现在，[铁木辛哥](https://en.wikipedia.org/wiki/Semyon_Timoshenko)正计划在两个德国先锋队会合之前，尽可能地解开他的力量。
+	- ### 20日
+		- [日本对缅甸的征服](https://en.wikipedia.org/wiki/Japanese_conquest_of_Burma)完成；它被称为"军事灾难"。巧合的是，就在同一天，[史迪威将军](https://en.wikipedia.org/wiki/Joseph_Stilwell)抵达英[帕尔](https://en.wikipedia.org/wiki/Imphal)并解散了他的撤离队伍。所有114人都已抵达，但有些人因精疲力竭不得不住院；其中一位，后来担任美林掠夺者指挥官的[弗兰克·梅里尔](https://en.wikipedia.org/wiki/Frank_Merrill)少校被诊断出在途中发生了轻度心脏病。
+	- ### 21日
+		- 对马耳他的入侵无限期推迟。
+	- ### 22日
+		- 墨西哥向轴心国宣战。
+	- ### 23日
+		- [克莱斯特](https://en.wikipedia.org/wiki/Paul_Ludwig_Ewald_von_Kleist)和[保卢斯的](https://en.wikipedia.org/wiki/Friedrich_Paulus)坦克在哈尔科夫东南部的[巴拉克利亚会合](https://en.wikipedia.org/wiki/Balakleya)，包围了苏军第6和第9集团军的大部分地区。
+	- ### 25日
+		- 为准备下一场战斗，日本海军战略家向阿留申群岛派遣了牵制部队。
+	- ### 26日
+		- 英苏条约他们的外交秘书同意，未经另一方批准，不得签署任何和平协议。（这是一项重要的条约，因为希姆莱和其他人将在战争结束时试图将两国分开。）。
+	- ### 27日
+		- 帝国安全总署负责人[莱因哈德·海德里希](https://en.wikipedia.org/wiki/Reinhard_Heydrich)在捷克斯洛伐克士兵的类人猿行动中在布拉格身受重伤；他将于6月4日因伤势过重而死亡。
+	- ### 29日
+		- 法国的犹太人被命令佩戴黄色的大卫之星。
+	- ### 30日
+		- 科隆的[“千人轰炸机突袭”](https://en.wikipedia.org/wiki/Bombing_of_Cologne_in_World_War_II)，揭示了新的区域轰炸技术。
+	- ### 31日
+		- 德国在哈尔科夫附近取得了巨大的成功，几支红军的包围。
+- ## 6月
+	- ### 1日
+		- 西方第一次报道说，毒气被用来杀死被送往“东方”的犹太人。
+	- ### 2日
+		- 对德国工业用地的进一步猛烈轰炸，主要集中在埃森。
+	- ### 3日
+		- 英国煤炭工业被国有化。
+	- ### 4日
+		- 在[中途岛海战中](https://en.wikipedia.org/wiki/Battle_of_Midway)，这一天开始于[南云](https://en.wikipedia.org/wiki/Chuichi_Nagumo)海军上将攻击岛上的防空系统。
+	- ### 5日
+		- 5月5日在[加扎拉](https://en.wikipedia.org/wiki/Battle_of_Gazala)，里奇将军指挥的英军第[8集团军](https://en.wikipedia.org/wiki/British_Eighth_Army)在大锅中对隆美尔的部队发动了大规模反击。进攻失败，一方面是因为隆美尔已经恢复了危急的后勤形势，确立了绝佳的防守阵地，另一方面也是因为德军的反坦克战术；例如，第32陆军坦克旅损失了70辆坦克中的50辆。到下午早些时候，隆美尔显然控制了局势，并与阿列特和第21装甲车一起攻击了被称为“骑士桥”的英国阵地分裂。数个英军战术总部阵地被占领，英军的指挥和控制变得困难；结果，当英国人开始退役时，有几个旅被困在大锅里。此外，英国人的坦克损失进一步严重。
+	- ### 7日
+		- [日军入侵阿图和基斯卡](https://en.wikipedia.org/wiki/Battle_of_the_Aleutian_Islands)。这是128年来首次入侵美国领土。[日本](https://en.wikipedia.org/wiki/Japanese_occupation_of_Attu)开始占领阿图和[基斯卡](https://en.wikipedia.org/wiki/Japanese_occupation_of_Kiska)。
+	- ### 8日
+		- 马耳他接收一支[喷火](https://en.wikipedia.org/wiki/Supermarine_Spitfire)战斗机中队。
+	- ### 9日
+		- 在[比尔哈基姆](https://en.wikipedia.org/wiki/Battle_of_Bir_Hakeim)，[隆美尔](https://en.wikipedia.org/wiki/Rommel)再次攻击法国第一自由旅的“盒子”。尽管自由法国队继续坚守，但他们的外围从来都不是最大的，危险地缩小了规模，他们的地位变得站不住脚。[里奇](https://en.wikipedia.org/wiki/Neil_Ritchie)将军命令法国第1自由旅次日撤退。
+	- ### 10日
+		- [纳粹](https://en.wikipedia.org/wiki/Nazism)烧毁了捷克的[利迪策](https://en.wikipedia.org/wiki/Lidice)村，作为对杀害[莱因哈德·海德里希的](https://en.wikipedia.org/wiki/Reinhard_Heydrich)报复。所有男性成人和儿童都被杀害，所有女性都被送往集中营。
+	- ### 11日
+		- 两支车队出发前往[马耳他](https://en.wikipedia.org/wiki/Siege_of_Malta_(World_War_II))，一支来自直布罗陀（代号为[“Harpoon”](https://en.wikipedia.org/wiki/Operation_Harpoon_(1942))），另一支来自亚历山大（代号为[“Vigorous”](https://en.wikipedia.org/wiki/Operation_Vigorous)），提供急需的食物、燃料和弹药。希望轴心国将他们的攻击集中在他们首先找到的车队上，让另一个车队通过。
+	- ### 12日
+		- 塞瓦斯托波尔发生激烈战斗，双方人员伤亡惨重。
+	- ### 13日
+		- 美国开设了[战争信息办公室](https://en.wikipedia.org/wiki/Office_of_War_Information)，这是一个[宣传](https://en.wikipedia.org/wiki/Propaganda)制作中心。
+	- ### 14日
+		- 在[加扎拉线](https://en.wikipedia.org/wiki/Battle_of_Gazala)，英军阵地站不住脚，[奥金莱克](https://en.wikipedia.org/wiki/Claude_Auchinleck)将军授权[里奇](https://en.wikipedia.org/wiki/Neil_Ritchie)将军协同撤出沿线前沿阵地。
+	- ### 15日
+		- [奥金莱克](https://en.wikipedia.org/wiki/Claude_Auchinleck)将军在14日给[丘吉尔](https://en.wikipedia.org/wiki/Churchill)发回了丘吉尔的电报，部分说“......我无意放弃托布鲁克。”。
+	- ### 16日
+		- 两支前往马耳他的车队损失惨重；德国空军继续轰炸该岛本身。[鱼叉行动](https://en.wikipedia.org/wiki/Operation_Harpoon_(1942))抵达[马耳他](https://en.wikipedia.org/wiki/Siege_of_Malta_(World_War_II))，但六艘补给舰中只有两艘幸存；其中一艘由于地雷损坏而丢失了部分货物。肯塔基号油轮的沉没意味着马耳他日益减少的皇家空军库存将增加宝贵的航空燃料。当天晚些时候，[活力行动](https://en.wikipedia.org/wiki/Operation_Vigorous)被取消；车队改道返回亚历山大。
+	- ### 17日
+		- 托布鲁克现在被包围了。
+	- ### 18日
+		- [曼哈顿计划](https://en.wikipedia.org/wiki/Manhattan_Project)启动，科学处理核武器的开始。
+	- ### 21日
+		- 非洲军团夺回托布鲁克，俘虏35,000人；随着英国撤退到埃及深处，通往埃及的道路现在已经打开。托布鲁克的失利对英国士气造成沉重打击。德国陆军得到了德国空军袭击的协助。
+	- ### 24日
+		- [德怀特·D·艾森豪威尔](https://en.wikipedia.org/wiki/Dwight_D._Eisenhower)将军抵达伦敦，准备担任[驻欧洲美军](https://en.wikipedia.org/wiki/European_Theater_of_Operations_United_States_Army)司令一职。
+	- ### 25日
+		- 另一次大规模的英国“千机轰炸机”突袭，这次是在[不来梅](https://en.wikipedia.org/wiki/Bremen)；袭击者损失惨重。
+	- ### 26日
+		- 德国人[开往顿河畔罗斯托夫](https://en.wikipedia.org/wiki/Rostov-on-Don)。
+	- ### 27日
+		- [ConvoyPQ17](https://en.wikipedia.org/wiki/Convoy_PQ_17)从冰岛启航；37艘船中只有11艘能幸存。
+	- ### 28日
+		- [蓝色方案](https://en.wikipedia.org/wiki/Case_Blue)，德国计划捕获[斯大林格勒](https://en.wikipedia.org/wiki/Stalingrad)，并在苏联油田[高加索](https://en.wikipedia.org/wiki/Caucasus)，开始。通常，部队会转移到南方。
+	- ### 30日
+		- 美国向欧洲战区部署[第二军](https://en.wikipedia.org/wiki/II_Corps_(United_States))。
+- ## 7月
+	- ### 1日
+		- [第一次阿拉曼战役](https://en.wikipedia.org/wiki/First_Battle_of_El_Alamein)开始，隆美尔开始对英国的防御发动第一次进攻。
+	- ### 2日
+		- 丘吉尔在下议院的谴责议案中幸存下来。
+	- ### 3日
+		- [瓜达尔卡纳尔岛](https://en.wikipedia.org/wiki/Guadalcanal)现在牢牢掌握在日本人的手中。
+	- ### 4日
+		- [美国陆军航空队](https://en.wikipedia.org/wiki/United_States_Army_Air_Forces)在欧洲执行的首次空中任务。
+	- ### 11日
+		- 隆美尔的军队现在在阿拉曼面前陷入僵局，主要是因为缺乏弹药。
+	- ### 12日
+		- 现在很明显斯大林格勒是入侵者最大的挑战。
+	- ### 15日
+		- 围绕ElAlamein的唯一行动是轻微的小规模冲突。
+	- ### 16日
+		- 16[Vel'd'Hiv综述](https://en.wikipedia.org/wiki/Vel%27_d%27Hiv_Roundup)：根据皮埃尔·拉瓦尔领导的[维希法国](https://en.wikipedia.org/wiki/Vichy_France)政府的命令，法国警察大规模逮捕了13,152名犹太人，并将他们关押在冬季赛车场，然后被驱逐到奥斯威辛集中营。
+	- ### 18日
+		- 德国人首次仅使用喷气发动机试飞了[MesserschmittMe262](https://en.wikipedia.org/wiki/Messerschmitt_Me_262)V3第三架原型机。
+	- ### 19日
+		- 19[大西洋海战](https://en.wikipedia.org/wiki/Battle_of_the_Atlantic_(1940))：德国海军少将[卡尔·邓尼茨](https://en.wikipedia.org/wiki/Karl_D%C3%B6nitz)(KarlDönitz)命令最后一批[U艇](https://en.wikipedia.org/wiki/U-boat)从美国大西洋沿岸的阵地撤出，以应对日益有效的美国护航系统。
+	- ### 20日
+		- 在布纳-戈纳地区登陆后，新几内亚日军越过欧文斯坦利山脉，瞄准岛东南部靠近澳大利亚的莫尔兹比港；一支小型澳大利亚部队开始在[科科达赛道](https://en.wikipedia.org/wiki/Kokoda_Track)上进行后卫行动。
+	- ### 22日
+		- 开始有系统地将[犹太人](https://en.wikipedia.org/wiki/Jew)驱逐出[华沙隔都](https://en.wikipedia.org/wiki/Warsaw_Ghetto)。“模范”灭绝营[特雷布林卡](https://en.wikipedia.org/wiki/Treblinka)II在波兰开设。
+	- ### 24日
+		- 德国人占领了顿河畔罗斯托夫；红军正在顿河沿岸大撤退。
+	- ### 26日
+		- 奥金莱克领导下的英军第二次进攻隆美尔失败。可以说第一次阿拉曼战役已经结束。
+	- ### 27日
+		- 皇家空军[对汉堡的](https://en.wikipedia.org/wiki/Bombing_of_Hamburg_in_World_War_II)重型燃烧弹袭击。
+	- ### 29日
+		- 日本人在欧文斯坦利通向莫尔兹比港的中途取道[Kokoda](https://en.wikipedia.org/wiki/Kokoda)。
+	- ### 30日
+		- 在隆美尔和奥金莱克之间的阿拉曼持续僵局。
+- ## 8月
+	- ### 1日
+		- 德国人继续向斯大林格勒成功推进。
+	- ### 3日
+		- 前往马耳他的车队被德国空军和U型潜艇摧毁。
+	- ### 5日
+		- 美国[火炬行动](https://en.wikipedia.org/wiki/Operation_Torch)计划团队，其中包括[乔治·巴顿（GeorgeS.Patton）](https://en.wikipedia.org/wiki/George_S._Patton)；[吉米杜立特尔](https://en.wikipedia.org/wiki/Jimmy_Doolittle)；[肯特兰伯特](https://en.wikipedia.org/wiki/Kent_Lambert)；和[HoytS.Vandenberg](https://en.wikipedia.org/wiki/Hoyt_S._Vandenberg)在[华盛顿特区](https://en.wikipedia.org/wiki/Washington,_D.C.)会面，加入来自英国伦敦的联合规划团队。HenrikHerschGoldschmidt又名[JanuszKorczak](https://en.wikipedia.org/wiki/Janusz_Korczak)和他孤儿院的近200名儿童，以及他的工作人员，被带到[TreblinkaII死亡集中营](https://en.wikipedia.org/wiki/Treblinka_extermination_camp)，并在那天被杀害，可能是气体。
+	- ### 7日
+		- 随着美军入侵所罗门群岛的加武图、瓜达尔卡纳尔、图拉吉和塔南博戈，[瞭望塔行动](https://en.wikipedia.org/wiki/Operation_Watchtower)开始[瓜达尔卡纳尔战役](https://en.wikipedia.org/wiki/Battle_of_Guadalcanal)。
+	- ### 8日
+		- 参与[帕斯托里乌斯行动](https://en.wikipedia.org/wiki/Operation_Pastorius)的八名德国潜在破坏者中有六名在华盛顿特区被处决。
+	- ### 9日
+		- 印度发生了无数支持独立的骚乱；[圣雄甘地](https://en.wikipedia.org/wiki/Mohandas_Karamchand_Gandhi)被捕。
+	- ### 10日
+		- 隆美尔开始对阿拉曼发动进攻，但到了9月，他又回到了原来的路线。
+	- ### 11日
+		- 11[HMSEagle](https://en.wikipedia.org/wiki/HMS_Eagle_(1918))是前往马耳他执行护航任务的航母，被鱼雷击沉，人员伤亡惨重。
+	- ### 12日
+		- 在莫斯科的一次会议上，丘吉尔告诉斯大林，1942年不会有“第二战线”。
+	- ### 13日
+		- [伯纳德·蒙哥马利](https://en.wikipedia.org/wiki/Bernard_Montgomery)将军被任命为第8集团军司令，该集团军包括在埃及和利比亚的盟军地面部队；丘吉尔渴望看到北非盟军采取更多进攻行动。
+	- ### 15日
+		- 马耳他是通过[OperationPedestal提供的](https://en.wikipedia.org/wiki/Operation_Pedestal)。
+	- ### 17日
+		- [美国陆军空军第](https://en.wikipedia.org/wiki/United_States_Army_Air_Forces)一次在欧洲进行B-17重型轰炸机袭击，目标是法国鲁昂的索特维尔铁路站场。
+	- ### 18日
+		- 在新几内亚，日本和澳大利亚的增援部队抵达。
+	- ### 19日
+		- 英国和加拿大军队对法国迪耶普的突袭[行动](https://en.wikipedia.org/wiki/Dieppe_Raid)以灾难告终；他们受到猛烈的炮火攻击，最终大多数被德国防御者杀死或俘虏。
+	- ### 20日
+		- 瓜达尔卡纳尔岛的[亨德森机场](https://en.wikipedia.org/wiki/Henderson_Field_(Guadalcanal))接收了第一架美国战斗机。
+	- ### 21日
+		- 日军在亨德森球场的反击；在[Tenaru](https://en.wikipedia.org/wiki/Tenaru_River)（或Ilu）河的另一次袭击中，许多日本人在万岁冲锋中丧生。
+	- ### 22日
+		- [巴西](https://en.wikipedia.org/wiki/Brazil)向轴心国宣战，部分原因是民众对巴西船只的沉没感到愤怒，引发了无数骚乱。
+	- ### 23日
+		- 德国对斯大林格勒的大规模空袭。
+	- ### 24日
+		- 东所罗门海战；USSEnterprise严重受损，日本失去了一艘轻型航母Ryujo。
+	- ### 26日
+		- [米尔恩湾战役](https://en.wikipedia.org/wiki/Battle_of_Milne_Bay)开始日军登陆并对[新几内亚](https://en.wikipedia.org/wiki/New_Guinea)东端附近的澳大利亚基地发动全面进攻。
+	- ### 27日
+		- 格奥尔基·朱可夫元帅被任命为斯大林格勒国防司令；德国空军现在正在对该市进行猛烈打击。
+	- ### 28日
+		- 日本水上飞机投下的燃烧弹在[俄勒冈州](https://en.wikipedia.org/wiki/Oregon)引发森林火灾。
+	- ### 30日
+		- 阿拉曼以南几英里处的[阿拉姆哈尔法](https://en.wikipedia.org/wiki/Battle_of_Alam_el_Halfa)战役开始。这将是隆美尔在埃及突破盟军防线的最后一次尝试；[沙漠空军](https://en.wikipedia.org/wiki/Desert_Air_Force)的空中优势将对盟军发挥重要作用。
+	- ### 31日
+		- [1942年卢森堡](https://en.wikipedia.org/wiki/1942_Luxembourgish_general_strike)反对征兵的总罢工开始。
+- ## 9月
+	- ### 1日
+		- 美国海军建设营人员[Seabees](https://en.wikipedia.org/wiki/Seabee_(US_Navy))开始抵达瓜达尔卡纳尔岛。
+	- ### 3日
+		- [斯大林格勒战役](https://en.wikipedia.org/wiki/Battle_of_Stalingrad)可以说是在这一天开始的，德军在郊区；甚至平民男子和男孩也被红军征召来协助防御。
+	- ### 4日
+		- 夜间在贝尔法斯特发生[爱尔兰共和军](https://en.wikipedia.org/wiki/Irish_Republican_Army)骚乱。
+	- ### 5日
+		- 澳大利亚和美国军队在[巴布亚米尔恩湾](https://en.wikipedia.org/wiki/Battle_of_Milne_Bay)击败日本军队，这是日本陆军在[太平洋战争中](https://en.wikipedia.org/wiki/Pacific_War)的第一次彻底失败。他们的撤离和未能建立空军基地减轻了对澳大利亚的威胁。
+	- ### 6日
+		- 黑海港口[新罗西斯克](https://en.wikipedia.org/wiki/Novorossiysk)被德国人占领。
+	- ### 9日
+		- 一架日本飞机在俄勒冈州投下了更多的燃烧弹，但收效甚微。
+	- ### 10日
+		- 英国皇家空军用大型燃烧弹轰炸[杜塞尔多夫](https://en.wikipedia.org/wiki/D%C3%BCsseldorf)。
+	- ### 12日-14日
+		- 美国军队在[埃德森岭战役中](https://en.wikipedia.org/wiki/Battle_of_Edson%27s_Ridge)击退日军。
+	- ### 12日
+		- 载有平民、盟军士兵和意大利战俘的[RMSLaconia](https://en.wikipedia.org/wiki/RMS_Laconia_(1921))[在西非海岸被鱼雷击沉并沉没](https://en.wikipedia.org/wiki/Laconia_incident)。
+	- ### 13日
+		- 斯大林格勒之战仍在继续；它现在完全被德国人包围了。在苏联方面，[瓦西里·崔科夫](https://en.wikipedia.org/wiki/Vasily_Chuikov)将军负责防御。
+	- ### 14日
+		- 日军再次从瓜达尔卡纳尔岛的亨德森机场撤退。
+	- ### 15日
+		- 美国人向莫尔兹比港派遣军队作为澳大利亚防御者的增援部队。
+	- ### 18日
+		- 斯大林格勒“粮仓”之战；德国人被击退了。红军开始在夜间运送军队穿越伏尔加河。
+	- ### 19日
+		- 盟军进攻[贾洛](https://en.wikipedia.org/wiki/Jalu)，利比亚被德军击退。
+	- ### 20日
+		- 英国皇家空军轰炸[慕尼黑](https://en.wikipedia.org/wiki/Munich)和[萨尔布吕肯](https://en.wikipedia.org/wiki/Saarbr%C3%BCcken)。
+	- ### 23日-27日
+		- 在瓜达尔卡纳尔岛的[第三次马塔尼考河战役中](https://en.wikipedia.org/wiki/Actions_along_the_Matanikau)，日本海军轰炸和登陆部队几乎摧毁了亨德森机场，试图夺取它，但陆军很快就被击退了。
+	- ### 23日
+		- 隆美尔将军离开北非前往德国接受治疗。
+	- ### 24日
+		- [美国](https://en.wikipedia.org/wiki/United_States_of_America)将[第一军](https://en.wikipedia.org/wiki/I_Corps_(United_States))部署到太平洋战区。
+	- ### 28日
+		- 日本人继续沿着新几内亚的科科达轨道撤退。
+	- ### 30日
+		- [鹰中队](https://en.wikipedia.org/wiki/Eagle_Squadron)（英国皇家空军的美国志愿者）正式移交给美国陆军航空队。
+- ## 10月
+	- ### 3日
+		- 在德国佩内明德首次成功发射[A4火箭](https://en.wikipedia.org/wiki/V-2_rocket)。该火箭飞行147公里宽，高度为84.5公里，是第一个到达太空的人造物体。
+	- ### 4日
+		- [英国突击队](https://en.wikipedia.org/wiki/British_Commandos)突袭海峡岛[萨克](https://en.wikipedia.org/wiki/Sark)岛，俘虏了一名德国士兵。
+	- ### 6日
+		- 通过相互安排，盟国同意美国人在白天轰炸，英国皇家空军在晚上轰炸的战略。
+	- ### 7日
+		- [第三次马塔尼考战役](https://en.wikipedia.org/wiki/Third_Battle_of_the_Matanikau)。
+	- ### 11日
+		- [埃斯佩兰斯角海战](https://en.wikipedia.org/wiki/Battle_of_Cape_Esperance)。
+	- ### 12日
+		- 红军运送军队越过伏尔加河直接进入斯大林格勒的方法似乎是成功的，因为德国的前进停止了。
+	- ### 13日
+		- 日本海军对瓜达尔卡纳尔岛的亨德森机场进行猛烈轰炸。
+	- ### 14日
+		- 一艘德国[U型潜艇](https://en.wikipedia.org/wiki/U-boat)击沉了渡轮[SSCaribou](https://en.wikipedia.org/wiki/SS_Caribou)，造成137人死亡。
+	- ### 18日
+		- 希特勒发布[突击队令](https://en.wikipedia.org/wiki/Commando_Order)，下令立即处决所有被俘的突击队。
+	- ### 21日
+		- 英国皇家空军在阿拉曼上空活动频繁。
+	- ### 22日
+		- 英国的[兵役](https://en.wikipedia.org/wiki/Conscription)年龄降至18岁。
+	- ### 23日
+		- [第二次阿拉曼战役](https://en.wikipedia.org/wiki/Second_Battle_of_El_Alamein)以盟军对德军阵地的大规模轰炸开始。然后主要是澳大利亚军队开始前进，而近海英国海军部队则支持右翼（注意在瓜达尔卡纳尔岛和斯大林格勒正在准备同时取得胜利）。
+		- [亨德森球场之战](https://en.wikipedia.org/wiki/Battle_for_Henderson_Field)。
+	- ### 24日
+		- 美国海军第34特遣队由航空母舰、各种支援舰艇（包括军舰和其他舰艇）组成，与巴顿的部队一起从[弗吉尼亚州的汉普顿路](https://en.wikipedia.org/wiki/Hampton_Roads,_Virginia)启航，[执行火炬行动](https://en.wikipedia.org/wiki/Operation_Torch)，在北非登陆。火炬行动的另外两个特遣队是美国领导的第一支在欧洲和非洲战场作战的部队，离开英国前往[摩洛哥](https://en.wikipedia.org/wiki/Morocco)。
+	- ### 25日
+		- 隆美尔从他在德国的病床上匆匆归来，负责非洲的战斗。（他的继任者Stumme将军死于心脏病发作）。
+	- ### 26日
+		- [圣克鲁斯](https://en.wikipedia.org/wiki/Battle_of_the_Santa_Cruz_Islands)海战。日本人损失了许多飞机，两艘航空母舰严重受损。[USS大黄蜂](https://en.wikipedia.org/wiki/USS_Hornet_(CV-8))下沉和[USS企业](https://en.wikipedia.org/wiki/USS_Enterprise_(CV-6))被损坏。
+	- ### 29日
+		- 日军继续向瓜达尔卡纳尔岛增援。
+	- ### 31日
+		- 英国人在阿拉曼以西的坦克上取得了重大突破；隆美尔的雷区无法阻止盟军的装甲。
+- ## 11月
+	- ### 1日
+		- 盟军在阿拉曼突围的[增压行动](https://en.wikipedia.org/wiki/Operation_Supercharge_(1942))开始。
+	- ### 3日
+		- [第二次阿拉曼战役](https://en.wikipedia.org/wiki/Second_Battle_of_El_Alamein)结束——[埃尔温隆美尔](https://en.wikipedia.org/wiki/Erwin_Rommel)率领的德军被迫在夜间撤退。
+	- ### 5日
+		- 德国[第三装甲军](https://en.wikipedia.org/wiki/III_Army_Corps_(Wehrmacht))和罗马尼亚第2山地师占领了[阿拉吉尔](https://en.wikipedia.org/wiki/Alagir)镇，这是轴心国在东线到达的最南端。
+	- ### 6日
+		- [卡尔森的巡逻](https://en.wikipedia.org/wiki/Carlson%27s_Patrol)开始。
+	- ### 8日
+		- [火炬行动](https://en.wikipedia.org/wiki/Operation_Torch)，盟军入侵维希控制的[摩洛哥](https://en.wikipedia.org/wiki/Morocco)和[阿尔及利亚](https://en.wikipedia.org/wiki/Algeria)，开始。
+	- ### 10日
+		- 德国违反1940年的停战协定，入侵[维希法国](https://en.wikipedia.org/wiki/Vichy_France)；他们正在回应法国海军上将[弗朗索瓦·达尔兰](https://en.wikipedia.org/wiki/Fran%C3%A7ois_Darlan)与北非[盟国](https://en.wikipedia.org/wiki/Allies_of_World_War_II)签署停战协定的事实。
+	- ### 11日
+		- 车队从亚历山大港抵达马耳他；一份官方公告宣布该岛"已解除围困"。
+	- ### 12日
+		- [瓜达尔卡纳尔海战](https://en.wikipedia.org/wiki/Battle_of_Guadalcanal)——日本和美国海军在[瓜达尔卡纳尔岛](https://en.wikipedia.org/wiki/Guadalcanal_(Pacific_Ocean_island))附近展开了一场高潮的海战。
+	- ### 13日
+		- [英国第八集团军](https://en.wikipedia.org/wiki/British_Eighth_Army)收复[托布鲁克](https://en.wikipedia.org/wiki/Tobruk)。
+	- ### 14日
+		- [USS华盛顿](https://en.wikipedia.org/wiki/USS_Washington_(BB-56))攻击[的日本战舰雾岛](https://en.wikipedia.org/wiki/Japanese_battleship_Kirishima);日本船将于11月15日凌晨0325倾覆。
+	- ### 15日
+		- 瓜达尔卡纳尔岛海战结束。[美国海军](https://en.wikipedia.org/wiki/United_States_Navy)虽然损失惨重，但仍保有对[瓜达尔卡纳尔岛](https://en.wikipedia.org/wiki/Guadalcanal_(Pacific_Ocean_island))周边海域的控制权。
+	- ### 17日
+		- 日本增援新几内亚；美国人在布纳受阻。
+	- ### 18日
+		- 英国皇家空军对柏林进行了猛烈袭击，几乎没有损失。
+	- ### 19日
+		- 在[斯大林格勒](https://en.wikipedia.org/wiki/Stalingrad)，[乔治·朱可夫](https://en.wikipedia.org/wiki/Georgy_Zhukov)将军率领的苏联军队发动了[天王星行动，](https://en.wikipedia.org/wiki/Operation_Uranus)旨在将德国人包围在该市，从而扭转战局对苏联有利。
+	- ### 20日
+		- 盟军占领利比亚[班加西](https://en.wikipedia.org/wiki/Benghazi)；非洲军团继续向西撤退。
+	- ### 21日
+		- 红军包围斯大林格勒的企图继续取得明显成功。
+	- ### 22日
+		- [斯大林格勒战役](https://en.wikipedia.org/wiki/Battle_of_Stalingrad)在苏军反攻期间，德军进攻[斯大林格勒的情况](https://en.wikipedia.org/wiki/Stalingrad)似乎很绝望；弗里德里希·保卢斯将军给阿道夫·希特勒发了一封电报，称德国第6集团军已被包围。
+	- ### 23日
+		- “DerKessel”——大锅，描述斯大林格勒的激烈战斗；希特勒命令保卢斯将军不惜一切代价不要撤退。
+	- ### 25日
+		- 斯大林格勒的包围继续稳定。希特勒重申他要求保卢斯不要投降。
+	- ### 26日
+		- 美国和澳大利亚士兵在[布里斯班](https://en.wikipedia.org/wiki/Brisbane)爆发敌对行动。战斗爆发导致死亡，被称为[布里斯班之战](https://en.wikipedia.org/wiki/Battle_of_Brisbane)。
+	- ### 27日
+		- 在[土伦](https://en.wikipedia.org/wiki/Toulon)，法国海军凿沉其船只（最著名的是敦刻尔克和斯特拉斯堡）和潜艇，以防止它们落入德国之手；法国人拒绝了另一种选择——加入北非水域的盟军舰队。
+	- ### 29日
+		- 盟军在突尼斯的进攻只取得了最低限度的成功。
+	- ### 30日
+		- [塔萨法龙加海战](https://en.wikipedia.org/wiki/Battle_of_Tassafaronga)（瓜达尔卡纳尔岛附近）；这是一场夜间行动，日本海军击沉一艘美国巡洋舰并损坏另外三艘。
+- ## 12月
+	- ### 1日
+		- 汽油配给始于美国。
+	- ### 2日
+		- 突尼斯的激烈战斗，德军被推进北非的最后一个角落。
+	- ### 4日
+		- 美国对意大利本土的第一次轰炸——那不勒斯。
+	- ### 6日
+		- 英国皇家空军轰炸荷兰[埃因霍温](https://en.wikipedia.org/wiki/Eindhoven)。
+	- ### 7日
+		- 珍珠港事件周年纪念日，美国最大的战舰新泽西[号](https://en.wikipedia.org/wiki/USS_New_Jersey_(BB-62))下水（五个月后服役）。
+	- ### 9日
+		- 海军陆战队将瓜达尔卡纳尔岛移交给美国军队。
+	- ### 12日
+		- 隆美尔放弃阿盖拉并撤退到的黎波里；最后一个看台将在突尼斯南部的Mareth线。
+	- ### 13日
+		- 德国空军向陷入困境的斯大林格勒军队运送了微薄的补给。
+	- ### 15日
+		- 美国和澳大利亚军队终于将日本人赶出了新几内亚的[布纳](https://en.wikipedia.org/wiki/Buna,_Papua_New_Guinea)。
+	- ### 22日
+		- 德国人开始从高加索撤退。
+	- ### 23日
+		- 日本空军飞机开始轰炸加尔各答。
+	- ### 24日
+		- 法国[海军上将达尔兰](https://en.wikipedia.org/wiki/Fran%C3%A7ois_Darlan)，在火炬登陆后转投盟军的前[维希](https://en.wikipedia.org/wiki/Vichy_France)领导人，在[阿尔及尔](https://en.wikipedia.org/wiki/Algiers)被暗杀。
+	- ### 25日
+		- 美国轰炸机袭击了[拉包尔](https://en.wikipedia.org/wiki/Rabaul)。
+	- ### 26日
+		- 瓜达尔卡纳尔岛继续激战，现在集中在西部的奥斯丁山。
+	- ### 28日
+		- 亲维希[法属索马里兰](https://en.wikipedia.org/wiki/French_Somaliland)的总督向[入侵的英国和自由法国军队](https://en.wikipedia.org/wiki/British_invasion_of_French_Somaliland)投降。
+	- ### 31日
+		- 在[巴伦支海海战中](https://en.wikipedia.org/wiki/Battle_of_the_Barents_Sea)，英国赢得战略胜利，导致希特勒在很大程度上放弃使用水面袭击者，转而使用U型潜艇。
+# 1943年
+- ## 1月
+	- ### 1日
+		- [德军](https://en.wikipedia.org/wiki/Germany) [第1装甲师从](https://en.wikipedia.org/wiki/1st_Panzer_Division_(Wehrmacht))俄罗斯南部[捷列克河](https://en.wikipedia.org/wiki/Terek_River)地区撤出防包围。
+	- ### 2日
+		- 美国人和澳大利亚人夺回[布纳](https://en.wikipedia.org/wiki/Buna,_Papua_New_Guinea)，[新几内亚](https://en.wikipedia.org/wiki/New_Guinea)。
+	- ### 5日
+		- 十八个国家在伦敦发表声明，表明他们决心“打击和击败[敌方列强](https://en.wikipedia.org/wiki/Nazi_plunder)对已被占领或被敌控制的领土的掠夺”，并采取措施恢复战后财产。
+	- ### 7日
+		- 日本在新几内亚[莱城](https://en.wikipedia.org/wiki/Lae)登陆更多军队。
+	- ### 9日
+		- [美国](https://en.wikipedia.org/wiki/United_States)西部特遣部队重新命名为[I装甲兵团](https://en.wikipedia.org/wiki/I_Armored_Corps_(United_States))。
+	- ### 10日
+		- 苏军全面进攻[斯大林格勒](https://en.wikipedia.org/wiki/Volgograd)；他们还在北部（[列宁格勒](https://en.wikipedia.org/wiki/Saint_Petersburg)）和[高加索地区](https://en.wikipedia.org/wiki/Caucasus)发动袭击。
+	- ### 14日
+		- [卡萨布兰卡](https://en.wikipedia.org/wiki/Casablanca_Conference)盟军领导人会议开始。[温斯顿·丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)和[富兰克林·D·罗斯福](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)讨论了欧洲大陆的最终入侵、西西里岛和意大利即将入侵，以及“无条件投降”原则的智慧。
+	- ### 15日
+		- [英国](https://en.wikipedia.org/wiki/United_Kingdom)开始进攻，目标是夺取遥远的利比亚[的黎波里](https://en.wikipedia.org/wiki/Tripoli)。
+	- ### 16日
+		- [伊拉克](https://en.wikipedia.org/wiki/Iraq)向轴心国宣战。[皇家空军](https://en.wikipedia.org/wiki/Royal_Air_Force)开始对[柏林](https://en.wikipedia.org/wiki/Berlin)进行为期两天的轰炸。
+	- ### 18日
+		- [犹太人](https://en.wikipedia.org/wiki/Jews)在[华沙犹太人](https://en.wikipedia.org/wiki/Warsaw_Ghetto)奋起，第一次，开始[华沙犹太区起义](https://en.wikipedia.org/wiki/Warsaw_Ghetto_Uprising)。列宁格勒被围困的守军与救援部队会合。
+	- ### 19日
+		- 随着斯大林格勒的斗争接近尾声，[格奥尔基·朱可夫](https://en.wikipedia.org/wiki/Georgy_Zhukov)将军被提升为元帅。
+	- ### 20日
+		- [USSSilversides](https://en.wikipedia.org/wiki/USS_Silversides_(SS-236))在前往所罗门群岛的途中袭击了距离[特鲁克](https://en.wikipedia.org/wiki/Chuuk_Lagoon)286英里的日本车队，击沉了运输机MeiuMaru并损坏了SurabayaMaru。
+	- ### 21日
+		- 斯大林格勒的最后一个机场被红军占领，确保[德国空军](https://en.wikipedia.org/wiki/Luftwaffe)无法继续为德军提供补给；希特勒要求[弗里德里希·保卢斯](https://en.wikipedia.org/wiki/Friedrich_Paulus)继续战斗，并提拔保卢斯为陆军元帅以鼓舞士气。红军在高加索取得了更多的胜利。
+	- ### 22日
+		- 盟军解放新几内亚的[萨那南达](https://en.wikipedia.org/wiki/Sanananda)。
+	- ### 23日
+		- 英国占领利比亚的黎波里。日军在[瓜达尔卡纳尔岛](https://en.wikipedia.org/wiki/Guadalcanal)西部继续战斗；他们现在似乎已经完全放弃了[新几内亚战役](https://en.wikipedia.org/wiki/New_Guinea_campaign)。
+	- ### 24日
+		- 卡萨布兰卡会议结束；盟国坚持要求德国无条件投降。在斯大林格勒的德军处于崩溃的最后阶段。
+	- ### 25日
+		- [美国](https://en.wikipedia.org/wiki/United_States) [第十四军](https://en.wikipedia.org/wiki/XIV_Corps_(United_States))抵达太平洋战区。
+	- ### 26日
+		- 苏军收复[沃罗涅日](https://en.wikipedia.org/wiki/Voronezh)。
+	- ### 27日
+		- 2750轰炸机对德国进行了首次全美国[空袭](https://en.wikipedia.org/wiki/Airstrike)。大型海军基地威廉港是主要目标。
+	- ### 28日
+		- 德国新的征兵法16至65岁的男性和17至50岁的女性可以动员。：乔治·朱可夫授予[苏沃洛夫](https://en.wikipedia.org/wiki/Order_of_Suvorov)一等勋章。
+	- ### 29日
+		- 瓜达尔卡纳尔[岛](https://en.wikipedia.org/wiki/Battle_of_Rennell_Island)附近的伦内尔岛海战开始。日本人击败美国人，芝加哥[号战舰](https://en.wikipedia.org/wiki/USS_Chicago_(CA-29))失利。英国皇家空军又一次对柏林进行了为期两天的轰炸。
+	- ### 30日
+		- 最后一批日本人在未被美军发现的情况下撤离了瓜达尔卡纳尔岛。在他掌权十周年之际，希特勒发表演讲，将保卢斯将军提升为陆军元帅。这包括提醒德国陆军元帅从未投降或被俘。
+	- ### 31日
+		- 弗里德里希保卢斯（[Generalfeldmarschall](https://en.wikipedia.org/wiki/Field_Marshal_(Germany))在德国的命令[第六军](https://en.wikipedia.org/wiki/6th_Army_(Wehrmacht))）和他的工作人员投降苏联军队在斯大林格勒，第一次德国陆军元帅丢失投降，从而捕获敌人。
+- ## 2月
+	- ### 2日
+		- 在[苏联](https://en.wikipedia.org/wiki/Soviet_Union)，[斯大林格勒战役](https://en.wikipedia.org/wiki/Battle_of_Stalingrad)随着德国第6集团军的正式投降而结束。德国公众获悉这场灾难，这是纳粹政府首次承认战争失败。[隆美尔](https://en.wikipedia.org/wiki/Erwin_Rommel)进一步撤退到[突尼斯](https://en.wikipedia.org/wiki/Tunisia)，在[马雷斯防线](https://en.wikipedia.org/wiki/Mareth_Line)建立他的部队。两天之内，盟军部队首次进入突尼斯。
+	- ### 5日
+		- 盟军现在控制了整个利比亚。埃森遭到轰炸，标志着对鲁尔工业区为期四个月的袭击开始。
+	- ### 7日
+		- 在美国，宣布鞋子配给将在两天后生效。
+	- ### 8日
+		- 英国将军奥德·温盖特(OrdeWingate)领导下的[Chindits](https://en.wikipedia.org/wiki/Chindits)（一个“远程渗透小组”）开始入侵缅甸。纽伦堡被严重轰炸。：美国第六军抵达北非。
+	- ### 9日
+		- 瓜达尔卡纳尔岛终于安全了；这是美国在太平洋战争中进攻的第一个重大成就。慕尼黑和维也纳以及柏林都遭到了猛烈轰炸。
+	- ### 11日
+		- 美国将军[德怀特·D·艾森豪威尔](https://en.wikipedia.org/wiki/Dwight_D._Eisenhower)被选中指挥欧洲的盟军。
+	- ### 13日
+		- 隆美尔对突尼斯西部的美国人发起反击；他带走了[SidiBouzid](https://en.wikipedia.org/wiki/Sidi_Bouzid)和[Gafsa](https://en.wikipedia.org/wiki/Gafsa)。在[该凯塞林山口战役](https://en.wikipedia.org/wiki/Battle_of_the_Kasserine_Pass)开始了没有经验的美国军队很快被迫撤退。
+	- ### 14日
+		- [顿河畔罗斯托夫](https://en.wikipedia.org/wiki/Rostov-on-Don)被红军解放。
+	- ### 16日
+		- [苏联](https://en.wikipedia.org/wiki/Soviet_Union)重新征服[哈尔科夫](https://en.wikipedia.org/wiki/Kharkov)，但后来在[第三次哈尔科夫战役中](https://en.wikipedia.org/wiki/Third_Battle_of_Kharkov)被驱逐。[总理](https://en.wikipedia.org/wiki/Prime_Minister_of_France)的[维希法国](https://en.wikipedia.org/wiki/Vichy_France) [皮埃尔·拉瓦尔](https://en.wikipedia.org/wiki/Pierre_Laval)和[司法部长](https://en.wikipedia.org/wiki/Ministry_of_Justice_(France)) [约瑟夫·巴尔米](https://en.wikipedia.org/wiki/Joseph_Barth%C3%A9lemy)正式创建的[服务都劳苦obligatoire](https://en.wikipedia.org/wiki/Service_du_travail_obligatoire)（STO）。
+	- ### 18日
+		- 在[柏林Sportpalast](https://en.wikipedia.org/wiki/Sportpalast_speech)的演讲中，德国宣传部长约瑟夫·戈培尔(JosephGoebbels)宣布对盟军发动“[全面战争](https://en.wikipedia.org/wiki/Total_war)”；纳粹逮捕了反纳粹青年组织[白玫瑰](https://en.wikipedia.org/wiki/White_Rose)运动的成员。温盖特领导下的中国人切断了[曼德勒](https://en.wikipedia.org/wiki/Mandalay)和[密支那](https://en.wikipedia.org/wiki/Myitkyina)之间的铁路线。
+	- ### 21日
+		- 美国人占领罗素群岛，所罗门群岛的一部分。
+	- ### 22日
+		- 白玫瑰运动的[汉斯](https://en.wikipedia.org/wiki/Hans_Scholl)和[索菲·肖尔](https://en.wikipedia.org/wiki/Sophie_Scholl)被处决。
+		- 日本战俘拒绝在[费瑟斯顿战俘营工作](https://en.wikipedia.org/wiki/Featherston_prisoner_of_war_camp)；这升级为囚犯和看守之间的致命冲突。
+	- ### 26日
+		- 隆美尔从突尼斯的[马雷斯防线](https://en.wikipedia.org/wiki/Mareth_Line)向北撤退。
+	- ### 28日
+		- 枪手[行动](https://en.wikipedia.org/wiki/Operation_Gunnerside)[约阿希姆·伦内伯格](https://en.wikipedia.org/wiki/Joachim_R%C3%B8nneberg)(JoachimRønneberg)带领的六名挪威人成功袭击了重水厂威莫克([Vemork)](https://en.wikipedia.org/wiki/Vemork)。
+- ## 3月
+	- ### 1日
+		- [海因茨·古德里安](https://en.wikipedia.org/wiki/Heinz_Guderian)成为德国陆军装甲部队监察长。
+	- ### 2日
+		- [俾斯麦海海战](https://en.wikipedia.org/wiki/Battle_of_the_Bismarck_Sea)。在三天的时间里，美国和澳大利亚海军在新几内亚附近击沉了八艘日本部队。Wingate的Chindits继续在缅甸进行局部罢工。
+	- ### 5日
+		- 德国在哈尔科夫附近的推进威胁到了红军早期的收获。英国皇家空军继续轰炸鲁尔河谷，尤其是埃森。
+	- ### 6日
+		- 突尼斯[梅德宁之战](https://en.wikipedia.org/wiki/Battle_of_Medenine)。隆美尔被迫撤退，这是他在非洲的最后一场战斗。
+	- ### 8日
+		- 德军在哈尔科夫附近继续反击。
+	- ### 9日
+		- 9月9日[加尔各答轻马的](https://en.wikipedia.org/wiki/Calcutta_Light_Horse)成员对德国商船进行秘密攻击，该商船一直在将盟军的阵地从位于葡萄牙中立保护国印度领土果阿的莫尔穆高港传送到[U型潜艇](https://en.wikipedia.org/wiki/U-boat)。
+	- ### 10日
+		- 美国空军[第14航空队](https://en.wikipedia.org/wiki/Fourteenth_Air_Force)在中国成立，由前“飞虎队”负责人[克莱尔·李·陈纳德将军](https://en.wikipedia.org/wiki/Claire_Lee_Chennault)领导。美国众议院投票延长租借计划。
+	- ### 11日
+		- 德军进入哈尔科夫，与红军的激烈斗争仍在继续。
+	- ### 12日
+		- 12希腊的[卡迪察](https://en.wikipedia.org/wiki/Karditsa)成为欧洲第一个从[纳粹](https://en.wikipedia.org/wiki/Nazi)占领中解放出来的城市，这是在希腊人民解放军[ELAS的](https://en.wikipedia.org/wiki/Greek_People%27s_Liberation_Army)一场战役之后。
+	- ### 13日
+		- 德国军队清理了[克拉科夫](https://en.wikipedia.org/wiki/Krak%C3%B3w)的犹太人聚居区。
+	- ### 14日
+		- 德军收复哈尔科夫。
+	- ### 16日
+		- 关于[波兰卡廷大屠杀](https://en.wikipedia.org/wiki/Katyn_massacre)的第一次报道渗透到西方；报道称，内务人民[委员部](https://en.wikipedia.org/wiki/NKVD)杀害了22,000多名战俘，他们最终将屠杀归咎于德国人。斯大林第九次要求“第二战线”，指责他的盟友背叛。
+	- ### 17日
+		- 由于U艇活动增加，大西洋的护航损失惨重；大西洋中部显然没有被飞机或船只充分覆盖。
+	- ### 18日
+		- 将军[乔治·巴顿](https://en.wikipedia.org/wiki/George_S._Patton)带领他的坦克[II军团](https://en.wikipedia.org/wiki/II_Corps_(United_States))进入[加夫萨](https://en.wikipedia.org/wiki/Gafsa)，突尼斯。
+	- ### 20日
+		- [蒙哥马利](https://en.wikipedia.org/wiki/Bernard_Montgomery,_1st_Viscount_Montgomery_of_Alamein)的部队在突尼斯开始突破，打击马雷斯防线。
+	- ### 23日
+		- 美国坦克在[突尼斯埃尔盖塔](https://en.wikipedia.org/wiki/El_Guettar,_Tunisia)击败德国人。
+	- ### 26日
+		- 英军突破突尼斯南部的马雷斯防线，威胁到整个德军。德国人向北移动。[科曼多斯基群岛之战](https://en.wikipedia.org/wiki/Battle_of_the_Komandorski_Islands)。在[阿留申群岛](https://en.wikipedia.org/wiki/Aleutian_Islands) [，美国海军](https://en.wikipedia.org/wiki/United_States_Navy)部队拦截了日本试图增援[基斯卡](https://en.wikipedia.org/wiki/Kiska)的驻军。双方领导不力导致各种僵局，日本人没有达到目标就撤退。
+- ## 4月
+	- ### 1日
+		- 盟军继续将德军挤进突尼斯的角落。
+	- ### 3日
+		- 美国海军陆战队和新西兰[毛利人](https://en.wikipedia.org/wiki/M%C4%81ori_people)军队之间的种族紧张导致[了礼仪街之战，](https://en.wikipedia.org/wiki/Battle_of_Manners_Street)这是一场没有人员伤亡的小规模骚乱。
+	- ### 4日
+		- 唯一的盟军战俘的军舰从日本在太平洋的大规模越狱发生时，10名美国战俘和两名菲律宾囚犯打破了出来[达沃流放](https://en.wikipedia.org/wiki/Davao_Penal_Colony)的岛屿[棉兰老岛](https://en.wikipedia.org/wiki/Mindanao)菲律宾南部。逃脱的战俘是第一个宣布臭名昭著的[巴丹死亡行军](https://en.wikipedia.org/wiki/Bataan_Death_March)和日本人对世界犯下的其他暴行的消息。
+	- ### 7日
+		- 希特勒和墨索里尼在[萨尔茨堡](https://en.wikipedia.org/wiki/Salzburg)会合，主要是为了支撑墨索里尼日渐衰退的士气。盟军——来自西方的美国人，来自东方的英国人——在突尼斯的加夫萨附近会合。：[玻利维亚](https://en.wikipedia.org/wiki/Bolivia)向德国、日本和意大利宣战。
+	- ### 10日
+		- 英国第8集团军进入[斯法克斯](https://en.wikipedia.org/wiki/Sfax)，突尼斯。
+	- ### 13日
+		- 柏林电台宣布[国防军](https://en.wikipedia.org/wiki/Wehrmacht)发现了据称在[卡廷大屠杀中](https://en.wikipedia.org/wiki/Katyn_massacre)被苏联人杀害的波兰人乱葬坑。
+	- ### 15日
+		- [芬兰](https://en.wikipedia.org/wiki/Finland)正式拒绝苏联的和平条款。英国皇家空军对斯图加特的大规模袭击。
+	- ### 18日
+		- 日本海军战略的首席设计师[山本五十六](https://en.wikipedia.org/wiki/Isoroku_Yamamoto)上将在他的飞机在布干维尔上空被美国[P38](https://en.wikipedia.org/wiki/Lockheed_P-38_Lightning)飞机击落时丧生。他正在视察中。[“棕榈星期日大屠杀”](https://en.wikipedia.org/wiki/Operation_Flax)：大量德国运兵飞机在抵达突尼斯之前被击落，他们将在那里接走被孤立的德军。
+	- ### 19日
+		- [华沙隔都起义](https://en.wikipedia.org/wiki/Warsaw_Ghetto_uprising)在逾越节前夕，犹太人抵制德国驱逐犹太人社区的企图。
+		- 在被占领的[比利时](https://en.wikipedia.org/wiki/Belgium)，游击队袭击了将比利时犹太人运送到奥斯威辛集中营[的铁路车队](https://en.wikipedia.org/wiki/Twentieth_convoy)。这是对战争期间[大屠杀列车](https://en.wikipedia.org/wiki/Holocaust_train)的最大规模袭击，236名犹太人逃跑。
+	- ### 19日-30日
+		- [百慕大会议](https://en.wikipedia.org/wiki/Bermuda_Conference)在[百慕大汉密尔顿](https://en.wikipedia.org/wiki/Hamilton,_Bermuda)举行。英国和美国领导人讨论欧洲犹太人的困境。
+	- ### 26日
+		- 英国人终于在突尼斯攻下了“LongstopHill”，这是突尼斯突围之路上的关键阵地。
+	- ### 28日
+		- 盟军试图用远程轰炸机缩小与U型潜艇的战争中大西洋中部的差距。
+	- ### 30日
+		- [肉馅行动](https://en.wikipedia.org/wiki/Operation_Mincemeat)朱厄尔中尉的船员在西班牙海岸附近释放了一具带有虚假文件的尸体。后来，尸体被冲上西班牙海岸，被当地渔民发现。他们将继续误导德国人关于盟军入侵西西里岛的地点和时间。
+- ## 5月
+	- ### 1日
+		- 盟军在突尼斯地区逼近陷入困境的德国人。
+	- ### 2日
+		- 日本飞机再次轰炸澳大利亚[达尔文](https://en.wikipedia.org/wiki/Darwin,_Northern_Territory)。
+	- ### 7日
+		- [突尼斯](https://en.wikipedia.org/wiki/Tunis)被英国第一军俘虏。与此同时，美国人占领了比塞大。
+	- ### 9日
+		- 日本人开始对平民进行为期三天的屠杀；在[长郊大屠杀](https://en.wikipedia.org/wiki/Changjiao_massacre)中，大约有30,000名中国人被杀。
+	- ### 11日
+		- 美国和加拿大军队[入侵阿](https://en.wikipedia.org/wiki/Battle_of_the_Aleutian_Islands)留申群岛的阿图岛，企图驱逐日本占领军。
+	- ### 12日
+		- [三叉戟会议](https://en.wikipedia.org/wiki/Washington_Conference_(1943))在[华盛顿](https://en.wikipedia.org/wiki/Washington,_D.C.)开始，富兰克林·D·罗斯福和温斯顿·丘吉尔参加。讨论主要是关于未来的战略。
+	- ### 13日
+		- 在北非的剩余德国[非洲军团](https://en.wikipedia.org/wiki/Afrika_Korps)和意大利军队向盟军投降。盟军俘虏了超过250,000名囚犯。
+	- ### 15日
+		- 法国人组成“抵抗运动”。
+	- ### 16日
+		- [华沙隔都起义](https://en.wikipedia.org/wiki/Warsaw_Ghetto_Uprising)结束。贫民区已被破坏，有大约14000犹太人死亡，约的4万人送往[死亡集中营](https://en.wikipedia.org/wiki/Death_camps)在[马伊达内克](https://en.wikipedia.org/wiki/Majdanek)和[特雷布林卡](https://en.wikipedia.org/wiki/Treblinka)。[DambusterRaids](https://en.wikipedia.org/wiki/Operation_Chastise)由英国皇家空军617中队对两个德国水坝Mohne和Eder进行。鲁尔军工企业失去电力。
+	- ### 17日
+		- 德国人对南斯拉夫的铁托游击队发动了[第五次](https://en.wikipedia.org/wiki/Case_Black)重大攻势。
+	- ### 19日
+		- [温斯顿·丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)在[美国国会](https://en.wikipedia.org/wiki/U.S._Congress)联席会议上发表讲话。他赞扬了两个盟国的伙伴关系。
+	- ### 22日
+		- 盟军轰炸西西里岛和撒丁岛，这两个可能的登陆点。
+	- ### 24日
+		- 由于盟军新的反潜战术损失惨重，[卡尔·邓尼茨](https://en.wikipedia.org/wiki/Karl_D%C3%B6nitz)海军上将命令大部分U型潜艇从大西洋撤出。到月底，有43艘U型潜艇被击沉，而盟军则有34艘舰船沉没。这被称为“黑五月”。JosefMengele成为奥斯威辛集中营的首席医疗官。
+	- ### 29日
+		- 英国皇家空军轰炸伍珀塔尔，造成重大平民损失。
+	- ### 30日
+		- 阿图岛再次受美国控制。
+	- ### 31日
+		- 美国[B-17](https://en.wikipedia.org/wiki/B-17_Flying_Fortress)的炸弹那不勒斯。
+- ## 6月
+	- ### 4日
+		- [亨利·吉罗](https://en.wikipedia.org/wiki/Henri_Giraud)将军成为[自由法国](https://en.wikipedia.org/wiki/Free_French)军队的总司令。
+	- ### 8日
+		- 日军开始撤离阿留申群岛的基斯卡岛，这是他们在西半球的最后据点。事件快到他们登陆的那一年了。
+	- ### 11日
+		- 英国第1师占领了位于突尼斯和西西里岛之间的意大利[潘泰莱里亚](https://en.wikipedia.org/wiki/Pantelleria)岛，俘获了11,000名意大利军队。
+	- ### 12日
+		- 位于突尼斯和西西里岛之间的意大利[兰佩杜萨](https://en.wikipedia.org/wiki/Lampedusa)岛向盟军投降。
+	- ### 13日
+		- 美国飞机在[基尔](https://en.wikipedia.org/wiki/Kiel)上空损失惨重。
+	- ### 17日
+		- 盟军轰炸西西里岛和意大利本土，随着即将到来的入侵迹象增多。
+	- ### 21日
+		- 随着美国海军陆战队第4突击营登陆所罗门群岛新乔治亚岛的塞吉角，[“手推车行动”](https://en.wikipedia.org/wiki/Operation_Cartwheel)开始，新乔治亚战役开始。它要到八月才能得到保障。
+	- ### 23日
+		- 美军在靠近新几内亚的[特罗布里恩群岛](https://en.wikipedia.org/wiki/Trobriand_Islands)登陆。美国的“[跳岛](https://en.wikipedia.org/wiki/Island_hopping)”战略继续推进西南太平洋。
+	- ### 24日
+		- 对鲁尔工业谷的持续攻击。结果之一是大量德国平民撤离该地区。
+	- ### 30日
+		- 美军登陆新乔治亚州的[伦多瓦岛](https://en.wikipedia.org/wiki/Rendova_Island)，这是手推车行动的另一部分。
+- ## 7月
+	- ### 4日
+		- [流亡的波兰](https://en.wikipedia.org/wiki/Polish_government-in-exile)领导人[瓦迪斯瓦夫·西科尔斯基将军](https://en.wikipedia.org/wiki/W%C5%82adys%C5%82aw_Sikorski#Death)在直布罗陀的一次空难中丧生。
+	- ### 5日
+		- 城堡行动（[库尔斯克战役](https://en.wikipedia.org/wiki/Battle_of_Kursk)）开始。在被占领的希腊[缔结国家乐队协议](https://en.wikipedia.org/wiki/National_Bands_Agreement)，以协调希腊抵抗运动的行动。
+	- ### 6日
+		- 美日舰船在所罗门群岛打[库拉湾海战](https://en.wikipedia.org/wiki/Battle_of_Kula_Gulf)。
+	- ### 7日
+		- [沃尔特·多恩伯格](https://en.wikipedia.org/wiki/Walter_Dornberger)向希特勒简要介绍了[V-2火箭](https://en.wikipedia.org/wiki/V-2_rocket)，希特勒批准了该项目的首要任务。
+	- ### 10日
+		- 哈士奇行动（[盟军入侵西西里岛](https://en.wikipedia.org/wiki/Allied_invasion_of_Sicily)）开始。
+	- ### 11日
+		- [乌克兰](https://en.wikipedia.org/wiki/Ukrainian_Insurgent_Army)[起义](https://en.wikipedia.org/wiki/Dominopol)军在多米诺波尔屠杀波兰人。
+	- ### 12日
+		- 12/:13：日军在[科隆班加拉战役中](https://en.wikipedia.org/wiki/Battle_of_Kolombangara)取得战术胜利。
+		- [普罗霍罗夫卡战役](https://en.wikipedia.org/wiki/Battle_of_Prokhorovka)开始；人类历史上最大规模的坦克战，库尔斯克战役的一部分，是堡垒行动的关键战役。
+	- ### 13日
+		- 希特勒取消库尔斯克攻势，但苏军继续战斗。
+	- ### 19日
+		- 盟军第一次[轰炸罗马](https://en.wikipedia.org/wiki/Bombing_of_Rome_in_World_War_II#Subsequent_raids)。
+	- ### 21日
+		- 该[操作好战](https://en.wikipedia.org/wiki/Operation_Bellicose)Friedrichshafen的靶向[维尔茨雷达](https://en.wikipedia.org/wiki/W%C3%BCrzburg_radar)是一个的第一轰炸[V-2火箭](https://en.wikipedia.org/wiki/V-2_rocket)设施。
+	- ### 22日
+		- 巴顿指挥的美军攻占西西里岛[巴勒莫](https://en.wikipedia.org/wiki/Palermo)。
+	- ### 23日
+		- 美国空军订购了计划中的[康维尔B-36](https://en.wikipedia.org/wiki/Convair_B-36)六引擎洲际战略轰炸机的前100架。
+	- ### 24日
+		- 德国汉堡在蛾摩拉行动中[遭到严重轰炸](https://en.wikipedia.org/wiki/Bombing_of_Hamburg_in_World_War_II)，这是当时[航空史上](https://en.wikipedia.org/wiki/History_of_aviation)最重的攻击。
+	- ### 25日
+		- 墨索里尼在与意大利国王[维克多·伊曼纽尔三世](https://en.wikipedia.org/wiki/Victor_Emmanuel_III_of_Italy)会面后被捕并被解除职务，后者选择[彼得罗·巴多格里奥](https://en.wikipedia.org/wiki/Pietro_Badoglio)元帅组建新政府。
+- ## 8月
+	- ### 1日
+		- [操作浪潮](https://en.wikipedia.org/wiki/Operation_Tidal_Wave)炼油厂在[普洛耶什蒂](https://en.wikipedia.org/wiki/Ploie%C8%99ti)，[罗马尼亚](https://en.wikipedia.org/wiki/Romania)，被炸毁[美国IX轰炸机命令](https://en.wikipedia.org/wiki/19th_Air_Division)。:日本宣布巴莫统治下[的缅甸](https://en.wikipedia.org/wiki/State_of_Burma)独立。
+	- ### 2日
+		- 22,897[罗姆人](https://en.wikipedia.org/wiki/Romani_people)在[奥斯威辛集中营](https://en.wikipedia.org/wiki/Auschwitz_concentration_camp#The_Gypsy_camp)被清理时被毒死。：[约翰·F·肯尼迪的](https://en.wikipedia.org/wiki/John_F._Kennedy#Military_service) [PT-109](https://en.wikipedia.org/wiki/Motor_Torpedo_Boat_PT-109)被撞成两半，在[所罗门群岛](https://en.wikipedia.org/wiki/Solomon_Islands_(archipelago))沉没。
+	- ### 3日
+		- 两起“[乔治·S·巴顿耳光事件](https://en.wikipedia.org/wiki/George_S._Patton_slapping_incidents)”中的第一起发生在西西里岛。
+	- ### 5日
+		- 瑞典政府宣布不再允许德国军队和战争物资[通过瑞典铁路](https://en.wikipedia.org/wiki/Transit_of_German_troops_through_Finland_and_Sweden)。俄国人夺回[奥廖尔](https://en.wikipedia.org/wiki/Oryol)和[别尔哥罗德](https://en.wikipedia.org/wiki/Belgorod)。
+	- ### 6日
+		- 6/7美国胜[维拉湾海战](https://en.wikipedia.org/wiki/Battle_of_Vella_Gulf)关闭[科隆班加拉岛](https://en.wikipedia.org/wiki/Kolombangara)在所罗门群岛。
+		- 德国军队开始涌入接管意大利的防御。
+	- ### 11日
+		- 德国和意大利军队开始撤离西西里岛。
+	- ### 15日
+		- 所罗门群岛[维拉拉维拉](https://en.wikipedia.org/wiki/Land_Battle_of_Vella_Lavella)岛的陆战开始。美国和加拿大军队入侵阿留申群岛的基斯卡岛，不知道日本人已经撤离。
+	- ### 16日
+		- 波兰犹太人在[比亚韦斯托克](https://en.wikipedia.org/wiki/Bia%C5%82ystok_Ghetto_Uprising)开始以缺乏武器进行抵抗。领导者在弹药用完时[自杀](https://en.wikipedia.org/wiki/Suicide)。美军进入西西里岛[墨西拿](https://en.wikipedia.org/wiki/Messina)。
+	- ### 17日
+		- 现在整个西西里岛都由盟军控制。在[施魏因富特-雷根斯堡任务](https://en.wikipedia.org/wiki/Schweinfurt%E2%80%93Regensburg_mission)中盟军轰炸机损失惨重。：当英国皇家空军轰炸佩内明德V-2火箭设施时，[十字弓行动](https://en.wikipedia.org/wiki/Operation_Crossbow)开始于[九头蛇行动](https://en.wikipedia.org/wiki/Operation_Hydra_(1943))。
+		- 17/18[葡萄牙](https://en.wikipedia.org/wiki/Portugal)参考[1373年](https://en.wikipedia.org/wiki/Anglo-Portuguese_Treaty_of_1373)的英葡条约，允许盟军将[亚速尔群岛](https://en.wikipedia.org/wiki/Azores_Islands)用作空军和海军基地。
+	- ### 19日
+		- 罗斯福和丘吉尔在魁北克会议期间签署了[魁北克协议](https://en.wikipedia.org/wiki/Quebec_Agreement)。
+	- ### 23日
+		- [PolkovodetsRumyantsev行动](https://en.wikipedia.org/wiki/Operation_Polkovodets_Rumyantsev)解放了乌克兰的[哈尔科夫](https://en.wikipedia.org/wiki/Kharkiv)。库尔斯克战役已成为苏联夏季战争中第一次成功的重大攻势。
+	- ### 29日
+		- 在[纳粹德国占领丹麦](https://en.wikipedia.org/wiki/Occupation_of_Denmark_by_Nazi_Germany)期间，戒严令取代了丹麦政府。
+	- ### 31日
+		- [西北非洲空军](https://en.wikipedia.org/wiki/Northwest_African_Air_Forces)对意大利[比萨](https://en.wikipedia.org/wiki/Pisa)市进行空袭。
+- ## 9月
+	- ### 1日
+		- 根据英国劳工部的数据，有22,750,000名英国男性和女性在服役或民防部门或从事必要的战争工作。
+	- ### 3日
+		- 签署秘密的意大利停战协定，意大利退出战争。当英国第23军在雷焦卡拉布里亚登陆时，[意大利](https://en.wikipedia.org/wiki/Italy)本土被[入侵](https://en.wikipedia.org/wiki/Allied_invasion_of_Italy)。纳粹德国开始从柏林撤离平民。
+	- ### 4日
+		- 苏联对保加利亚宣战。美国将军道格拉斯·麦克阿瑟(DouglasMacArthur)领导的[第503伞兵团](https://en.wikipedia.org/wiki/503rd_Infantry_Regiment_(United_States))登陆并占领了新几内亚东北部港口城市莱城以西的纳扎布。Lae落入澳大利亚人手中，澳大利亚军队占领了Salamaua。
+	- ### 8日
+		- 艾森豪威尔公开宣布[意大利](https://en.wikipedia.org/wiki/Armistice_of_Cassibile)向盟军投降。德国人制定了[Achse行动](https://en.wikipedia.org/wiki/Operation_Achse)，即解除意大利武装部队的武装。美国空军轰炸了位于[弗拉斯卡蒂](https://en.wikipedia.org/wiki/Frascati)的地中海地区德国总部。
+	- ### 9日
+		- 盟军在意大利的萨勒诺登陆；与此同时，英国军队将[塔兰托](https://en.wikipedia.org/wiki/Taranto)作为意大利“靴子”的后跟。盟军战略的目标是“驱赶”“引导”。[伊朗](https://en.wikipedia.org/wiki/Iran)对德国宣战。
+	- ### 10日
+		- 德军占领[罗马](https://en.wikipedia.org/wiki/Rome)。与此同时，意大利舰队在马耳他和其他地中海港口投降。
+	- ### 11日
+		- 英国军队进入意大利东南部的[巴里](https://en.wikipedia.org/wiki/Bari)。
+	- ### 12日
+		- 墨索里尼被[奥托·斯科尔泽尼](https://en.wikipedia.org/wiki/Otto_Skorzeny)(OttoSkorzeny)率领的德国党卫军从山顶俘虏的飞机救出。墨索里尼随后被忠于老朋友的希特勒任命为傀儡“[意大利社会共和国](https://en.wikipedia.org/wiki/Italian_Social_Republic)”的首领。
+	- ### 13日
+		- 随着德国反击的增加，萨勒诺滩头阵地处于危险之中。
+	- ### 14日
+		- 德国军队在克里特岛开始[对维亚诺斯](https://en.wikipedia.org/wiki/Holocaust_of_Viannos)的大屠杀，这将持续两天。
+	- ### 15日
+		- [蒋介石](https://en.wikipedia.org/wiki/Chiang_Kai-shek)要求召回美国军事顾问/指挥官史迪威将军，因为他建议与共产党结盟。
+	- ### 16日
+		- 英军登陆爱琴海的多个意大利控制的希腊岛屿，开始了[多德卡尼斯战役](https://en.wikipedia.org/wiki/Dodecanese_Campaign)。英国和美国军队在萨勒诺滩头阵地附近会合。
+	- ### 19日
+		- 德军撤离[撒丁岛](https://en.wikipedia.org/wiki/Sardinia)。
+	- ### 21日
+		- 所罗门之战现在可以被视为非官方结束。[阿奎师大屠杀](https://en.wikipedia.org/wiki/Massacre_of_the_Acqui_Division)开始：经过一周的抵抗，希腊凯法隆尼亚岛上的意大利阿奎师向德国人投降。在接下来的几天里，超过4,500名意大利人被处决，另有3,000人在海上运输途中失踪。
+	- ### 22日
+		- 澳大利亚军队在新几内亚的一个小港口[芬斯哈芬](https://en.wikipedia.org/wiki/Finschhafen)登陆。日本人继续战斗到十月。英国[小型潜艇](https://en.wikipedia.org/wiki/Midget_submarine)袭击了停泊在挪威峡湾的[德国战舰提尔皮茨号](https://en.wikipedia.org/wiki/German_battleship_Tirpitz)，使她瘫痪了六个月。
+	- ### 25日
+		- 红军收复[斯摩棱斯克](https://en.wikipedia.org/wiki/Smolensk)。
+	- ### 26日
+		- 德军进攻莱罗斯岛，莱罗斯[战役](https://en.wikipedia.org/wiki/Battle_of_Leros)开始。
+	- ### 27日
+		- 德国人从之前的占领者意大利手中接管了[科孚岛](https://en.wikipedia.org/wiki/Corfu)。 [盛世才](https://en.wikipedia.org/wiki/Sheng_Shicai)被[毛泽东](https://en.wikipedia.org/wiki/Mao_Zedong)的弟弟[毛泽民](https://en.wikipedia.org/wiki/Mao_Zemin)和中国共产党创始人[陈潭秋](https://en.wikipedia.org/wiki/Chen_Tanqiu)处决。
+	- ### 28日
+		- [那不勒斯](https://en.wikipedia.org/wiki/Naples)人民感受到盟军的逼近，[起来](https://en.wikipedia.org/wiki/Four_days_of_Naples)反抗德国占领者。
+	- ### 30日
+		- 随着盖世太保开始围捕丹麦犹太人，某些丹麦人通过危险的渡船方式秘密地将他们的犹太同胞送到瑞典。
+- ## 10月
+	- ### 1日
+		- [那不勒斯人完成他们的起义并将那不勒斯从德国的军事占领中解放出来。](https://en.wikipedia.org/wiki/Naples#Italian_unification.2C_present_day)。
+	- ### 3日
+		- 丘吉尔任命[路易斯·蒙巴顿勋爵](https://en.wikipedia.org/wiki/Louis_Mountbatten,_1st_Earl_Mountbatten_of_Burma)为[东南亚司令部司令](https://en.wikipedia.org/wiki/South-East_Asian_theatre_of_World_War_II#Allied_command_structure)。
+		- 德国人[征服科斯岛](https://en.wikipedia.org/wiki/Battle_of_Kos)。
+	- ### 4日
+		- [科西嘉](https://en.wikipedia.org/wiki/Corsica#History)被自由法国军队解放。
+	- ### 5日
+		- 盟军越过意大利的[沃尔图诺防线](https://en.wikipedia.org/wiki/Volturno_Line)。
+	- ### 6日
+		- [VellaLavella海战](https://en.wikipedia.org/wiki/Naval_Battle_of_Vella_Lavella)完成了[“手推车行动”](https://en.wikipedia.org/wiki/Operation_Cartwheel)的第二阶段。
+	- ### 7日
+		- [日本人](https://en.wikipedia.org/wiki/Battle_of_Wake_Island#War_crimes)在[威克岛](https://en.wikipedia.org/wiki/Wake_Island)处决了98名美国平民。
+	- ### 9日
+		- [美国](https://en.wikipedia.org/wiki/United_States) [第七军](https://en.wikipedia.org/wiki/VII_Corps_(United_States))抵达欧洲战区。
+	- ### 10日
+		- [蒋介石](https://en.wikipedia.org/wiki/Chiang_Kai-shek)宣誓就[任国民政府（中国）](https://en.wikipedia.org/wiki/Nationalist_Government_(China))主席。
+	- ### 12日
+		- 12[车轮行动](https://en.wikipedia.org/wiki/Bombing_of_Rabaul_(November_1943)#Land_based_air_attacks)开始对[拉包尔](https://en.wikipedia.org/wiki/Battle_of_Rabaul_(1942)#Aftermath)进行轰炸。
+	- ### 13日
+		- [意大利](https://en.wikipedia.org/wiki/Pietro_Badoglio)对[德国宣战](https://en.wikipedia.org/wiki/Germany)。
+	- ### 14日
+		- 292[架B-17中有](https://en.wikipedia.org/wiki/B-17_Flying_Fortress)229架[在施韦因富特](https://en.wikipedia.org/wiki/Second_Raid_on_Schweinfurt)的第二次突袭中达到了目标。损失如此之大，以至于远程日间轰炸活动暂停，直到轰炸机可以由P-51战斗机护航。[索比堡](https://en.wikipedia.org/wiki/Sobibor_extermination_camp)地下灭绝营的成员，由波兰犹太战俘[LeonFeldhendler](https://en.wikipedia.org/wiki/Leon_Feldhendler)和苏联犹太战俘[亚历山大Pechersky](https://en.wikipedia.org/wiki/Alexander_Pechersky)领导，成功暗中杀害了11名德国党卫军军官和一些营地守卫。虽然他们的计划是杀死所有党卫军并走出营地正门，但杀戮被发现，囚犯们在炮火下逃命。集中营的600名囚犯中约有300人逃到了森林中。
+	- ### 18日
+		- [第三届莫斯科会议](https://en.wikipedia.org/wiki/Moscow_Conference_(1943))召开。
+	- ### 19日
+		- 德国战争办公室与[Mittelwerk](https://en.wikipedia.org/wiki/Mittelwerk)签订合同，生产12,000[枚V-2火箭](https://en.wikipedia.org/wiki/V-2_rocket)。
+	- ### 22日
+		- 22/23[对卡塞尔的空袭](https://en.wikipedia.org/wiki/Bombing_of_Kassel_in_World_War_II)引发了为期7天的[风暴](https://en.wikipedia.org/wiki/Firestorm)。
+	- ### 23日
+		- 23巡洋舰[HMSCharybdis](https://en.wikipedia.org/wiki/HMS_Charybdis_(88))沉没，驱逐舰HMSLimbourne被德国鱼雷艇在[布列塔尼](https://en.wikipedia.org/wiki/Brittany)北海岸附近击沉，造成大量人员伤亡。21名水手和海军陆战队员的尸体被冲上根西岛。被德国占领当局以完全的军事荣誉埋葬，允许大约5,000名岛民参加并献上大约900个花圈。
+	- ### 25日
+		- 红军占领[第聂伯罗彼得罗夫斯克](https://en.wikipedia.org/wiki/Dnipropetrovsk#1919–1944_in_the_Soviet_Union_and_under_Nazi_rule)。：29：部队替换了罢工的伦敦码头工人。
+	- ### 31日
+		- 意大利的大雨减缓了盟军向罗马以南的推进。
+- ## 11月
+	- ### 1日
+		- 在[Goodtime行动中](https://en.wikipedia.org/wiki/Operation_Goodtime)，[美国海军陆战队](https://en.wikipedia.org/wiki/United_States_Marines)在[所罗门群岛的](https://en.wikipedia.org/wiki/Solomon_Islands)布干维尔登陆。这个岛上的战斗将持续到战争结束。
+	- ### 2日
+		- 在清晨，[美国](https://en.wikipedia.org/wiki/United_States)和[日本](https://en.wikipedia.org/wiki/Japan)舰艇对抗不确定的[奥古斯塔皇后湾海战](https://en.wikipedia.org/wiki/Battle_of_Empress_Augusta_Bay)断布干维尔，但日本人是无法登陆增援。英国军队，在意大利，到[达加里利亚诺河](https://en.wikipedia.org/wiki/Garigliano_River)。
+	- ### 3日
+		- 在为期两天的“丰收节”中，大约43,000名犹太人在波兰[AktionErntefest的](https://en.wikipedia.org/wiki/Aktion_Erntefest)三个营地被枪杀。
+	- ### 5日
+		- 意大利人[轰炸梵蒂冈](https://en.wikipedia.org/wiki/Bombing_of_the_Vatican)，试图摧毁梵蒂冈的无线电，但失败了。
+	- ### 6日
+		- [红军](https://en.wikipedia.org/wiki/Red_Army)解放了[基辅市](https://en.wikipedia.org/wiki/Kiev)。这是1917年俄国革命的周年纪念日。
+	- ### 9日
+		- 盟军占领意大利的卡斯蒂廖内戴高乐将军成为法国民族解放委员会主席。：[比利时抵抗运动的](https://en.wikipedia.org/wiki/Belgian_Resistance)成员出版[了](https://en.wikipedia.org/wiki/Faux_Soir)合作[主义](https://en.wikipedia.org/wiki/Le_Soir)报纸LeSoir的假刊，嘲笑德国的战略局势。
+	- ### 11日
+		- 美国空中力量继续打击拉包尔。
+	- ### 12日
+		- 德国人在土耳其附近的多德卡尼斯群岛占领了英国军队。
+	- ### 14日
+		- 重型轰炸机袭击了太平洋吉尔伯特群岛的塔拉瓦。
+	- ### 15日
+		- [盟军](https://en.wikipedia.org/wiki/Allied_Expeditionary_Force)入侵欧洲远征军正式成立。[德国](https://en.wikipedia.org/wiki/Germany) [党卫军](https://en.wikipedia.org/wiki/SS)领导人[海因里希·希姆莱](https://en.wikipedia.org/wiki/Heinrich_Himmler)下令将[吉普赛人](https://en.wikipedia.org/wiki/Romani_people)和“部分吉普赛人”置于“与[犹太人](https://en.wikipedia.org/wiki/Jew)相同的水平并被安置在[集中营”](https://en.wikipedia.org/wiki/Concentration_camp)。
+	- ### 16日
+		- 意大利的反德抵抗增加；米兰发生爆炸。[莱罗斯战役](https://en.wikipedia.org/wiki/Battle_of_Leros)以英国和意大利军队向德国人投降而告终。：160个[美国](https://en.wikipedia.org/wiki/United_States)轰炸机罢工[水力发电](https://en.wikipedia.org/wiki/Hydro-electric_power)设施和[重水](https://en.wikipedia.org/wiki/Heavy_water)工厂[德国](https://en.wikipedia.org/wiki/Germany)\-controlled[韦莫克](https://en.wikipedia.org/wiki/Vemork)，[挪威](https://en.wikipedia.org/wiki/Norway)。：日本[潜艇](https://en.wikipedia.org/wiki/Submarine)沉没在特鲁克附近的潜艇[USSCorvina上](https://en.wikipedia.org/wiki/USS_Corvina_(SS-226))浮出水面。
+	- ### 18日
+		- 440架[皇家空军](https://en.wikipedia.org/wiki/Royal_Air_Force)飞机轰炸[柏林，](https://en.wikipedia.org/wiki/Berlin)仅造成轻微损坏并造成131人死亡。英国皇家空军损失了9架飞机和53名飞行员。
+	- ### 19日
+		- [Janowska集中营的](https://en.wikipedia.org/wiki/Janowska_concentration_camp)囚犯在被命令掩盖大规模谋杀的证据时进行了大规模逃亡/起义。大多数被围捕和杀害。
+	- ### 20日
+		- [电偶行动](https://en.wikipedia.org/wiki/Operation_Galvanic)开始——[美国海军陆战队](https://en.wikipedia.org/wiki/United_States_Marines)登陆[塔拉瓦](https://en.wikipedia.org/wiki/Tarawa_Atoll)，[美国陆军](https://en.wikipedia.org/wiki/United_States_Army)袭击吉尔伯特群岛的[马金](https://en.wikipedia.org/wiki/Makin_(islands))环礁，并用日本岸炮猛烈射击。美国公众对塔拉瓦的重大生命损失感到震惊。蒙哥马利率领的英军继续在意大利东部缓慢推进。
+	- ### 22日
+		- 在[开罗会议](https://en.wikipedia.org/wiki/Cairo_Conference_(1943))美国总统[富兰克林·D·罗斯福](https://en.wikipedia.org/wiki/Franklin_Delano_Roosevelt)，英国首相[温斯顿·丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)和ROC领袖[蒋介石](https://en.wikipedia.org/wiki/Chiang_Kai-shek)相遇在[开罗](https://en.wikipedia.org/wiki/Cairo)，[埃及](https://en.wikipedia.org/wiki/Egypt)，商讨如何打败[日本](https://en.wikipedia.org/wiki/Japan)。
+	- ### 23日
+		- 盟军轰炸柏林造成严重破坏。值得注意的是，位于柏林夏洛滕堡区俾斯麦大街的[德意志](https://en.wikipedia.org/wiki/Deutsche_Opernhaus)[歌剧院](https://en.wikipedia.org/wiki/Berlin)被毁。
+	- ### 24日
+		- 对柏林的猛烈轰炸仍在继续。
+	- ### 25日
+		- [美国人](https://en.wikipedia.org/wiki/United_States)和[日本人](https://en.wikipedia.org/wiki/Japan)在布卡和新爱尔兰之间进行了[圣乔治角](https://en.wikipedia.org/wiki/Battle_of_Cape_St._George)海战。阿利·伯克海军上将的驱逐舰与众不同。仰光被美国重型轰炸机轰炸。
+	- ### 26日
+		- 红军在乌克兰的攻势仍在继续。开罗会议（“六分仪”）结束；罗斯福、丘吉尔和蒋介石完成了《[开罗宣言》](https://en.wikipedia.org/wiki/1943_Cairo_Declaration)，其中涉及对日总体战略计划。
+	- ### 27日
+		- 随着轰炸的持续进行，柏林造成了巨大的平民损失。
+	- ### 28日
+		- [德黑兰会议](https://en.wikipedia.org/wiki/Tehran_Conference)。美国总统[富兰克林·罗斯福](https://en.wikipedia.org/wiki/Franklin_Delano_Roosevelt)、英国首相[温斯顿·丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)和苏联领导人[约瑟夫·斯大林](https://en.wikipedia.org/wiki/Joseph_Stalin)在[德黑兰](https://en.wikipedia.org/wiki/Tehran)会面，讨论战争战略；（11月30日，他们就计划于1944年6月入侵欧洲的代号[“霸王行动”](https://en.wikipedia.org/wiki/Operation_Overlord)达成一致。）斯大林终于得到了他一直在等待的承诺。
+	- ### 29日
+		- 第二届[AVNOJ](https://en.wikipedia.org/wiki/AVNOJ)，民族解放的反法西斯委员会[南斯拉夫](https://en.wikipedia.org/wiki/Yugoslavia)，在举行[亚伊采](https://en.wikipedia.org/wiki/Jajce)，[波斯尼亚和黑塞哥维那](https://en.wikipedia.org/wiki/Bosnia_and_Herzegovina)，决定国家的战后秩序。
+	- ### 30日
+		- 在马来亚，日本人引入了第41号政府通知，以鼓励家庭种植自己的粮食作物和蔬菜。成功的家庭将获得奖励，而不遵守此通知或未种植空地的家庭将受到惩罚。此通知由ItamiMasakichi(PenangShuChokan)于2603/1943年11月25日撰写。
+- ## 12月
+	- ### 2日
+		- 德国人对意大利[巴里](https://en.wikipedia.org/wiki/Air_Raid_on_Bari)进行了一次非常成功的空袭。其中一枚德国炸弹击中了一艘载有[芥子气](https://en.wikipedia.org/wiki/Mustard_gas)的盟军货船，释放出的化学物质导致83名盟军士兵死亡。超过1000名士兵在突袭中丧生。
+	- ### 3日
+		- [EdwardR.Murrow](https://en.wikipedia.org/wiki/Edward_R._Murrow)在[CBS](https://en.wikipedia.org/wiki/CBS)电台播放了他经典的“精心策划的地狱”广播，描述了[皇家空军](https://en.wikipedia.org/wiki/Royal_Air_Force)对[柏林的](https://en.wikipedia.org/wiki/Berlin)夜间轰炸袭击。
+	- ### 4日
+		- 玻利维亚向所有轴心国宣战。在[南斯拉夫](https://en.wikipedia.org/wiki/Yugoslavia)，抵抗运动领袖[约瑟普·布罗兹·铁托](https://en.wikipedia.org/wiki/Josip_Broz_Tito)元帅宣布成立临时民主的南斯拉夫流亡政府。
+	- ### 12日
+		- 隆美尔被任命为“欧罗巴要塞”的负责人，是针对预期中的盟军攻势的首席策划者。
+	- ### 13日
+		- 德国士兵在希腊南部实施了[卡拉维塔大屠杀](https://en.wikipedia.org/wiki/Massacre_of_Kalavryta)。[美国](https://en.wikipedia.org/wiki/United_States) [第八军](https://en.wikipedia.org/wiki/VIII_Corps_(United_States))抵达欧洲战区。
+	- ### 14日
+		- [美国](https://en.wikipedia.org/wiki/United_States) [第十五军](https://en.wikipedia.org/wiki/XV_Corps_(United_States))抵达欧洲战区。
+	- ### 16日
+		- 加里宁在红军的大规模攻势中被重新夺回。
+	- ### 24日
+		- 美国将军[德怀特·D·艾森豪威尔](https://en.wikipedia.org/wiki/Dwight_D._Eisenhower)(DwightD.Eisenhower)成为欧洲盟军最高指挥官。
+	- ### 26日
+		- 德国战舰[沙恩霍斯特](https://en.wikipedia.org/wiki/German_battleship_Scharnhorst)是由战舰为首的英力沉没北开普省（北极）[HMS约克公爵](https://en.wikipedia.org/wiki/HMS_Duke_of_York)。
+		- 美国海军陆战队在新不列颠的格洛斯特角登陆。
+	- ### 27日
+		- 艾森豪威尔将军正式被任命为诺曼底入侵霸王的首领。
+	- ### 28日
+		- 在缅甸，中国军队对抗日本人取得了一些成功。
+	- ### 29日
+		- 日本人将[安达曼群岛的](https://en.wikipedia.org/wiki/Andaman_Islands)控制权移交给[阿扎德·欣德](https://en.wikipedia.org/wiki/Azad_Hind)。
+	- ### 30日
+		- 日本空军对加尔各答的攻击结束。
+# 1944年
+- ## 1月
+	- ### 3日
+		- 美国海军陆战队战斗机王牌格雷戈里·[帕皮](https://en.wikipedia.org/wiki/Pappy_Boyington)·博因顿少校在击败他26场胜利中的最后3场后被击落，并将在接下来的20个月里在日本战俘营中度过。
+	- ### 4日
+		- [乌克兰](https://en.wikipedia.org/wiki/1st_Ukrainian_Front)红军第1方面军进入波兰。
+	- ### 9日
+		- 英军占领缅甸孟都，盟军补给的重要港口。
+	- ### 11日
+		- 意大利外交部长兼墨索里尼的女婿[齐亚诺伯爵](https://en.wikipedia.org/wiki/Count_Ciano)被墨索里尼复兴的法西斯政府同情者处决。
+	- ### 12日
+		- [SS联合胜利号](https://en.wikipedia.org/wiki/SS_United_Victory)，第一艘[胜利号舰](https://en.wikipedia.org/wiki/Victory_ship)，下水；事实证明，这种运输方式对于跨洋运送人员和物资至关重要。
+	- ### 16日
+		- [德怀特·D·艾森豪威尔](https://en.wikipedia.org/wiki/Dwight_D._Eisenhower)将军抵达伦敦，从华盛顿特区的一周休息和计划中返回，并根据第4号总令接管欧洲战区。他的新头衔是美国军队[欧洲战区](https://en.wikipedia.org/wiki/European_Theater_of_Operations)司令的操作。
+	- ### 17日
+		- 第一次[卡西诺山战役](https://en.wikipedia.org/wiki/Battle_of_Monte_Cassino)开始时，英国第1[军](https://en.wikipedia.org/wiki/X_Corps_(United_Kingdom))沿德国古斯塔夫防线西端的[加里利亚诺](https://en.wikipedia.org/wiki/Garigliano)河发动进攻。
+	- ### 19日
+		- 红军向西推进波罗的海国家。英国的[“向外行动”](https://en.wikipedia.org/wiki/Operation_Outward)意外地通过关闭照明并导致火车相撞而在[瑞典](https://en.wikipedia.org/wiki/Sweden)夺走了生命。
+	- ### 20日
+		- [皇家空军](https://en.wikipedia.org/wiki/Royal_Air_Force)在[柏林](https://en.wikipedia.org/wiki/Berlin)投下了2,300吨炸弹。驻意大利的[美军第36步兵师](https://en.wikipedia.org/wiki/US_36th_Infantry_Division)试图渡过[加里河，](https://en.wikipedia.org/wiki/Gari_River)但损失惨重。
+	- ### 22日
+		- [盟军](https://en.wikipedia.org/wiki/Allies_of_World_War_II)开始[操作木瓦](https://en.wikipedia.org/wiki/Operation_Shingle)，降落在[安齐奥](https://en.wikipedia.org/wiki/Anzio)，意大利，美国少将指挥[约翰·P·卢卡斯](https://en.wikipedia.org/wiki/John_P._Lucas)。盟军希望打破意大利南部的僵局，但无法冲出滩头阵地，战线一直维持到5月下旬。由HCPlummer中尉指挥的扫雷舰[USSPortent(AM-106)](https://en.wikipedia.org/wiki/USS_Portent_(AM-106))在意大利安齐奥东南部触雷并沉没。
+	- ### 23日
+		- 英国驱逐舰[HMSJanus](https://en.wikipedia.org/wiki/HMS_Janus_(F53))在Anzio附近沉没。
+	- ### 24日
+		- 盟军在意大利的[加里河遭遇](https://en.wikipedia.org/wiki/Gari_(river))重大挫折。
+		- 在[德国占领的比利时](https://en.wikipedia.org/wiki/German_occupation_of_Belgium_during_World_War_II)，秘密签署了详细说明战后社会改革计划的[社会契约](https://en.wikipedia.org/wiki/Social_Pact)。
+	- ### 27日
+		- [列宁格勒围城战](https://en.wikipedia.org/wiki/Siege_of_Leningrad)在872天后结束，苏军最终迫使德军撤退。大约有200万人死于饥饿和疾病。
+	- ### 28日
+		- 苏军在基辅以南的[科尔逊口袋](https://en.wikipedia.org/wiki/Battle_of_the_Korsun%E2%80%93Cherkassy_Pocket)完成对两个德国军团的包围。三分之二的德国人在下个月的突围中逃脱，损失了大部分重型装备。
+	- ### 30日
+		- 日本人在[Homfreyganj大屠杀中](https://en.wikipedia.org/wiki/Homfreyganj_massacre)杀死了44名疑似间谍。在意大利的安齐奥发生了灾难性[的Cisterna战役](https://en.wikipedia.org/wiki/Battle_of_Cisterna)，因为MGJohnP.Lucas派遣Darby'sRangers从滩头阵地开始突围。行动中的四个营中的一个返回了767人中只有6人，其余的人被杀、受伤或被俘。：[布拉柴维尔会议](https://en.wikipedia.org/wiki/Brazzaville_Conference_of_1944)在[法属赤道非洲](https://en.wikipedia.org/wiki/French_Equatorial_Africa)开始。在会议期间（持续至2月8日），[法国民族解放委员会](https://en.wikipedia.org/wiki/French_Committee_of_National_Liberation)(CFLN)同意对[法国殖民帝国](https://en.wikipedia.org/wiki/French_colonial_empire)进行重大改革。：美国海军炮击和航母轰炸开始于[马绍尔群岛](https://en.wikipedia.org/wiki/Marshall_Islands)，为第二天的入侵做准备。
+	- ### 31日
+		- [燧发枪行动](https://en.wikipedia.org/wiki/Operation_Flintlock_(World_War_II))开始，美军登陆[夸贾林环礁](https://en.wikipedia.org/wiki/Kwajalein_Atoll)和[日本](https://en.wikipedia.org/wiki/Japan)控制的[马绍尔群岛的](https://en.wikipedia.org/wiki/Marshall_Islands)其他岛屿。[美国](https://en.wikipedia.org/wiki/United_States)军队还入侵[马绍尔群岛的马朱罗](https://en.wikipedia.org/wiki/Majuro,_Marshall_Islands)。
+- ## 2月
+	- ### 1日
+		- 美国海军陆战队在马绍尔群岛夸贾林环礁北部的[罗伊和那慕尔](https://en.wikipedia.org/wiki/Roi-Namur)进行扫荡。
+	- ### 2日
+		- 靠近爱沙尼亚东部边界[的纳尔瓦战线](https://en.wikipedia.org/wiki/Battle_of_Narva_(1944))由苏德军队组成。德国人在安齐奥附近的Cisterna战役中击败了美国军队。
+	- ### 3日
+		- 美国飞机轰炸了马歇尔的[埃尼威托克](https://en.wikipedia.org/wiki/Enewetak_Atoll)，后来成为[B-29](https://en.wikipedia.org/wiki/Boeing_B-29_Superfortress)的主要基地。
+	- ### 4日
+		- 世界上最大的环礁和日本主要的海军基地[夸贾林](https://en.wikipedia.org/wiki/Battle_of_Kwajalein)岛得到保护。
+	- ### 5日
+		- 美国海军轰炸日本本土最北端的[千岛群岛](https://en.wikipedia.org/wiki/Kuril_Islands)。
+	- ### 7日
+		- 在一次电台采访中，爱沙尼亚[上任](https://en.wikipedia.org/wiki/J%C3%BCri_Uluots)总理尤里·乌洛茨作为代理国家元首支持动员。
+	- ### 8日
+		- 入侵法国的计划，[霸王行动](https://en.wikipedia.org/wiki/Operation_Overlord)，确定。
+	- ### 10日
+		- [温斯顿丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)敦促[哈罗德亚历山大](https://en.wikipedia.org/wiki/Harold_Alexander)命令安齐奥将军表现出更多的侵略性。
+	- ### 11日
+		- 被派往乌克兰解救科尔松口袋的德国军队现在距离这里只有10英里。
+	- ### 14日
+		- 俄罗斯第374步兵团在[佩普斯湖西岸](https://en.wikipedia.org/wiki/Lake_Peipus)形成桥头堡。苏联波罗的海舰队特种部队在梅雷库拉纳尔瓦前线德军后方的梅雷库拉登陆行动遭到抵抗。地下组织[爱沙尼亚共和国全国委员会](https://en.wikipedia.org/wiki/National_Committee_of_the_Republic_of_Estonia)在塔林成立。：[盟军远征军最高司令部](https://en.wikipedia.org/wiki/Supreme_Headquarters_Allied_Expeditionary_Force)(SHAEF)总部由美国将军[德怀特·D·艾森豪威尔](https://en.wikipedia.org/wiki/Dwight_D._Eisenhower)(DwightD.Eisenhower)在英国建立。
+	- ### 15日
+		- 第二次卡西诺山战役以盟军轰炸卡西诺山上历史悠久的[本笃会](https://en.wikipedia.org/wiki/Order_of_Saint_Benedict)修道院开始。盟军认为这片土地被德国人用作观察哨。苏联在佩普斯湖西岸的桥头堡被歼灭。：苏联列宁格勒方面军于2月15日至28日发起纳尔瓦攻势。
+	- ### 16日
+		- 德国人在安齐奥发动大规模反击，威胁到美国的滩头阵地。德军在装甲部队的带领下，未能突破科尔逊的口袋。:苏联和[芬兰的](https://en.wikipedia.org/wiki/Finland)外交官会面签署停战协定。
+	- ### 17日
+		- 美国海军陆战队[登陆埃尼威托克](https://en.wikipedia.org/wiki/Battle_of_Eniwetok)。
+	- ### 18日
+		- 轻巡洋舰[HMSPenelope](https://en.wikipedia.org/wiki/HMS_Penelope_(97))被鱼雷击沉并在安齐奥海岸沉没，415名船员丧生。美国海军空袭发生在日本主要海军基地[特鲁克群岛上](https://en.wikipedia.org/wiki/Chuuk_Lagoon)，但它们将成为日本外围防御圈被绕过的堡垒之一。
+	- ### 19日
+		- [德国莱比锡](https://en.wikipedia.org/wiki/Leipzig)连续两晚被轰炸。这标志着盟军轰炸机对德国工业城市的“[大周](https://en.wikipedia.org/wiki/Big_Week)”轰炸行动的开始。
+	- ### 20日
+		- [殖民地的军事](https://en.wikipedia.org/wiki/Force_Publique)驻军在[Luluabourg](https://en.wikipedia.org/wiki/Kananga)在[比利时刚果](https://en.wikipedia.org/wiki/Belgian_Congo)叛乱，杀死了三名。
+	- ### 22日
+		- [约翰·P·卢卡斯](https://en.wikipedia.org/wiki/John_P._Lucas)(JohnP.Lucas)被安齐奥(Anzio)的卢西安·特拉斯科特(LucianTruscott)少将接替，担任美国[第六军](https://en.wikipedia.org/wiki/VI_Corps_(United_States))司令。
+	- ### 23日
+		- 美国海军飞机攻击[马里亚纳群岛](https://en.wikipedia.org/wiki/Mariana_Islands)的[塞班岛](https://en.wikipedia.org/wiki/Saipan)，[关岛](https://en.wikipedia.org/wiki/Guam)和[天宁岛](https://en.wikipedia.org/wiki/Tinian)。
+	- ### 26日
+		- “大周”轰炸活动圆满结束；事实证明，美国[P-51野马](https://en.wikipedia.org/wiki/P-51)战斗机的远程射程对于保护美国轰炸机在德国上空具有不可估量的价值。随着芬兰继续和谈，红色空军继续轰炸[赫尔辛基](https://en.wikipedia.org/wiki/Helsinki)。
+	- ### 27日
+		- 27[USSCod](https://en.wikipedia.org/wiki/USS_Cod_(SS-224))用鱼雷击沉了一艘日本商船。
+	- ### 28日
+		- 比利时实业家[亚历山大·加洛平](https://en.wikipedia.org/wiki/Alexandre_Galopin)在被占领的[比利时](https://en.wikipedia.org/wiki/Belgium)被佛兰德准军事组织暗杀。
+	- ### 29日
+		- [海军部群岛](https://en.wikipedia.org/wiki/Admiralty_Islands)被美军[入侵](https://en.wikipedia.org/wiki/Admiralty_Islands_campaign)，以洛斯内格罗斯战役和布鲁尔行动为标志。争夺这个重要的舰队锚地的斗争将持续到五月。[拉包尔](https://en.wikipedia.org/wiki/Rabaul)现在完全孤立了。
+- ## 3月
+	- ### 1日
+		- [USSTarawa](https://en.wikipedia.org/wiki/USS_Tarawa_(CV-40))和[USSKearsarge](https://en.wikipedia.org/wiki/USS_Kearsarge_(CV-33))的龙骨已经放下。意大利北部发生反法西斯[罢工](https://en.wikipedia.org/wiki/Strike_action)。：列宁格勒方面军于3月1日至4日发起纳尔瓦攻势。：盟军轰炸了梵蒂冈的第二次。
+	- ### 3日
+		- 安齐奥周围的德军未能将盟军赶出滩头阵地，转而采取防御姿态。
+	- ### 6日
+		- Wingate的Chindits在缅甸进行了几次成功的尝试。苏联空军轰炸纳尔瓦，城市被摧毁。列宁格勒方面军[于3月6日至24日](https://en.wikipedia.org/wiki/Battle_for_Narva_Bridgehead#Soviet_Narva_Offensive,_March_6–24)发起纳尔瓦攻势。：盟军[收到情报](https://en.wikipedia.org/wiki/Western_Australian_emergency_of_March_1944)，日本可能即将袭击[西澳大利亚](https://en.wikipedia.org/wiki/Western_Australia)，使他们大大加强了那里的防御。当没有攻击发生时，部队将在20日返回其常规驻地。
+	- ### 7日
+		- 日本开始入侵印度，在英帕尔周围开始了为期四个月的战斗。
+	- ### 8日
+		- 美军在[布干维尔](https://en.wikipedia.org/wiki/Bougainville_campaign_(1944-45))700山被日军袭击；将持续五天的战斗。红军在乌克兰第聂伯河以西的广阔前线发动进攻，迫使德国人大撤退。
+	- ### 9日
+		- 苏联[远程航空兵](https://en.wikipedia.org/wiki/Long_Range_Aviation)对爱沙尼亚塔林进行[空袭](https://en.wikipedia.org/wiki/Bombing_of_Tallinn_in_World_War_II#Red_Air_Force_raid_in_1944)。军事目标几乎没有受到影响。大约800名平民死亡，20,000人无家可归。
+	- ### 10日
+		- 通过开设[民族解放的政治委员会](https://en.wikipedia.org/wiki/Political_Committee_of_National_Liberation)在[希腊](https://en.wikipedia.org/wiki/Greece)。
+	- ### 13日
+		- 在[布干维尔](https://en.wikipedia.org/wiki/Bougainville_Island)，[日军](https://en.wikipedia.org/wiki/Japan)在700山结束了对[美军](https://en.wikipedia.org/wiki/United_States)失败的进攻。
+	- ### 15日
+		- 第三次卡西诺山之战开始。[卡西诺](https://en.wikipedia.org/wiki/Cassino)小镇被盟军轰炸机摧毁。美国人在金钟链中占领马努斯岛。：[法国抵抗运动](https://en.wikipedia.org/wiki/French_Resistance)全国委员会批准[抵抗运动](https://en.wikipedia.org/wiki/Resistance_movement)计划。
+	- ### 16日
+		- [美国](https://en.wikipedia.org/wiki/United_States) [十一军](https://en.wikipedia.org/wiki/XI_Corps_(United_States))抵达太平洋战区。
+	- ### 17日
+		- 轰炸奥地利维也纳。
+	- ### 18日
+		- 红军接近罗马尼亚边境。
+	- ### 19日
+		- 德军在玛格丽特行动中占领[匈牙利](https://en.wikipedia.org/wiki/Hungary)。南斯拉夫游击队进攻意大利和斯洛文尼亚边境的的里雅斯特。
+	- ### 20日
+		- 红军在乌克兰的进步继续取得巨大成功。
+	- ### 21日
+		- 芬兰拒绝苏联的和平条款。
+	- ### 22日
+		- 日军沿英帕尔前线穿越印度边境。法兰克福遭到轰炸，平民伤亡惨重。
+	- ### 24日
+		- 意大利罗马的[FosseArdetine](https://en.wikipedia.org/wiki/Fosse_Ardeatine)大屠杀。335名意大利人被杀，其中包括75名犹太人和200多名[意大利抵抗运动](https://en.wikipedia.org/wiki/Italian_Resistance)各团体的成员；这是德国对炸死德国军队的炸弹爆炸的反应。[OrdeWingate](https://en.wikipedia.org/wiki/Orde_Wingate)在一次飞机失事中丧生。：对德国城市各个战略地点的猛烈轰炸持续24小时。
+	- ### 25日
+		- 苏联空军轰炸了爱沙尼亚[塔尔图](https://en.wikipedia.org/wiki/Tartu)市。
+	- ### 26日
+		- 在纳尔瓦前线，[斯特拉赫维茨攻势](https://en.wikipedia.org/wiki/Battle_for_Narva_Bridgehead#Strachwitz_offensive)摧毁了部分苏联桥头堡。
+	- ### 28日
+		- 日军在缅甸撤退。
+	- ### 30日
+		- 英国皇家空军在纽伦堡的一次大规模空袭中损失惨重。
+- ## 4月
+	- ### 3日
+		- 盟军轰炸机在红军前进之前袭击了现在被德国人占领的匈牙利[布达佩斯](https://en.wikipedia.org/wiki/Budapest)和[罗马尼亚的布加勒斯特](https://en.wikipedia.org/wiki/Bucharest)。
+	- ### 4日
+		- [戴高乐将军](https://en.wikipedia.org/wiki/Charles_de_Gaulle)指挥所有自由法国军队。
+	- ### 5日
+		- 美国空军轰炸罗马尼亚的Ploesti油田，损失惨重。
+	- ### 6日
+		- 日军在英帕尔平原上的进攻据推测已停止，事实证明，其强大到足以包围印度英帕尔和科希马的英军。
+	- ### 8日
+		- 8月红军进攻试图夺回克里米亚全境，德军向西撤退到塞瓦斯托波尔。
+	- ### 10日
+		- 苏军进入乌克兰[敖德萨](https://en.wikipedia.org/wiki/Odessa)。
+	- ### 11日
+		- 苏军占领[刻赤](https://en.wikipedia.org/wiki/Kerch)，开始重新征服[克里米亚](https://en.wikipedia.org/wiki/Crimea)。
+	- ### 15日
+		- 英国皇家空军和美国空军对Ploesti油田（罗马尼亚）进行了大规模空袭。
+	- ### 16日
+		- 苏军[攻占雅尔塔](https://en.wikipedia.org/wiki/Yalta)；克里米亚大部分地区已经解放。
+	- ### 17日
+		- 日本在华中地区与超过600,000人发起了[Ichi-Go行动](https://en.wikipedia.org/wiki/Operation_Ichi-Go)。目标是征服美国轰炸机所在的地区。第一阶段是[豫中之战](https://en.wikipedia.org/wiki/Battle_of_Central_Henan)。
+	- ### 21日
+		- 意大利的巴多格里奥政府垮台，他很快被要求组建另一个政府。盟军对巴黎的空袭造成大量平民死亡。
+	- ### 22日
+		- [鲁莽行动](https://en.wikipedia.org/wiki/Operation_Reckless)和[迫害](https://en.wikipedia.org/wiki/Operation_Persecution)行动美军在新几内亚北部的[霍兰迪亚](https://en.wikipedia.org/wiki/Jayapura)和[艾塔佩](https://en.wikipedia.org/wiki/Aitape)登陆，以切断在韦瓦克的日军。
+	- ### 24日
+		- 英军强行打开从道路[英帕尔](https://en.wikipedia.org/wiki/Imphal)至[科希玛](https://en.wikipedia.org/wiki/Kohima)在[印度](https://en.wikipedia.org/wiki/India)。
+	- ### 25日
+		- LTGGeorgePatton在英格兰诺茨福德的欢迎中心发表演讲时，又遭遇了一次争议性挫折。他认为，“美国、英国和苏联”注定要统治战后世界。第二天记者的报道没有提到苏联，克里姆林宫被冒犯了；巴顿遭到艾森豪威尔的训斥。
+	- ### 27日
+		- [斯拉普顿金沙悲剧](https://en.wikipedia.org/wiki/Exercise_Tiger)在德文郡[斯拉普顿](https://en.wikipedia.org/wiki/Slapton,_Devon)为准备登陆日的训练演习中，数百名美国士兵和水手在两天内丧生。
+	- ### 30日
+		- 英格兰南部正在为登陆日做大量准备。美国海军空袭在加罗林群岛继续进行，包括特鲁克。
+- ## 5月
+	- ### 6日
+		- 盟军对欧洲大陆进行猛烈轰炸，为诺曼底登陆做准备。
+	- ### 8日
+		- 霸王行动的登陆[日](https://en.wikipedia.org/wiki/D-Day)定于6月5日。
+	- ### 9日
+		- 克里米亚的[塞瓦斯托波尔](https://en.wikipedia.org/wiki/Sevastopol)被苏联军队夺回。
+	- ### 11日
+		- 第四次卡西诺山战役开始，由波兰第2军的安德斯将军领导。
+	- ### 12日
+		- 大批中国军队入侵缅甸北部。
+	- ### 13日
+		- 整个克里米亚都在苏联控制之下。数以千计的德国和罗马尼亚士兵被俘，但数千人已被疏散。加里河桥头堡加固。
+	- ### 15日
+		- 130多位盟军政治领袖和军官，包括乔治六世国王、英国首相温斯顿丘吉尔、德怀特D.艾森豪威尔将军、乔治S.巴顿中将、伯纳德L.在英国伦敦西部哈默史密斯的圣保罗学校举行的D日联合简报会。
+	- ### 18日
+		- 卡西诺山之战以盟军胜利告终。由瓦迪斯瓦夫·安德斯将军率领的波兰第2军的波兰军队攻占了卡西诺山。在意大利西部的德军已经撤退到[希特勒防线](https://en.wikipedia.org/wiki/Hitler_Line)。盟军在缅甸重要空军基地密支那占领机场；围绕这座城市本身的斗争将持续近三个月。：日本在新几内亚附近金钟群岛的最后一次抵抗结束。
+	- ### 21日
+		- 盟军增加对法国目标的轰炸，为D日做准备。
+	- ### 23日
+		- 盟友从安齐奥开始新的突破。
+	- ### 25日
+		- 安齐奥的盟友与意大利南部的盟友会合。尽管哈罗德·亚历山大想陷害[德军第10集团军](https://en.wikipedia.org/wiki/10th_Army_(Wehrmacht))，但美国[第5集团军](https://en.wikipedia.org/wiki/United_States_Army_North)指挥官[马克·克拉克](https://en.wikipedia.org/wiki/Mark_W._Clark)命令特拉斯科特向北转向罗马。德军在意大利在[凯撒C线上](https://en.wikipedia.org/wiki/Caesar_C_line)形成新的防御阵地。
+	- ### 27日
+		- 荷里克行动开始，美国人降落在日本重要的空军基地荷属新几内亚的[比亚克](https://en.wikipedia.org/wiki/Biak)；顽固的日本抵抗直到八月。
+	- ### 31日
+		- 日军从英帕尔（印度）撤退，损失惨重；他们对印度的入侵结束了。
+- ## 6月
+	- ### 2日
+		- [法国](https://en.wikipedia.org/wiki/France)临时政府成立。美国开始轰炸匈牙利德布勒森，开始[疯狂行动](https://en.wikipedia.org/wiki/Operation_Frantic)。
+	- ### 3日
+		- 瑟堡半岛和诺曼底地区每天都有轰炸。
+	- ### 4日
+		- 盟军进入[罗马](https://en.wikipedia.org/wiki/Rome)，一天后德国人宣布罗马为[开放城市](https://en.wikipedia.org/wiki/Open_city)。德国军队退回到[Trasimene防线](https://en.wikipedia.org/wiki/Trasimene_Line)。霸王行动因公海推迟24小时。德国U-505被美军俘获，并被拖到百慕大。
+	- ### 5日
+		- 霸王行动时，超过1000架开始[的英国](https://en.wikipedia.org/wiki/United_Kingdom)轰炸机下降5,000吨炸弹的[德国](https://en.wikipedia.org/wiki/Germany)枪电池在[诺曼底](https://en.wikipedia.org/wiki/Normandy)的准备海岸[d日](https://en.wikipedia.org/wiki/D-Day)。第一批盟军登陆诺曼底；伞兵从卡昂向南分散。：在太平洋，为入侵马里亚纳群岛的塞班岛运送远征军的美国舰队离开珍珠港。
+	- ### 6日
+		- [D日](https://en.wikipedia.org/wiki/Normandy_Landings)开始于155,000名[盟军](https://en.wikipedia.org/wiki/Allies_of_World_War_II)在法国[诺曼底](https://en.wikipedia.org/wiki/Normandy)海滩登陆。盟军士兵迅速突破大西洋壁垒，在历史上最大的两栖军事行动中向内陆推进。
+	- ### 7日
+		- [巴约](https://en.wikipedia.org/wiki/Bayeux)被英国军队解放。
+	- ### 9日
+		- 由于没有就双方边界达成一致，苏联军队向[芬兰](https://en.wikipedia.org/wiki/Finland)发起进攻，意图在推动[柏林](https://en.wikipedia.org/wiki/Berlin)之前击败芬兰。
+	- ### 10日
+		- 在[格拉讷河畔奥拉杜尔](https://en.wikipedia.org/wiki/Oradour-sur-Glane)（利摩日附近的一个镇），[法国](https://en.wikipedia.org/wiki/France)，642人，妇女和孩子在当地的抵抗活动，德国的反应死亡。在希腊的[Distomo大屠杀](https://en.wikipedia.org/wiki/Distomo_massacre)中，218名平民丧生。
+	- ### 12日
+		- 美国航空母舰开始空袭包括塞班岛在内的[马里亚纳群岛](https://en.wikipedia.org/wiki/Marianas)，准备入侵。
+	- ### 13日
+		- [德国](https://en.wikipedia.org/wiki/Germany)对英国发动[V1飞行炸弹](https://en.wikipedia.org/wiki/V1_Flying_Bomb)袭击，在希特勒看来是对入侵的一种报复。他相信德国会凭借这种“秘密武器”取得胜利。V-1的攻击将持续到10月，届时最后一个发射场将被盟军占领。美国海军对塞班岛的轰炸开始了。作为回应，日本帝国海军总司令丰田章武上将命令他的舰队攻击塞班岛周围的美国海军部队。
+	- ### 15日
+		- 美国海军陆战队和陆军部队入侵[塞班岛](https://en.wikipedia.org/wiki/Saipan)。美国潜艇在途中发现了日本舰队。
+	- ### 17日
+		- 自由的法国军队登陆[厄尔巴岛](https://en.wikipedia.org/wiki/Elba)。
+	- ### 18日
+		- [厄尔巴岛](https://en.wikipedia.org/wiki/Elba)宣布解放。盟军占领意大利[阿西西](https://en.wikipedia.org/wiki/Assisi)。
+	- ### 19日
+		- 一场严重的海峡风暴摧毁了盟军在诺曼底的[桑树港口](https://en.wikipedia.org/wiki/Mulberry_harbour)之一。红军准备“巴格拉季昂行动”，在白俄罗斯（白俄罗斯）发动大规模攻势。
+	- ### 19日-20日
+		- [菲律宾海海战，](https://en.wikipedia.org/wiki/Battle_of_the_Philippine_Sea)被美国人称为大马里亚纳火鸡，发生了。在[美国第五舰队](https://en.wikipedia.org/wiki/United_States_Fifth_Fleet)战胜日本帝国海军附近的马里亚纳群岛决定性的海战。超过200架日本飞机被击落，而美国人仅因敌人的行动而损失29架。
+	- ### 20日
+		- 英国人占领意大利的[佩鲁贾](https://en.wikipedia.org/wiki/Perugia)[因帕尔](https://en.wikipedia.org/wiki/Battle_of_Imphal)之围在三个月后解除。
+	- ### 21日
+		- 盟军在缅甸进攻。
+	- ### 22日
+		- V-1继续袭击英格兰，尤其是伦敦，有时损失惨重。[巴格拉基昂行动](https://en.wikipedia.org/wiki/Operation_Bagration)：通过普通攻击[苏联](https://en.wikipedia.org/wiki/Soviet_Union)军队清除[德国](https://en.wikipedia.org/wiki/Germany)军队从[白俄罗斯](https://en.wikipedia.org/wiki/Belarus)这导致德国的破坏[中央集团军群](https://en.wikipedia.org/wiki/Army_Group_Centre)，二战期间德军的可能是最大的失败。：在[缅甸战役](https://en.wikipedia.org/wiki/Burma_Campaign)中，[科希马战役](https://en.wikipedia.org/wiki/Battle_of_Kohima)以英国的胜利结束。
+	- ### 23日
+		- [爱沙尼亚共和国全国委员会](https://en.wikipedia.org/wiki/National_Committee_of_the_Republic_of_Estonia)向爱沙尼亚人民发表声明。该宣言于1944年7月在斯德哥尔摩和1944年8月1日在塔林向世界媒体公布。
+	- ### 25日
+		- 芬兰和苏联军队之间[的塔利-伊汉塔拉战役](https://en.wikipedia.org/wiki/Battle_of_Tali-Ihantala)开始。[北欧国家](https://en.wikipedia.org/wiki/Nordic_countries)有史以来最大规模的战斗。
+	- ### 26日
+		- [瑟堡](https://en.wikipedia.org/wiki/Cherbourg)被美军解放。
+	- ### 27日
+		- [圣马力诺](https://en.wikipedia.org/wiki/San_Marino)被盟军[轰炸](https://en.wikipedia.org/wiki/Battle_of_San_Marino#Background)，相信轴心国军队已经驻扎在那里。
+- ## 7月
+	- ### 1日
+		- [列宁格勒](https://en.wikipedia.org/wiki/Leningrad)日记作者[坦尼娅·萨维切娃](https://en.wikipedia.org/wiki/Tanya_Savicheva)(TanyaSavicheva)在14岁时死于饥饿。她的家人在围攻期间死亡的日记变得有名。
+	- ### 2日
+		- V-1在物质破坏和生命损失方面继续在英格兰东南部产生破坏性影响。
+	- ### 3日
+		- [明斯克](https://en.wikipedia.org/wiki/Minsk)的[白俄罗斯](https://en.wikipedia.org/wiki/Belarus)被苏联军队解放。盟军发现自己处于“树篱之战”中，因为他们被法国西部的农业树篱所阻碍，情报尚未正确评估。各种临时装置和发明，通常由德国“刺猬”海岸防御装置制成并安装在盟军坦克上，旨在成功应对这一问题。：意大利锡耶纳落入法国军队的[阿尔及利亚](https://en.wikipedia.org/wiki/Algeria)军队之手。
+	- ### 6日
+		- 战争中最大的万岁冲锋4300名日军在塞班岛被屠杀。
+	- ### 7日
+		- 苏军进入立陶宛维尔纽斯。
+		- 7月27日至8月10日坦能堡线上的战斗。在战斗开始时，纳尔瓦前线的德国一侧有25个爱沙尼亚步兵营和24个荷兰、丹麦和佛兰德步兵营。炮兵、坦克、工兵等特种部队主要由德军组成。苏军的进攻停止了，双方都有数万人丧生。
+	- ### 9日
+		- 经过[卡昂的](https://en.wikipedia.org/wiki/Caen)重重抵抗，法国被盟军进攻左翼的英军解放。塞班岛被宣布安全，日本人已经损失了30,000多名士兵；在最后阶段，无数平民在日军的鼓励下自杀。
+	- ### 10日
+		- 日本人仍在抵抗[新几内亚](https://en.wikipedia.org/wiki/New_Guinea)。自1942年4月杜立特空袭以来，东京首次遭到轰炸。
+	- ### 11日
+		- [罗斯福总统](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)宣布他将连续第四次担任美国总统，这是史无前例的。
+	- ### 12日
+		- 希特勒拒绝了陆军元帅瓦尔特·莫德将军提出的将德军从爱沙尼亚和拉脱维亚北部撤退到道加瓦河的提议。
+	- ### 13日
+		- 苏联占领立陶宛维尔纽斯。[利沃夫-桑多米日攻势](https://en.wikipedia.org/wiki/Lvov-Sandomierz_Offensive)开始。
+	- ### 16日
+		- [巴西远征军(FEB)的](https://en.wikipedia.org/wiki/Brazilian_Expeditionary_Force_(FEB))第一批部队抵达意大利。
+	- ### 17日
+		- 17陆军元帅隆美尔在法国的汽车被空中扫射时受了重伤。
+	- ### 18日
+		- 随着日本军队的失败不断加剧，东条英机将军辞去了日本政府首席大臣的职务。[裕仁天皇](https://en.wikipedia.org/wiki/Emperor_Hirohito)要求[小矶国明](https://en.wikipedia.org/wiki/Kuniaki_Koiso)将军组建新政府。法国圣洛被占领，盟军开始从诺曼底的树篱国家突围。
+	- ### 19日
+		- 美军拿下里窝那（里窝那），意大利遥遥领先。
+	- ### 20日
+		- [7月20日的阴谋](https://en.wikipedia.org/wiki/July_20_Plot)由[克劳斯·冯·施陶芬伯格](https://en.wikipedia.org/wiki/Claus_von_Stauffenberg)上校策划，企图暗杀希特勒失败。希特勒正在访问位于东普鲁士拉斯腾堡的总部。对策划者及其家人的报复，甚至包括隆美尔。
+	- ### 21日
+		- 美国海军陆战队登陆关岛。
+	- ### 22日
+		- 希特勒允许从纳尔瓦河撤退到纳尔瓦以西20公里的锡尼梅德山上的坦能堡防线。
+	- ### 23日
+		- 波兰人在[Lwow起义中](https://en.wikipedia.org/wiki/Lwow_Uprising)反抗德国人。
+	- ### 24日
+		- 海军陆战队登陆天宁岛，最后一个马里亚纳群岛（塞班岛和关岛之后）；天宁岛最终将成为B-29基地，也是原子弹轰炸机起飞的基地。[眼镜蛇行动](https://en.wikipedia.org/wiki/Operation_Cobra)现已全面展开：在诺曼底的圣洛突围，美军攻占Coutances。：在苏联开始[纳尔瓦攻势，7月24日至30日](https://en.wikipedia.org/wiki/Battle_for_Narva_Bridgehead#Soviet_Narva_Offensive,_July_24–30)，苏联[第8集团军被殴打](https://en.wikipedia.org/wiki/Battle_of_Auvere)由[爱沙尼亚第45团](https://en.wikipedia.org/wiki/20th_Waffen_Grenadier_Division_of_the_SS_(1st_Estonian))和东普鲁士军团第44。陆军支队“纳尔瓦”开始撤退到[坦能堡防线](https://en.wikipedia.org/wiki/Battle_of_Tannenberg_Line)。:[马伊达内克](https://en.wikipedia.org/wiki/Majdanek)集中营被苏联军队解放，是众多军队中的第一个。苏联现在控制着波兰的几个大城市，包括卢布林。：美国轰炸机错误地轰炸了法国圣洛附近的美军。
+	- ### 26日
+		- 对于第一个空中胜利[喷气式战斗机](https://en.wikipedia.org/wiki/Jet_fighter)时，用[我262](https://en.wikipedia.org/wiki/Messerschmitt_Me_262)的的德国空军的 [Ekdo262](https://en.wikipedia.org/wiki/Erprobungskommando)破坏一[蚊式轰炸机](https://en.wikipedia.org/wiki/De_Havilland_Mosquito)在皇家空军的侦察机[540中队英国皇家空军](https://en.wikipedia.org/wiki/No._540_Squadron_RAF)。列宁格勒方面军的纳尔瓦攻势占领了该镇。
+	- ### 28日
+		- 红军占领[布列斯特-立托夫斯克](https://en.wikipedia.org/wiki/Brest-Litovsk)。[Me163BKomet](https://en.wikipedia.org/wiki/Messerschmitt_Me_163)火箭战斗机的首次作战使用发生在[JG400](https://en.wikipedia.org/wiki/JG_400)部队保卫第三帝国最大的合成燃料综合[设施Leuna合成燃料设施中](https://en.wikipedia.org/wiki/Leuna#World_War_II)。
+	- ### 29日
+		- [纳尔瓦战役中](https://en.wikipedia.org/wiki/Battle_of_Tannenberg_Line)决定性的一天，允许包括[爱沙尼亚义务兵编队](https://en.wikipedia.org/wiki/Estonia_in_World_War_II#Estonian_military_units_in_1941-1944)在内的德军“纳尔瓦”分遣队将苏联[波罗的海攻势](https://en.wikipedia.org/wiki/Baltic_Offensive)再推迟一个半月。
+- ## 8月
+	- ### 1日
+		- 由[波兰本土军队](https://en.wikipedia.org/wiki/Home_Army)策划的华沙起义开始波兰人民起义，期待接近的苏联军队的援助，但始终没有到来。：红军通过占领[考纳斯](https://en.wikipedia.org/wiki/Kaunas)将波罗的海国家与东普鲁士隔离开来。:美国人完成了对[天宁岛](https://en.wikipedia.org/wiki/Tinian)的占领。
+	- ### 3日
+		- 在史迪威的带领下，美国和中国联军克服了强大的日本防御并占领了[缅甸](https://en.wikipedia.org/wiki/Myitkyina)北部的密支那。
+	- ### 4日
+		- [佛罗伦萨](https://en.wikipedia.org/wiki/Florence)被盟军解放，特别是英国和南非军队。在离开之前，[阿尔伯特·凯塞林](https://en.wikipedia.org/wiki/Albert_Kesselring)将军领导的德国人摧毁了一些历史悠久的桥梁和具有历史价值的建筑。法国[雷恩](https://en.wikipedia.org/wiki/Rennes)被美军解放。
+	- ### 5日
+		- [沃拉大屠杀](https://en.wikipedia.org/wiki/Wola_massacre)40-50,000名平民在华沙的沃拉区被德军和[俄罗斯联军](https://en.wikipedia.org/wiki/S.S._Sturmbrigade_R.O.N.A.)杀害。：在考拉突围：日本战俘从附近的澳大利亚越狱考拉，新南威尔士州。两名警卫被杀并追授乔治十字勋章。
+	- ### 6日
+		- 德国人在[克拉科夫](https://en.wikipedia.org/wiki/Krakow)围捕年轻人以阻止潜在的[克拉科夫起义（1944）](https://en.wikipedia.org/wiki/Krak%C3%B3w_Uprising_(1944))。乌克兰叛乱分子在[巴利格罗德大屠杀中](https://en.wikipedia.org/wiki/Baligr%C3%B3d_massacre)杀死了42名波兰平民。
+	- ### 7日
+		- 7在臭名昭著的法官[罗兰·弗赖斯勒](https://en.wikipedia.org/wiki/Roland_Freisler)(RolandFreisler)主持的法庭上，对希特勒的炸弹阴谋者的首次审判开始了。
+	- ### 8日
+		- 参与反希特勒炸弹阴谋的策划者被绞死，尸体挂在肉钩上。对他们家人的报复仍在继续。
+	- ### 9日
+		- 9月罗斯福总统选择[道格拉斯·麦克阿瑟](https://en.wikipedia.org/wiki/Douglas_MacArthur)将军入侵[菲律宾](https://en.wikipedia.org/wiki/Philippines)的计划，拒绝[切斯特·W·尼米兹](https://en.wikipedia.org/wiki/Chester_W._Nimitz)海军上将入侵[台湾](https://en.wikipedia.org/wiki/Taiwan)的计划。
+	- ### 10日
+		- [关岛](https://en.wikipedia.org/wiki/Guam)被美军解放；所有的马里亚纳群岛现在都在美国人手中。他们将变成对抗日本本土的主要空军和海军中心。美国空军轰炸机[袭击](https://en.wikipedia.org/wiki/Operation_Boomerang)荷属东印度群岛的巨港。
+	- ### 14日
+		- 盟军未能关闭法国的[法莱斯口袋](https://en.wikipedia.org/wiki/Falaise_pocket)，这证明有利于逃离盟军钳制运动的向东逃亡的德国人。意大利战俘和美国军人之间的冲突以劳顿堡暴动告终。
+	- ### 15日
+		- [龙骑兵行动](https://en.wikipedia.org/wiki/Operation_Dragoon)开始，以[盟军](https://en.wikipedia.org/wiki/Allies_of_World_War_II)在[法国南部](https://en.wikipedia.org/wiki/Southern_France)的两栖登陆为标志。盟军到达“哥特防线”，这是德国在意大利北部的最后一个战略要地。
+	- ### 18日
+		- 在比利时[抵抗](https://en.wikipedia.org/wiki/Belgian_Resistance)组织暗杀一名合作主义政治家之后，20名平民[在库尔塞勒](https://en.wikipedia.org/wiki/Courcelles_Massacre)被准军事组织屠杀以进行报复。红军到达东普鲁士边境。
+	- ### 19日
+		- [法国抵抗运动](https://en.wikipedia.org/wiki/French_Resistance)在巴黎开始起义，部分受到盟军进入塞纳河的启发。在无线电广播中，爱沙尼亚代理国家元首尤里·乌洛茨呼吁爱沙尼亚应征入伍者在与德国签署和平条约之前阻止苏联武装部队。
+	- ### 20日
+		- 红军重新向罗马尼亚发起进攻。[168名盟军飞行员](https://en.wikipedia.org/wiki/Phil_Lamason)抵达[布痕瓦尔德集中营](https://en.wikipedia.org/wiki/Buchenwald_concentration_camp)。
+	- ### 21日
+		- [敦巴顿橡树园会议](https://en.wikipedia.org/wiki/Dumbarton_Oaks_Conference)开始，建立联合国的基本结构。
+	- ### 22日
+		- 日本人现在完全从印度撤退。德国总理阿道夫·希特勒向德国巴黎司令迪特里希·冯·肖尔蒂茨将军下达了数个命令中的第一个，以摧毁这座城市。
+	- ### 23日
+		- [罗马尼亚](https://en.wikipedia.org/wiki/Romania)与轴心国决裂，向苏联投降，并加入协约国。
+	- ### 25日
+		- [巴黎解放了](https://en.wikipedia.org/wiki/Liberation_of_Paris)；戴高乐在市政厅发表了胜利的演讲，该演讲也在全国播出。冯·肖尔蒂茨中将(Lt.Gen.vonCholtitz)领导的德国军队不服从希特勒的命令，烧毁这座城市并摧毁塞纳河上的所有桥梁。与此同时，南部盟军从里维埃拉向上移动，占领[格勒诺布尔](https://en.wikipedia.org/wiki/Grenoble)和[阿维尼翁](https://en.wikipedia.org/wiki/Avignon)。
+	- ### 26日
+		- 戴高乐和法国自由游行在一些狙击手的火力下胜利地沿着[香榭丽舍大街走](https://en.wikipedia.org/wiki/Champs-%C3%89lys%C3%A9es)。
+	- ### 28日
+		- 德国人在法国南部的[土伦](https://en.wikipedia.org/wiki/Toulon)和[马赛](https://en.wikipedia.org/wiki/Marseille)投降。巴顿的坦克穿过[马恩河](https://en.wikipedia.org/wiki/Marne_(river))。
+	- ### 29日
+		- 反德[斯洛伐克民族起义](https://en.wikipedia.org/wiki/Slovak_National_Uprising)开始在[斯洛伐克](https://en.wikipedia.org/wiki/Slovakia)。
+	- ### 30日
+		- 盟军进入法国西北部的[鲁昂](https://en.wikipedia.org/wiki/Rouen)。
+	- ### 31日
+		- 美国军队将法国政府移交给自由法国军队。苏联军队进入[布加勒斯特](https://en.wikipedia.org/wiki/Bucharest)。
+- ## 9月
+	- ### 1日
+		- 加拿大军队攻占法国[迪耶普](https://en.wikipedia.org/wiki/Dieppe)。
+	- ### 2日
+		- 盟军进入比利时。
+	- ### 3日
+		- [布鲁塞尔](https://en.wikipedia.org/wiki/Brussels)被[英国第二军](https://en.wikipedia.org/wiki/British_Second_Army)解放。[里昂](https://en.wikipedia.org/wiki/Lyon)被法国和美国军队解放。
+	- ### 4日
+		- 停火在芬兰和苏联之间生效。[操作向外](https://en.wikipedia.org/wiki/Operation_Outward)结束。
+	- ### 5日
+		- [安特卫普](https://en.wikipedia.org/wiki/Antwerp)被英国第11装甲师和当地抵抗解放。华沙的起义仍在继续。：[美国](https://en.wikipedia.org/wiki/United_States) [第三军](https://en.wikipedia.org/wiki/III_Corps_(United_States))抵达欧洲战区。：[比利时](https://en.wikipedia.org/wiki/Belgian_Government_in_Exile)、[荷兰](https://en.wikipedia.org/wiki/Dutch_government-in-exile)和[卢森堡流亡政府](https://en.wikipedia.org/wiki/Luxembourgish_government-in-exile)签署了[伦敦海关公约](https://en.wikipedia.org/wiki/London_Customs_Convention)，为[比荷卢经济联盟](https://en.wikipedia.org/wiki/Benelux)奠定了基础。
+	- ### 6日
+		- “停电”减少为“昏暗”，因为入侵和进一步轰炸的威胁似乎不太可能。[根特](https://en.wikipedia.org/wiki/Ghent)和[列日](https://en.wikipedia.org/wiki/Li%C3%A8ge)被英国军队解放。
+	- ### 8日
+		- [奥斯坦德](https://en.wikipedia.org/wiki/Ostend)被加拿大军队解放。苏联军队进入[保加利亚](https://en.wikipedia.org/wiki/Bulgaria)。:[比利时流亡政府](https://en.wikipedia.org/wiki/Belgian_government_in_exile)从伦敦返回比利时，在那里度过了战争。：德国[V-2火箭](https://en.wikipedia.org/wiki/V-2_rocket)首次成功投入使用：两枚在伦敦发射，一枚在巴黎发射。一名妇女被落在伦敦奇斯威克地区的一个人杀死。
+	- ### 9日
+		- [戴高乐](https://en.wikipedia.org/wiki/Charles_de_Gaulle)形成了[法兰西共和国临时政府](https://en.wikipedia.org/wiki/Provisional_Government_of_the_French_Republic)在法国。保加利亚[祖国阵线](https://en.wikipedia.org/wiki/Fatherland_Front_(Bulgaria))推翻国民政府，对德宣战。
+	- ### 10日
+		- [卢森堡](https://en.wikipedia.org/wiki/Luxembourg)被美国第一军解放。两支盟军在[第戎](https://en.wikipedia.org/wiki/Dijon)相遇，将法国一分为二。：首先盟军进入德国，进入边境城市[亚琛](https://en.wikipedia.org/wiki/Aachen)。:荷兰铁路工人罢工。德国的反应导致[了1944](https://en.wikipedia.org/wiki/Dutch_famine_of_1944)年的荷兰饥荒。
+	- ### 11日
+		- [美国第21](https://en.wikipedia.org/wiki/United_States) [军](https://en.wikipedia.org/wiki/XXI_Corps_(United_States))抵达欧洲战区。[矿石山脉上空](https://en.wikipedia.org/wiki/Air_battle_over_the_Ore_Mountains)的空战（在德国袭击美国轰炸机编队后，伴随美国[野马](https://en.wikipedia.org/wiki/North_American_P-51)与德国战斗机交战）。
+	- ### 12日
+		- [第二次魁北克会议](https://en.wikipedia.org/wiki/Second_Quebec_Conference)（代号“八角”）开始罗斯福和丘吉尔讨论太平洋地区的军事合作和德国的未来。
+	- ### 13日
+		- 美军抵达德国防御系统的西墙[齐格弗里德](https://en.wikipedia.org/wiki/Siegfried_Line)防线。
+	- ### 14日
+		- 苏联[波罗的海攻势](https://en.wikipedia.org/wiki/Baltic_Offensive) [开始](https://en.wikipedia.org/wiki/Riga_Offensive_Operation)。
+	- ### 15日
+		- 美国海军陆战队[在贝里琉土地](https://en.wikipedia.org/wiki/Battle_of_Peleliu)在[帕劳群岛](https://en.wikipedia.org/wiki/Palau_Islands);一场血腥的消耗战持续了两个半月。德国军队开始从拉普兰撤退。
+	- ### 16日
+		- 红军进入保加利亚[索非亚](https://en.wikipedia.org/wiki/Sofia)。
+	- ### 17日
+		- [市场花园行动](https://en.wikipedia.org/wiki/Operation_Market_Garden)，企图解放[阿纳姆](https://en.wikipedia.org/wiki/Arnhem)并开始转向德国侧翼。英国和英联邦军队进入中立的[圣马力诺](https://en.wikipedia.org/wiki/San_Marino)并在9月20日结束的[小规模冲突中](https://en.wikipedia.org/wiki/Battle_of_San_Marino)与德国军队交战。
+	- ### 18日
+		- 法国重要的海峡港口[布雷斯特](https://en.wikipedia.org/wiki/Brest,_France)落入盟军手中。JüriUluots宣布由副总理OttoTief领导[的爱沙尼亚政府](https://en.wikipedia.org/wiki/Government_of_Estonia)。
+	- ### 19日
+		- 苏联和芬兰签署[莫斯科停战协定](https://en.wikipedia.org/wiki/Moscow_Armistice)。[南希](https://en.wikipedia.org/wiki/Nancy,_France)被美国第一军解放。
+	- ### 20日
+		- 爱沙尼亚政府抓住的政府大楼[托姆比亚](https://en.wikipedia.org/wiki/Toompea)从德国军队，并呼吁苏联爱沙尼亚的独立性。苏联的推进引发了爱沙尼亚在国外的大规模平民撤离，大约有。80,000人（占战前人口的7%）主要通过波罗的海逃往瑞典。美国[第十六军](https://en.wikipedia.org/wiki/XVI_Corps_(United_States))抵达欧洲战区。
+	- ### 21日
+		- 英国军队占领[意大利里米尼](https://en.wikipedia.org/wiki/Rimini)。第二届敦巴顿橡树园会议开始：它将为联合国制定指导方针。：在比利时，[佛兰德斯的查尔斯](https://en.wikipedia.org/wiki/Prince_Charles,_Count_of_Flanders)宣誓就任摄政王，而关于[利奥波德三世](https://en.wikipedia.org/wiki/Leopold_III_of_Belgium)在被指控合作后是否可以恢复其职能的决定被推迟。：[圣马力诺](https://en.wikipedia.org/wiki/San_Marino)向轴心国宣战。：爱沙尼亚政府印制了几百份[RiigiTeataja](https://en.wikipedia.org/wiki/Riigi_Teataja)（国家公报），在苏联的压力下被迫逃离。
+	- ### 22日
+		- 红军攻占芬兰湾雷区外的第一个波罗的海港口[塔林](https://en.wikipedia.org/wiki/Tallinn)。德国人在布洛涅投降。
+	- ### 23日
+		- 美国人占领加罗林群岛的[乌利西](https://en.wikipedia.org/wiki/Ulithi)环礁；这是一个巨大的环礁，后来将成为重要的海军基地。
+	- ### 24日
+		- 此时红军已经进入波兰。OttoTief的爱沙尼亚政府未能从爱沙尼亚西部撤离并解散，大部分政府成员最终被苏联人俘虏。
+	- ### 25日
+		- 英国军队因市场花园行动失败而撤出阿纳姆。超过6,000名伞兵被俘；英国第1空降师的10,005名伞兵中有不到8,000人被宣布伤亡，损失了80%之多。[美国](https://en.wikipedia.org/wiki/United_States) [第九军](https://en.wikipedia.org/wiki/IX_Corps_(United_States))抵达太平洋战区。
+	- ### 26日
+		- 在意大利卡塞塔，希腊流亡政府与多位承认其权威的游击队领导人达成协议。由于共产党控制的[民族解放阵线](https://en.wikipedia.org/wiki/National_Liberation_Front_(Greece))和英国支持的政府似乎不可调和，希腊出现了内战的迹象。
+	- ### 28日
+		- 双桅船[小西奥多·罗斯福](https://en.wikipedia.org/wiki/Theodore_Roosevelt_Jr.)将军于1944年7月12日死于心脏病，因其在犹他海滩登陆日的领导能力和行动而被追授[荣誉勋章](https://en.wikipedia.org/wiki/Medal_of_Honor)。苏联占领了整个爱沙尼亚大陆。
+	- ### 29日
+		- 苏军开始月[松登陆行动](https://en.wikipedia.org/wiki/Moonsund_Landing_Operation)，从德军手中夺取[西爱沙尼亚群岛](https://en.wikipedia.org/wiki/West_Estonian_archipelago)。
+	- ### 30日
+		- 在[加来](https://en.wikipedia.org/wiki/Calais)的德国驻军向加拿大军队投降。一度，希特勒认为这将成为跨海峡入侵的重点。
+- ## 10月
+	- ### 1日
+		- 匈牙利代表团抵达[莫斯科](https://en.wikipedia.org/wiki/Moscow)与苏联谈判停战。苏联军队进入[南斯拉夫](https://en.wikipedia.org/wiki/Yugoslavia)。
+	- ### 2日
+		- 德国人终于成功镇压了波兰[本土军](https://en.wikipedia.org/wiki/Home_Army)的华沙起义。美军现在正在全面进攻德国“西墙”。：盟军登陆[克里特岛](https://en.wikipedia.org/wiki/Crete)。
+	- ### 3日
+		- 苏军攻占爱沙尼亚的[希乌马岛](https://en.wikipedia.org/wiki/Hiiumaa)。
+	- ### 5日
+		- 加拿大军队越过边境进入荷兰。红军进入匈牙利，也发动攻势攻占[拉脱维亚里加](https://en.wikipedia.org/wiki/Riga)。
+	- ### 6日
+		- 苏联和捷克斯洛伐克军队进入[斯洛伐克](https://en.wikipedia.org/wiki/Slovakia)东北部。[德布勒森战役](https://en.wikipedia.org/wiki/Battle_of_Debrecen)开始于德国和苏联军队在匈牙利东部相互进攻。
+	- ### 7日
+		- [奥斯威辛集中营](https://en.wikipedia.org/wiki/Auschwitz_concentration_camp)发生了骚乱，当时特遣队的犹太合作者们了解到他们也将被灭绝。超过450人在镇压叛乱中丧生，还有许多其他人在混战中逃离了营地。
+	- ### 9日
+		- [莫斯科会议（1944年）](https://en.wikipedia.org/wiki/Moscow_Conference_(1944))开始丘吉尔和斯大林讨论战后巴尔干地区的势力范围。
+	- ### 10日
+		- 红军到达[涅曼河](https://en.wikipedia.org/wiki/Niemen_River)在[普鲁士](https://en.wikipedia.org/wiki/Prussia)和继续围绕里加了战斗。盟军联合部队[攻占](https://en.wikipedia.org/wiki/Corinth)希腊科林斯。
+	- ### 12日
+		- [雅典](https://en.wikipedia.org/wiki/Athens)被[EAM](https://en.wikipedia.org/wiki/National_Liberation_Front_(Greece))解放。美国海军航母攻击台湾（[台湾](https://en.wikipedia.org/wiki/Taiwan)）。：[美国](https://en.wikipedia.org/wiki/United_States) [第二十三军](https://en.wikipedia.org/wiki/XXIII_Corps_(United_States))抵达欧洲战区。
+	- ### 14日
+		- 英军进入雅典。陆军元帅隆美尔，被怀疑为“炸弹策划者”之一，自愿自杀以拯救他的家人。他后来被以完全的军事荣誉下葬。
+	- ### 15日
+		- 匈牙利摄政王[米克洛斯·霍尔蒂](https://en.wikipedia.org/wiki/Mikl%C3%B3s_Horthy)被德国人推翻，德国人用[费伦茨·萨拉西](https://en.wikipedia.org/wiki/Ferenc_Sz%C3%A1lasi)(FerencSzálasi)取而代之。盟军对[亚琛的](https://en.wikipedia.org/wiki/Aachen)轰炸仍在继续，这是德国领土上的第一场重大战役。
+	- ### 16日
+		- 红军正在东普鲁士进攻德军。
+	- ### 18日
+		- 希特勒下令召集所有剩余的16至60名士兵，在[Volkssturm](https://en.wikipedia.org/wiki/Volkssturm)民兵中担任家庭卫队职责。
+	- ### 20日
+		- [莱特战役](https://en.wikipedia.org/wiki/Battle_of_Leyte)美军登陆菲律宾[莱特](https://en.wikipedia.org/wiki/Leyte)。麦克阿瑟登陆并声明：“我回来了”。 ：红军和南斯拉夫游击队在[约瑟普·布罗兹·铁托](https://en.wikipedia.org/wiki/Josip_Broz_Tito)的指挥下解放[贝尔格莱德](https://en.wikipedia.org/wiki/Belgrade)。
+	- ### 21日
+		- [亚琛战役](https://en.wikipedia.org/wiki/Battle_of_Aachen)被美国第一军占领；它是第一个被占领的德国主要城市。
+	- ### 23日
+		- 盟军承认戴高乐将军为法国临时政府首脑。B-29现在使用马里亚纳群岛的天宁岛作为对日本进行系统轰炸的基地。：苏联军队与铁托的游击队合作，解放了南斯拉夫的[诺维萨德](https://en.wikipedia.org/wiki/Novi_Sad)。
+	- ### 23日-26日
+		- [莱特湾海战](https://en.wikipedia.org/wiki/Battle_of_Leyte_Gulf)[美国第三舰队](https://en.wikipedia.org/wiki/United_States_Third_Fleet)和[美国第七舰队](https://en.wikipedia.org/wiki/United_States_Seventh_Fleet)在菲律宾群岛击败日本帝国海军的决定性海战。
+	- ### 25日
+		- [莱特湾海战中](https://en.wikipedia.org/wiki/Battle_of_Leyte_Gulf)发生了三场不同的空中交战，美国海军舰载机在菲律宾附近海域摧毁了许多日本船只。[罗马尼亚](https://en.wikipedia.org/wiki/Romania)被红军和罗马尼亚军队完全解放。
+	- ### 27日
+		- [许特根森林之战](https://en.wikipedia.org/wiki/Battle_of_H%C3%BCrtgen_Forest)正在展开。它将持续到10月和11月，并在12月进行最后一次攻击。
+- ## 11月
+	- ### 1日
+		- 英军占领希腊[萨洛尼卡](https://en.wikipedia.org/wiki/Thessaloniki)，并在正经历饥荒的雅典分发粮食。“[迷恋行动](https://en.wikipedia.org/wiki/Operation_Infatuate)”，盟军试图解放通往安特卫普的道路；两栖登陆发生在[瓦尔赫伦](https://en.wikipedia.org/wiki/Walcheren)岛。
+	- ### 2日
+		- 加拿大军队攻占比利时[泽布吕赫](https://en.wikipedia.org/wiki/Zeebrugge)；比利时现在完全解放了。
+	- ### 4日
+		- 剩余的轴心国军队撤出希腊大陆。德国占领军将留在几个希腊岛屿，直到投降。
+	- ### 5日
+		- 美国飞机轰炸[新加坡](https://en.wikipedia.org/wiki/Singapore)。航空母舰列克星敦号被神风袭击严重损坏。
+	- ### 7日
+		- [富兰克林·德拉诺·罗斯福](https://en.wikipedia.org/wiki/Franklin_Delano_Roosevelt)赢得了史无前例的第四届美国总统任期。
+	- ### 9日
+		- 巴顿将军的部队和坦克渡过[摩泽尔](https://en.wikipedia.org/wiki/Moselle)河，威胁[梅斯](https://en.wikipedia.org/wiki/Metz)。
+	- ### 10日
+		- V-2火箭继续以每天八枚的速度袭击英国。
+	- ### 12日
+		- 在挪威[特罗姆瑟的](https://en.wikipedia.org/wiki/Troms%C3%B8)一个峡湾中停泊时遭到多次轰炸，[德国战舰提尔皮茨号](https://en.wikipedia.org/wiki/German_battleship_Tirpitz)被击沉。
+	- ### 17日
+		- 德国放弃[地拉那](https://en.wikipedia.org/wiki/Tirana)，[阿尔巴尼亚](https://en.wikipedia.org/wiki/Albania)是由当地游击队解放。
+	- ### 20日
+		- 希特勒离开他的战时指挥部[拉斯滕贝格](https://en.wikipedia.org/wiki/Rastenberg)，[东普鲁士](https://en.wikipedia.org/wiki/East_Prussia)，再也没有回来;他去了柏林，很快就会在掩体中安顿下来。
+	- ### 23日
+		- 法国梅斯被占领，法国东部的[斯特拉斯堡](https://en.wikipedia.org/wiki/Strasbourg)被法国军队解放。
+	- ### 24日
+		- 从马里亚纳群岛的天宁岛起飞的第一架B-29袭击了东京。
+	- ### 25日
+		- 日本占领了中国南部的[南宁](https://en.wikipedia.org/wiki/Nanning)，那里的战事仍在继续。[USSIntrepid](https://en.wikipedia.org/wiki/USS_Intrepid_(CV-11))第三次被神风袭击；其他美国船只严重受损。：苏联军队占领了德国在爱沙尼亚的最后一个主要前哨[萨列马岛](https://en.wikipedia.org/wiki/Saaremaa)，最终完成了[蒙松德登陆行动](https://en.wikipedia.org/wiki/Moonsund_Landing_Operation)。
+	- ### 26日
+		- 意大利的战争陷入僵局，部分原因是大雨。
+	- ### 28日
+		- [安特卫普](https://en.wikipedia.org/wiki/Antwerp)现在是不断前进的盟军的主要补给港。
+	- ### 30日
+		- 中国重要的空军基地[昆明](https://en.wikipedia.org/wiki/Kunming)受到日本袭击的威胁。[美国](https://en.wikipedia.org/wiki/United_States) [第二十二军](https://en.wikipedia.org/wiki/XXII_Corps_(United_States))抵达欧洲战区。:[Thiaroye大屠杀](https://en.wikipedia.org/wiki/Thiaroye_Massacre)始于[法属西非](https://en.wikipedia.org/wiki/French_West_Africa)。
+- ## 12月
+	- ### 3日
+		- 英国军队和警察在雅典向手无寸铁的抗议者开枪；人群举着希腊、美国、英国和苏联的旗帜，高呼“丘吉尔万岁，罗斯福万岁，斯大林万岁”。
+		- [Dekemvriana](https://en.wikipedia.org/wiki/Dekemvriana)（“十二月事件”）在希腊首都雅典开始，在英国支持的左翼民族解放阵线成员和政府军之间展开。然而，冲突仅限于雅典，该国其他地区仍然相对平静。[英国家庭卫队](https://en.wikipedia.org/wiki/British_Home_Guard)被停职。
+	- ### 5日
+		- 盟军现在控制了意大利的[拉文纳](https://en.wikipedia.org/wiki/Ravenna)。
+	- ### 8日
+		- [硫磺岛](https://en.wikipedia.org/wiki/Iwo_Jima)的软化轰炸开始。
+	- ### 14日
+		- 菲律宾[巴拉望岛的](https://en.wikipedia.org/wiki/Palawan)日本守军在巴拉[望岛大屠杀中](https://en.wikipedia.org/wiki/Palawan_Massacre)杀死了100多名美国战俘。来自提康德罗加号[航空母舰的](https://en.wikipedia.org/wiki/USS_Ticonderoga_(CV-14))第80航空大队的部队对菲律宾[吕宋岛](https://en.wikipedia.org/wiki/Luzon)北部的日本阵地进行了七次袭击。
+	- ### 15日
+		- 美国人和菲律宾人在菲律宾的[民都洛](https://en.wikipedia.org/wiki/Mindoro)岛登陆。乐队领队和美国陆军少校[格伦米勒](https://en.wikipedia.org/wiki/Glenn_Miller)在他的单引擎运输机穿越英吉利海峡时失踪；他前往巴黎制定安排招待在法国的军队。：德军撤离[鲁赫努岛](https://en.wikipedia.org/wiki/Ruhnu)，这是他们在爱沙尼亚的最后一个前哨基地。苏联人于12月19日占领了该岛。
+	- ### 16日
+		- 随着德军试图在阿登地区取得突破，[突出部之战](https://en.wikipedia.org/wiki/Battle_of_the_Bulge)开始了。希特勒计划的主要目标是收复安特卫普。
+	- ### 17日
+		- [马尔梅迪大屠杀](https://en.wikipedia.org/wiki/Malmedy_massacre)党卫军在阿登攻势中处决了84名美国囚犯。SS部队由SS指挥官[JoachimPeiper](https://en.wikipedia.org/wiki/Joachim_Peiper)领导。：[台风眼镜蛇](https://en.wikipedia.org/wiki/Typhoon_Cobra_(1944))袭击了哈尔西海军上将的第三舰队；三艘驱逐舰倾覆，近800人丧生。
+	- ### 18日
+		- [巴斯托涅](https://en.wikipedia.org/wiki/Bastogne)，一个重要的十字路口，被包围了。
+	- ### 22日
+		- 巴斯托涅之战正处于高潮，[第101空降师的](https://en.wikipedia.org/wiki/101st_Airborne_Division)士兵弹药、食物和其他重要补给品已告罄。准将[安东尼麦考利夫](https://en.wikipedia.org/wiki/Anthony_McAuliffe)著名的“坚果！”回复被送到巴斯托涅的德国指挥官要求投降；该消息的消息有助于鼓舞盟军的士气。
+	- ### 23日
+		- 阿登上空晴朗，允许盟军飞机开始攻击德国的攻势，这是希特勒在其计划中担心的一个因素。
+	- ### 24日
+		- 美国在“Bulge”的反击开始。比利时运输船[SSLeopoldville](https://en.wikipedia.org/wiki/SS_Leopoldville_(1929))在法国海岸附近沉没。800多人丧生，其中主要是美国军人。：[曼彻斯特](https://en.wikipedia.org/wiki/Manchester)被[V1飞弹袭击](https://en.wikipedia.org/wiki/V1_flying_bomb)。
+	- ### 26日
+		- 巴斯托涅的围攻被巴顿的第三集团军的坦克打破，阿登的攻势随之瓦解。美军沸溢入内的种族紧张关系[阿加尼亚种族骚乱](https://en.wikipedia.org/wiki/Agana_race_riot)在[关岛](https://en.wikipedia.org/wiki/Guam)。
+	- ### 28日
+		- 丘吉尔和他的外交大臣[安东尼·伊登](https://en.wikipedia.org/wiki/Anthony_Eden)在雅典试图调和交战派别。
+	- ### 29日
+		- 苏军开始[围攻布达佩斯](https://en.wikipedia.org/wiki/Siege_of_Budapest)。
+	- ### 31日
+		- 苏联支持的匈牙利临时政府向德国宣战。
+# 1945年
+- ## 1月
+	- ### 1日
+		- 德国人在阿尔萨斯北部开始突然进攻（[北风行动](https://en.wikipedia.org/wiki/Operation_Nordwind)）。UnternehmenBodenplatte(OperationBaseplate)由德国空军由十个不同的Jagdgeschwadern（战斗机联队）的元素发起，以对抗位于比利时和荷兰的西部盟军空军基地，作为其在西部战争中的最后一次重大空中攻势。：美国军队在雪诺涅杀死了数十名德国战俘。
+	- ### 2日
+		- 46美国[B-29](https://en.wikipedia.org/wiki/B-29)基于加尔各答附近的轰炸机，攻击印度附近的一个铁路桥[曼谷](https://en.wikipedia.org/wiki/Bangkok)，[泰国](https://en.wikipedia.org/wiki/Thailand)在该地区和其他目标。日本越来越多地使用[神风](https://en.wikipedia.org/wiki/Kamikaze)战术来对付附近的美国海军。
+	- ### 3日
+		- 盟军在突出部以东发起进攻，但他们未能用巴顿的坦克关闭钳子（可能包围了大量德国人）。
+	- ### 4日
+		- 美国海军空袭台湾（[台湾](https://en.wikipedia.org/wiki/Taiwan)）。
+	- ### 5日
+		- 德军进攻北风越过边界进入[阿尔萨斯](https://en.wikipedia.org/wiki/Alsace)。日军在斯利姆将军的部队追击下撤退到缅甸的[伊洛瓦底江](https://en.wikipedia.org/wiki/Irrawaddy_River)。
+	- ### 6日
+		- 美国B-29再次轰炸东京。
+	- ### 7日
+		- 作为夺回[斯特拉斯堡](https://en.wikipedia.org/wiki/Strasbourg)计划的一部分，德国人突破莱茵河上的桥头堡“[科尔马口袋](https://en.wikipedia.org/wiki/Colmar_Pocket)”，向东前进。
+	- ### 8日
+		- 斯特拉斯堡之战正在进行中，美国人为他们最近的收购辩护。
+	- ### 9日
+		- 美国人登陆[吕宋岛](https://en.wikipedia.org/wiki/Luzon)。美国海军发生了更多的神风特攻队袭击事件。
+	- ### 11日
+		- 第一支车队在缅甸北部的[Ledo路](https://en.wikipedia.org/wiki/Ledo_Road)（或“史迪威”路）上行驶，连接印度和中国。
+	- ### 12日
+		- [东普鲁士攻势](https://en.wikipedia.org/wiki/East_Prussian_Offensive)，红军在[东普鲁士的](https://en.wikipedia.org/wiki/East_Prussia)一次重大攻势，于1月13日开始。
+	- ### 13日
+		- 白俄罗斯第1方面军向东普鲁士的皮尔卡伦发起冬季攻势，遭到德国[第3装甲集团军的](https://en.wikipedia.org/wiki/3rd_Panzer_Army)猛烈抵抗。
+	- ### 14日
+		- 英国军队在布莱克科克[行动](https://en.wikipedia.org/wiki/Operation_Blackcock)期间清除了罗尔三角区；这是一个以工业大坝而闻名的地区。
+	- ### 15日
+		- 希特勒现在和他的同伴伊娃布劳恩一起被牢牢地安置在柏林的[元首地堡](https://en.wikipedia.org/wiki/F%C3%BChrerbunker)。英国驻雅典司令罗纳德·斯科比将军接受了希腊人民解放军的停火请求。这标志着Dekemvriana的结束，导致希腊左派的明显失败。
+	- ### 16日
+		- 突出部战役后，美国[第一](https://en.wikipedia.org/wiki/U.S._First_Army)军和[第三](https://en.wikipedia.org/wiki/U.S._Third_Army)军[会合](https://en.wikipedia.org/wiki/Battle_of_the_Bulge)。
+	- ### 17日
+		- 红军进入[华沙](https://en.wikipedia.org/wiki/Warsaw)。一个有利于共产党的政府成立。正式宣布凸出[之战](https://en.wikipedia.org/wiki/Battle_of_the_Bulge)结束。
+	- ### 19日
+		- 希特勒命令任何师或更大单位的撤退必须得到他的批准。
+	- ### 20日
+		- 红军进军东普鲁士。德国人重新撤退。[富兰克林·D·罗斯福](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)（FranklinD.Roosevelt）宣誓就任美国总统。哈里杜鲁门宣誓就任副总统。
+	- ### 23日
+		- 德国法学家和反纳粹活动家[HelmuthJamesvonMoltke](https://en.wikipedia.org/wiki/Helmuth_James_von_Moltke)在柏林因叛国罪被绞死。
+	- ### 24日
+		- [波兹南之战](https://en.wikipedia.org/wiki/Battle_of_Pozna%C5%84_(1945))开始于德军占领的波兰要塞城市[波兹南](https://en.wikipedia.org/wiki/Pozna%C5%84)。
+	- ### 25日
+		- 美国海军轰炸[硫磺岛](https://en.wikipedia.org/wiki/Iwo_Jima)，准备入侵。盟军正式赢得[突出部之战](https://en.wikipedia.org/wiki/Battle_of_the_Bulge)。
+	- ### 27日
+		- 苏联军队进入[奥斯威辛集中营](https://en.wikipedia.org/wiki/Auschwitz_concentration_camp)。
+	- ### 28日
+		- 红军完成对[立陶宛](https://en.wikipedia.org/wiki/Lithuania)的占领。
+	- ### 30日
+		- [马耳他会议（1945年）](https://en.wikipedia.org/wiki/Malta_Conference_(1945))开始于[温斯顿·丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)在地中海马耳他岛上与[联合参谋长](https://en.wikipedia.org/wiki/Combined_Chiefs_of_Staff)会面，以计划在两个战区结束二战，并讨论现在控制东部大部分地区的苏联的后果欧洲。总统[富兰克林·罗斯福](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)将加入会议为一天1945年2月2日;两人将于2月3日飞往雅尔塔，[参加](https://en.wikipedia.org/wiki/Yalta_Conference)与斯大林的雅尔塔会议。
+	- ### 31日
+		- 红军渡过[奥得](https://en.wikipedia.org/wiki/Oder)河进入德国，现在距离柏林不到50英里。美国人第二次入侵吕宋岛登陆西海岸。：随着莱多路与印度的连接完成，整个[缅甸路](https://en.wikipedia.org/wiki/Burma_Road)现已开通。
+- ## 2月
+	- ### 1日
+		- [厄瓜多尔](https://en.wikipedia.org/wiki/Ecuador)向德国和日本宣战。
+	- ### 2日
+		- [新加坡的](https://en.wikipedia.org/wiki/Singapore)海军码头被B-29袭击摧毁。
+	- ### 3日
+		- [马尼拉战役（1945年）](https://en.wikipedia.org/wiki/Battle_of_Manila_(1945))开始美国和[菲律宾](https://en.wikipedia.org/wiki/Philippines)军队进入马尼拉。在[马尼拉大屠杀](https://en.wikipedia.org/wiki/Manila_massacre)的战斗过程中发生。:柏林轰炸。[RolandFriesler](https://en.wikipedia.org/wiki/Roland_Friesler)法官在试图保存法庭文件时被杀。
+	- ### 4日
+		- [雅尔塔会议](https://en.wikipedia.org/wiki/Yalta_Conference)的[罗斯福](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)，[丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)和[斯大林](https://en.wikipedia.org/wiki/Joseph_Stalin)开始;他们讨论的主要议题是战后势力范围。比利时现在清除了所有德国军队。
+	- ### 8日
+		- [巴拉圭](https://en.wikipedia.org/wiki/Paraguay)对德国和日本宣战。
+	- ### 9日
+		- [科尔马口袋](https://en.wikipedia.org/wiki/Colmar_Pocket)，莱茵河以西的最后一个德国据点，被法国第1集团军消灭。
+	- ### 12日
+		- [秘鲁](https://en.wikipedia.org/wiki/Peru)向德国和日本宣战。
+	- ### 13日
+		- [布达佩斯战役](https://en.wikipedia.org/wiki/Battle_of_Budapest)以苏军胜利告终，德军长期防御。
+		- 13/14[德累斯顿轰炸](https://en.wikipedia.org/wiki/Bombing_of_Dresden_in_World_War_II)发生；它被盟军空军轰炸，这座历史名城的大部分地区被摧毁。
+	- ### 14日
+		- [1945年布拉格轰炸](https://en.wikipedia.org/wiki/1945_Bombing_of_Prague)美国飞机轰炸了错误的城市。
+	- ### 15日
+		- [委内瑞拉](https://en.wikipedia.org/wiki/Venezuela)向德国和日本宣战。
+	- ### 16日
+		- 美国伞兵和菲律宾联邦军队降落在马尼拉湾的[科雷吉多岛](https://en.wikipedia.org/wiki/Corregidor_Island)。曾经是1942年初美国最后一次抵抗的场景，现在是日本抵抗的场景。美国海军舰艇轰炸东京和横滨。
+	- ### 19日
+		- 美国海军陆战队入侵[硫磺岛](https://en.wikipedia.org/wiki/Iwo_Jima)。
+	- ### 21日
+		- 21、巴西军队和美国军队赢得[蒙特卡斯特罗战役](https://en.wikipedia.org/wiki/Battle_of_Monte_Castello)。
+	- ### 22日
+		- [号角行动](https://en.wikipedia.org/wiki/Operation_Clarion)，大约9,000架美国和英国飞机对德国铁路和其他运输基础设施进行大规模轰炸，持续到2月23日。
+	- ### 23日
+		- 美国海军陆战队[提高美国国旗](https://en.wikipedia.org/wiki/Raising_the_Flag_on_Iwo_Jima)上[安装的擂钵](https://en.wikipedia.org/wiki/Mount_Suribachi)硫磺岛。[土耳其](https://en.wikipedia.org/wiki/Turkey)对德国和日本宣战。：在菲律宾，美国军队[对洛斯巴尼奥斯](https://en.wikipedia.org/wiki/Raid_on_Los_Ba%C3%B1os)进行了突袭，从日本人手中解放了2147名盟军军事和平民囚犯。
+	- ### 24日
+		- 埃及向轴心国宣战。在议会发表此声明后不久，总理[艾哈迈德·马赫帕夏](https://en.wikipedia.org/wiki/Ahmad_Maher_Pasha)被暗杀。
+	- ### 25日
+		- 24日起飞，美国B-29轰炸机袭击日本东京。
+	- ### 26日
+		- 叙利亚向德国和日本宣战。经过十天的战斗，美国和菲律宾军队重新夺回了科雷吉多。
+	- ### 28日
+		- 菲律宾政府成立。美国和菲律宾军队[入侵](https://en.wikipedia.org/wiki/Invasion_of_Palawan) 菲律宾的一个岛屿[巴拉望](https://en.wikipedia.org/wiki/Palawan)岛。
+- ## 3月
+	- ### 3日
+		- [马尼拉](https://en.wikipedia.org/wiki/Manila)完全解放。[密铁拉之战](https://en.wikipedia.org/wiki/Battle_of_Meiktila_and_Mandalay)，缅甸以[斯利姆](https://en.wikipedia.org/wiki/William_Slim,_1st_Viscount_Slim)将军的军队压倒日本而告终；通往仰光的道路现已清理完毕。：盟军试图通过[大规模轰炸](https://en.wikipedia.org/wiki/Bombing_of_the_Bezuidenhout)摧毁海牙附近的V-2和发射设备，但由于导航错误，Bezuidenhout区被摧毁，造成511名荷兰平民死亡。
+	- ### 4日
+		- 芬兰向德国宣战，时间可追溯到1944年9月15日。
+	- ### 6日
+		- 德军在匈牙利对苏军发动[攻势](https://en.wikipedia.org/wiki/Operation_Spring_Awakening)。
+	- ### 7日
+		- [雷马根战役](https://en.wikipedia.org/wiki/Battle_of_Remagen)当德军未能炸毁莱茵河上的[鲁登道夫大桥时](https://en.wikipedia.org/wiki/Ludendorff_Bridge)，美国第一军占领了这座桥并开始过河。陆军还占领了[德国科隆](https://en.wikipedia.org/wiki/Cologne)。:德国人开始撤离但泽。
+	- ### 8日
+		- 陆军空降团逃兵二等兵卡尔·胡尔滕因一系列罪行被绞死在英国监狱中，后来被称为[下巴裂谋杀](https://en.wikipedia.org/wiki/Cleft_chin_murder)。
+	- ### 9日
+		- 美国向[东京发射燃烧弹](https://en.wikipedia.org/wiki/Bombing_of_Tokyo_(10_March_1945))（袭击代号为“会议屋行动”），平民伤亡惨重。在美国可能入侵的谣言中，日本推翻了作为越南殖民政府独立运作的维希法国[让·德科](https://en.wikipedia.org/wiki/Jean_Decoux)政府：他们宣布一个“独立”的越南帝国，以皇帝BảoĐại为名义统治者。总理TrầnTrọngKim组成越南第一届政府。
+	- ### 10日
+		- 日本的[Fu-Go气球炸弹](https://en.wikipedia.org/wiki/Fu-Go_balloon_bomb)对华盛顿州曼哈顿计划的[汉福德基地](https://en.wikipedia.org/wiki/Hanford_Site)造成轻微损坏，但没有造成持久影响。
+	- ### 11日
+		- 日本名古屋被数百架B-29轰炸。
+	- ### 15日
+		- V-2火箭继续袭击英格兰和比利时。
+	- ### 16日
+		- 德国在匈牙利的攻势以苏联的另一场胜利告终。经过一个月的战斗，硫磺岛终于安全了，这是战争中唯一一场美军伤亡人数超过日军的海战。随着孤立的日本战士从洞穴和隧道中出现，零星的战斗将继续。
+	- ### 18日
+		- 红军逼近[但](https://en.wikipedia.org/wiki/Gda%C5%84sk)泽（战后格但斯克）。
+	- ### 19日
+		- 美国第58航母特遣部队对日本、神户和吴的重要海军基地进行猛烈轰炸。距日本50英里的航母[富兰克林号(CV-13)](https://en.wikipedia.org/wiki/USS_Franklin_(CV-13))被两枚炸弹击中，造成数百人死亡并在战争的剩余时间里无法使用。[DeutschSchutzen大屠杀](https://en.wikipedia.org/wiki/Deutsch_Schutzen_massacre)发生，其中60名犹太人被杀。
+	- ### 20日
+		- 德国一般[哥特哈德·海因里希](https://en.wikipedia.org/wiki/Gotthard_Heinrici)取代[海因里希·希姆莱](https://en.wikipedia.org/wiki/Heinrich_Himmler)为司令[集团军维斯瓦河](https://en.wikipedia.org/wiki/Army_Group_Vistula)，集团军直接朝相反柏林的苏军的进攻。曼德勒被[印度第19步兵师](https://en.wikipedia.org/wiki/19th_Infantry_Division_(India))解放。:东京又被轰炸了。：巴顿的军队攻占德国美因茨。
+	- ### 21日
+		- [迦太基行动](https://en.wikipedia.org/wiki/Operation_Carthage)，英国空袭盖世太保总部，丹麦哥本哈根，支持[丹麦抵抗运动](https://en.wikipedia.org/wiki/Danish_resistance_movement)。
+	- ### 22日-23日
+		- 美国和英国军队在奥本海姆[渡过莱茵河](https://en.wikipedia.org/wiki/Operation_Plunder)。
+	- ### 23日
+		- 此时很明显德国正受到来自各方的攻击。
+	- ### 24日
+		- [校队行动](https://en.wikipedia.org/wiki/Operation_Varsity)，蒙哥马利指挥的英美加空降突击队部署在威塞尔的莱茵河上空。
+	- ### 27日
+		- 西方盟军放慢前进速度，允许红军攻占柏林。[阿根廷](https://en.wikipedia.org/wiki/Argentina)向德国宣战，德国是最后一个这样做的西半球国家；其庇护逃亡纳粹分子的政策也受到审查。由于英国希望阿根廷航运保持中立（因此阿根廷食品可以安然无恙地到达英国），阿根廷之前没有宣战，但这与美国的计划背道而驰，美国对阿根廷施加了很大的政治压力。
+	- ### 29日
+		- [红军](https://en.wikipedia.org/wiki/Red_Army)进入奥地利。其他盟国占领法兰克福；德国人正在全国中心的一个大撤退中。
+	- ### 30日
+		- 红军攻占但[泽](https://en.wikipedia.org/wiki/Danzig)。
+	- ### 31日
+		- 艾森豪威尔将军广播要求德国人投降。
+- ## 4月
+	- ### 1日
+		- 美军开始冰山行动，即[冲绳战役](https://en.wikipedia.org/wiki/Battle_of_Okinawa)。这将是[大陆入侵的](https://en.wikipedia.org/wiki/Operation_Downfall)一个跳跃基地。美国人重新夺回菲律宾的勒加斯[比](https://en.wikipedia.org/wiki/Legazpi,_Albay)，[阿尔拜](https://en.wikipedia.org/wiki/Albay)。
+	- ### 2日
+		- 苏联在奥地利首都及其周边地区对德国军队发动了[维也纳攻势](https://en.wikipedia.org/wiki/Vienna_Offensive)。德国军队被[鲁尔口袋](https://en.wikipedia.org/wiki/Ruhr_Pocket)包围。
+	- ### 4日
+		- 斯洛伐克共和国的首都[布拉迪斯拉发](https://en.wikipedia.org/wiki/Bratislava)被苏联军队占领。约瑟夫·蒂索总统亲德政府的其余成员逃往奥地利。Ohrdruf死亡集中营被盟军解放。
+	- ### 6日
+		- 6[1945年春季意大利的攻势从意大利](https://en.wikipedia.org/wiki/Spring_1945_offensive_in_Italy)北部开始。
+	- ### 7日
+		- [日本战舰大和](https://en.wikipedia.org/wiki/Japanese_battleship_Yamato)号在日本进行最后一次重大海上行动时在[冲绳](https://en.wikipedia.org/wiki/Okinawa)以北海域沉没。
+	- ### 9日
+		- 9[柯尼斯堡战役](https://en.wikipedia.org/wiki/Battle_of_K%C3%B6nigsberg)以苏军胜利告终。：英国皇家空军在[基尔](https://en.wikipedia.org/wiki/Kiel)的一次猛烈轰炸摧毁了德国最后两艘主要战舰，重型巡洋舰[希佩尔海军上将](https://en.wikipedia.org/wiki/German_cruiser_Admiral_Hipper)和谢尔海[军上将](https://en.wikipedia.org/wiki/German_cruiser_Admiral_Scheer)。:[迪特里希·邦霍费尔](https://en.wikipedia.org/wiki/Dietrich_Bonhoeffer)牧师在[弗洛森堡](https://en.wikipedia.org/wiki/Flossenb%C3%BCrg_concentration_camp)监狱被处决。
+	- ### 10日
+		- [布痕瓦尔德](https://en.wikipedia.org/wiki/Buchenwald)集中营被美军解放。
+	- ### 11日
+		- 日本[神风](https://en.wikipedia.org/wiki/Kamikaze)袭击美国海军舰艇在冲绳继续；[企业号](https://en.wikipedia.org/wiki/USS_Enterprise_(CV-6))航母和[密苏里号](https://en.wikipedia.org/wiki/USS_Missouri_(BB-63))战列舰被击中。[西班牙](https://en.wikipedia.org/wiki/Spain)与日本断交。
+	- ### 12日
+		- 美国总统[富兰克林·D·罗斯福](https://en.wikipedia.org/wiki/Franklin_D._Roosevelt)突然去世。[哈里·S·杜鲁门](https://en.wikipedia.org/wiki/Harry_S._Truman)成为美国总统。
+	- ### 13日
+		- 13[维也纳攻势](https://en.wikipedia.org/wiki/Vienna_Offensive)以苏联的胜利告终。:[Gardelegen大屠杀](https://en.wikipedia.org/wiki/Gardelegen_Massacre)发生。超过1000名奴隶劳工被关在一个谷仓里，然后被纵火焚烧。这是[德国人](https://en.wikipedia.org/wiki/Germans)对平民实施的最后一次大屠杀之一。仅仅几个小时后，美军攻占了[加德莱根](https://en.wikipedia.org/wiki/Gardelegen)。
+	- ### 14日
+		- 东京发生大规模燃烧弹。
+	- ### 15日
+		- [卑尔根-贝尔森集中营](https://en.wikipedia.org/wiki/Bergen-Belsen_concentration_camp)被英国军队解放。
+	- ### 16日
+		- [施劳弗高地战役](https://en.wikipedia.org/wiki/Battle_of_the_Seelow_Heights)和[奥得河-尼斯河战役](https://en.wikipedia.org/wiki/Battle_of_the_Oder-Neisse)开始为苏联继续向柏林市前进。
+	- ### 17日
+		- 意大利小镇[蒙特塞](https//it.wikipedia.org/wiki/Battaglia_di_Montese)被巴西军队解放。
+	- ### 18日
+		- 著名的GI战地记者[ErniePyle](https://en.wikipedia.org/wiki/Ernie_Pyle)在冲绳附近的一个小岛[IeShima](https://en.wikipedia.org/wiki/Iejima)被机枪射杀。
+	- ### 19日
+		- 瑞士关闭与德国（和前奥地利）的边界。盟军继续向[波谷](https://en.wikipedia.org/wiki/Po_Valley)扫荡。：苏军继续向柏林市推进，并很快到达郊区。
+	- ### 20日
+		- 希特勒在柏林的地堡里庆祝他的56岁生日；据报道，他处于不健康的状态，紧张和沮丧。
+	- ### 21日
+		- [格奥尔吉·朱可夫](https://en.wikipedia.org/wiki/Georgy_Konstantinovich_Zhukov)（[白俄罗斯第一](https://en.wikipedia.org/wiki/1st_Belorussian_Front)方面军）、[康斯坦丁·罗科索夫斯基](https://en.wikipedia.org/wiki/Konstantin_Konstantinovich_Rokossovsky)（[白俄罗斯第二方面军](https://en.wikipedia.org/wiki/2nd_Belorussian_Front)）和[伊万·科涅夫](https://en.wikipedia.org/wiki/Ivan_Konev)（[乌克兰](https://en.wikipedia.org/wiki/1st_Ukrainian_Front)第一方面军）率领的苏军在开幕式上向柏林市及其周边地区的德军发起进攻[柏林战役的](https://en.wikipedia.org/wiki/Battle_of_Berlin)各个阶段。希特勒命令党卫军将军[费利克斯施泰纳](https://en.wikipedia.org/wiki/Felix_Steiner)攻击并摧毁白俄罗斯第一方面军。“[陆军支队施泰纳](https://en.wikipedia.org/wiki/Army_Detachment_Steiner)”的破烂部队还没有满员。
+	- ### 22日
+		- 当天晚些时候，希特勒被告知，在[圣哥达·海因里西](https://en.wikipedia.org/wiki/Gotthard_Heinrici)的批准下，施泰纳从未发动过进攻。相反，施泰纳的部队被授权撤退。作为回应，希特勒在[威廉·凯特尔](https://en.wikipedia.org/wiki/Wilhelm_Keitel)、[汉斯·克雷布斯](https://en.wikipedia.org/wiki/Hans_Krebs_(Wehrmacht_general))、[阿尔弗雷德·约德尔](https://en.wikipedia.org/wiki/Alfred_Jodl)、[威廉·伯格多夫](https://en.wikipedia.org/wiki/Wilhelm_Burgdorf)和[马丁·鲍曼](https://en.wikipedia.org/wiki/Martin_Bormann)面前对他的军事指挥官的背叛和无能发表了愤怒的长篇大论。希特勒的长篇大论以宣誓留在柏林领导这座城市的防御而告终。希特勒命令[瓦尔特·温克](https://en.wikipedia.org/wiki/Walther_Wenck)将军率领[第十二集团军](https://en.wikipedia.org/wiki/12th_Army_(Wehrmacht))向柏林进攻，与[第九集团军](https://en.wikipedia.org/wiki/9th_Army_(Wehrmacht))会合[西奥多·布斯](https://en.wikipedia.org/wiki/Theodor_Busse)(TheodorBusse)，缓解城市压力。温克[发起了攻击](https://en.wikipedia.org/wiki/Battle_of_Halbe)，但不会有结果。
+	- ### 23日
+		- [赫尔曼·戈林](https://en.wikipedia.org/wiki/Hermann_G%C3%B6ring)向希特勒的掩体发送射线照片，要求被宣布为希特勒的继任者。他宣称，如果他在晚上10点前没有得到回应，他将假定希特勒已丧失行为能力，并承担帝国的领导权。希特勒大怒，剥夺了他的所有职务，并将他驱逐出纳粹党。[阿尔伯特·斯佩尔](https://en.wikipedia.org/wiki/Albert_Speer)最后一次拜访希特勒，告诉他他（斯佩尔）无视了关于焦土的[尼禄法令](https://en.wikipedia.org/wiki/Nero_Decree)。
+	- ### 24日
+		- 希姆莱无视希特勒的命令，向盟军（由红十字会主席[福尔克·贝尔纳多特伯爵](https://en.wikipedia.org/wiki/Folke_Bernadotte)领导）秘密投降，前提是红军不参与。报价被拒绝；28日，希特勒听到背叛的消息后，下令射杀希姆莱。白俄罗斯第一方面军和乌克兰第一方面军的部队在柏林的初步包围中会合。：盟军在博洛尼亚附近包围了最后的德国军队，意大利战争实际上已经结束。
+	- ### 25日
+		- [易北河日](https://en.wikipedia.org/wiki/Elbe_Day)苏联和美国军队在德国托尔高附近的[易北河](https://en.wikipedia.org/wiki/Elbe)首次接触。
+	- ### 26日
+		- 希特勒从慕尼黑召集陆军元帅[罗伯特·里特·冯·格雷姆](https://en.wikipedia.org/wiki/Robert_Ritter_von_Greim)(RobertRittervonGreim)到柏林，从戈林手中接过德国空军的指挥权。在飞往柏林的途中，冯·格莱姆被苏联的防空火力击中重伤。
+	- ### 27日
+		- 德军在柏林的合围由[白俄罗斯第1](https://en.wikipedia.org/wiki/1st_Belorussian_Front)方面军和[乌克兰](https://en.wikipedia.org/wiki/1st_Ukrainian_Front)第1方面军完成。最后的德国编队从芬兰撤回挪威；在[芬兰的标志是在三国山提出](https://en.wikipedia.org/wiki/Raising_the_Flag_on_the_Three-Country_Cairn)的庆祝活动。:意大利社会共和国的国家元首贝尼托·墨索里尼(BenitoMussolini)在试图逃往瑞士时在意大利北部被抓获。
+	- ### 28日
+		- 墨索里尼和他的情妇[克拉拉·佩塔奇](https://en.wikipedia.org/wiki/Clara_Petacci)在米兰被枪杀，双脚倒挂。他的[傀儡政府的](https://en.wikipedia.org/wiki/Puppet_state)其他成员也被[意大利游击队](https://en.wikipedia.org/wiki/Italian_partisans)处决，他们的尸体被展出。
+	- ### 29日
+		- [达豪集中营](https://en.wikipedia.org/wiki/Dachau_concentration_camp)被美国第7军解放。意大利的所有部队[正式投降](https://en.wikipedia.org/wiki/Surrender_of_Caserta)并宣布停火。：盟军空军开始[实施Manna和Chowhound行动](https://en.wikipedia.org/wiki/Operations_Manna_and_Chowhound)，在与德国占领军达成的停战协议下向荷兰提供粮食援助。：希特勒娶了他的同伴[爱娃布劳恩](https://en.wikipedia.org/wiki/Eva_Braun)。
+	- ### 30日
+		- 希特勒和他的妻子用毒药和枪击自杀。在他死之前，他口述了他[最后的遗嘱和遗嘱](https://en.wikipedia.org/wiki/Last_will_and_testament_of_Adolf_Hitler)。其中[约瑟夫·戈培尔](https://en.wikipedia.org/wiki/Joseph_Goebbels)被任命为帝国总理，海军上将[卡尔·邓尼茨](https://en.wikipedia.org/wiki/Karl_D%C3%B6nitz)被任命为帝国总统。
+- ## 5月
+	- ### 1日
+		- 德国将军[汉斯·克雷布斯](https://en.wikipedia.org/wiki/Hans_Krebs_(Wehrmacht_general))与苏联将军[瓦西里·丘伊科夫](https://en.wikipedia.org/wiki/Vasily_Chuikov)谈判柏林市的投降。丘伊科夫作为[苏军第8近卫军司令](https://en.wikipedia.org/wiki/Soviet_8th_Guards_Army)，在柏林市中心指挥苏军。克雷布斯未经帝国总理戈培尔授权同意无条件投降，因此他与崔科夫的谈判无果而终。戈培尔和他的妻子谋杀了[他们的孩子](https://en.wikipedia.org/wiki/Goebbels_children)并自杀。：[南斯拉夫](https://en.wikipedia.org/wiki/Yugoslavia)游击队领袖[约瑟普·布罗兹·铁托](https://en.wikipedia.org/wiki/Josip_Broz_Tito)和他的军队攻占意大利的[里雅斯特](https://en.wikipedia.org/wiki/Trieste)。:意大利战争结束了，但仍有一些德国军队下落不明。:澳大利亚军队[登陆](https://en.wikipedia.org/wiki/Battle_of_Tarakan_(1945))婆罗洲海岸附近的塔拉坎岛。
+	- ### 2日
+		- 苏军攻占[德国国会大厦](https://en.wikipedia.org/wiki/Reichstag_building)并[安装苏联国旗](https://en.wikipedia.org/wiki/Raising_a_flag_over_the_Reichstag)。[柏林战役](https://en.wikipedia.org/wiki/Battle_of_Berlin)结束时，柏林防卫区司令德国将军[赫尔穆斯·魏德林](https://en.wikipedia.org/wiki/Helmuth_Weidling)（不再受戈培尔的命令约束）将柏林城无条件地投降给苏联将军瓦西里·崔可夫。:Vietinghoff将军在意大利北部投降了他的军队。
+	- ### 3日
+		- [仰光](https://en.wikipedia.org/wiki/Yangon)解放。德国巡洋舰[希佩尔海军上将号](https://en.wikipedia.org/wiki/German_cruiser_Admiral_Hipper)在4月遭到英国皇家空军的重创，被凿沉。
+	- ### 4日
+		- KarlDönitz命令所有U-boat停止运行。在丹麦、德国北部和荷兰的德国军队向[蒙哥马利](https://en.wikipedia.org/wiki/Bernard_Law_Montgomery)投降。:[Neuengamme集中营](https://en.wikipedia.org/wiki/Neuengamme_concentration_camp)被解放。
+	- ### 5日
+		- 德国投降的正式谈判在法国[兰斯](https://en.wikipedia.org/wiki/Reims)开始。[捷克抵抗](https://en.wikipedia.org/wiki/Czech_resistance)战士开始[布拉格起义](https://en.wikipedia.org/wiki/Prague_uprising)，苏联人开始[布拉格攻势](https://en.wikipedia.org/wiki/Prague_Offensive)。：在荷兰的德军正式投降；荷兰王子伯恩哈德接受投降。：[毛特豪森集中营](https://en.wikipedia.org/wiki/Mauthausen_concentration_camp)被解放。：神风队在冲绳海域取得了重大成功。：日本的[火气球](https://en.wikipedia.org/wiki/Fire_balloon)夺去了他们的第一个也是唯一的生命——[俄勒冈州布莱](https://en.wikipedia.org/wiki/Bly,_Oregon)的一个主日学团体。
+	- ### 6日
+		- 德国士兵在[水坝广场](https://en.wikipedia.org/wiki/Dam_Square)向庆祝荷兰解放的人群开火。在和平的边缘，120人受重伤，22人被宣布死亡。这个日期标志着美国军队在欧洲的最后一次战斗。
+	- ### 7日
+		- 德国无条件投降的同盟国[西方盟军总部](https://en.wikipedia.org/wiki/Supreme_Headquarters_Allied_Expeditionary_Force)在[兰斯](https://en.wikipedia.org/wiki/Rheims)，法国在上午02时41分，根据来自帝国总统令[卡尔·邓尼茨](https://en.wikipedia.org/wiki/Karl_D%C3%B6nitz)将军[阿尔弗雷德·约德尔](https://en.wikipedia.org/wiki/Alfred_Jodl)迹象德国。赫尔曼戈林在党卫军手中有一段时间向美国人投降。当第80侦察排被两架德国飞机扫射并返回时，美国驻奥地利第80特遣队Smythe特遣队的成员在欧洲进行了最后一次美国战争，射击导致一架飞机留下尾烟。
+	- ### 8日
+		- [欧洲胜利日](https://en.wikipedia.org/wiki/Victory_in_Europe_Day)停火于午夜过后一分钟生效。：按照邓尼茨的命令，[卡尔·希尔伯特上将](https://en.wikipedia.org/wiki/Carl_Hilpert)无条件投降[库尔兰口袋中的](https://en.wikipedia.org/wiki/Courland_Pocket)部队。：德国再次无条件向苏联军队投降，但这次是在苏联主办的仪式上。根据来自邓尼茨将军令[威廉·凯特尔](https://en.wikipedia.org/wiki/Wilhelm_Keitel)迹象德国。：[约瑟夫·蒂索](https://en.wikipedia.org/wiki/Jozef_Tiso)总统的亲德[斯洛伐克共和国](https://en.wikipedia.org/wiki/Slovak_Republic_(1939-1945))的其余成员在克雷姆斯明斯特向美国[沃尔顿·沃克](https://en.wikipedia.org/wiki/Walton_Walker)将军的第20[军](https://en.wikipedia.org/wiki/XX_Corps_(United_States))投降，奥地利。：[布拉格起义](https://en.wikipedia.org/wiki/Prague_uprising)以与[捷克抵抗](https://en.wikipedia.org/wiki/Czech_resistance)军协商投降而告终，这使得布拉格的德国人得以离开这座城市。：为了解除在[越南](https://en.wikipedia.org/wiki/Vietnam)的日本人的武装，盟军在[16度线](https://en.wikipedia.org/wiki/16th_parallel_north)将该国一分为二。中国国民党将进入并解除平行[线以北](https://en.wikipedia.org/wiki/North_Vietnam)日本人的武装，而英国人将进入并在[南部](https://en.wikipedia.org/wiki/South_Vietnam)做同样的事情。会议期间，法国代表要求归还所有法国战前在[印度支那的](https://en.wikipedia.org/wiki/Indochina)殖民地。他们的请求得到了批准。
+	- ### 9日
+		- [苏联](https://en.wikipedia.org/wiki/Soviet_Union)正式宣布5月9日为[胜利日](https://en.wikipedia.org/wiki/Victory_Day_(9_May))。红军进入布拉格。：[海峡群岛](https://en.wikipedia.org/wiki/Occupation_of_the_Channel_Islands#Liberation)的德国驻军同意无条件投降。：[博恩霍尔姆的](https://en.wikipedia.org/wiki/Bornholm)德军向苏军投降。
+	- ### 11日
+		- 苏联占领布拉格，这是最后一个被解放的欧洲首都。艾森豪威尔阻止巴顿参与解放。德国[中央集团军群](https://en.wikipedia.org/wiki/Army_Group_Centre)在[捷克斯洛伐克](https://en.wikipedia.org/wiki/Czechoslovakia)投降。：[新几内亚的](https://en.wikipedia.org/wiki/New_Guinea)战争仍在继续，澳大利亚人袭击了[韦瓦克](https://en.wikipedia.org/wiki/Aitape%E2%80%93Wewak_campaign)。
+	- ### 14日-15日
+		- [Poljana之战](https://en.wikipedia.org/wiki/Battle_of_Poljana)开始和结束。
+	- ### 14日
+		- [日本名古屋](https://en.wikipedia.org/wiki/Nagoya)被严重轰炸。菲律宾南部的战斗仍在继续。
+	- ### 15日-16日
+		- [马六甲海峡海战](https://en.wikipedia.org/wiki/Battle_of_the_Malacca_Strait)以英国的胜利和[日本巡洋舰羽黑号](https://en.wikipedia.org/wiki/Japanese_cruiser_Haguro)的沉没而告终。
+	- ### 20日
+		- [特塞尔](https://en.wikipedia.org/wiki/Georgian_Uprising_of_Texel)的格鲁吉亚起义结束，结束了[荷兰的](https://en.wikipedia.org/wiki/Netherlands)所有二战冲突。
+	- ### 21日
+		- 党卫军指挥官[海因里希·希姆莱](https://en.wikipedia.org/wiki/Heinrich_Himmler)(HeinrichHimmler)被苏联军队逮捕，企图冒充普通士兵。他将于5月23日被移交给英国审讯中心。
+	- ### 23日
+		- 英国军队抓捕并逮捕了[弗伦斯堡政府](https://en.wikipedia.org/wiki/Flensburg_government)的残余成员。这是德国总统卡尔·邓尼茨在[阿道夫·希特勒](https://en.wikipedia.org/wiki/Adolf_Hitler)和约瑟夫·戈培尔自杀后组建的德国政府。对重要的港口和海军基地[横滨进行](https://en.wikipedia.org/wiki/Yokohama)猛烈轰炸。：臭名昭著的党卫军首领[海因里希·希姆莱](https://en.wikipedia.org/wiki/Heinrich_Himmler)因服用氰化物药丸而自杀身亡。
+	- ### 25日
+		- [奥扎克战役](https://en.wikipedia.org/wiki/Battle_of_Od%C5%BEak)结束，结束了[南斯拉夫](https://en.wikipedia.org/wiki/Kingdom_of_Yugoslavia)和欧洲的所有二战冲突。
+	- ### 29日
+		- 由于民族主义者要求摆脱法国控制，叙利亚和黎巴嫩爆发了战斗。
+- ## 6月
+	- ### 2日
+		- 来自提康德罗加[号航空母舰的](https://en.wikipedia.org/wiki/USS_Ticonderoga_(CV-14))87航空群飞机袭击日本[九州的](https://en.wikipedia.org/wiki/Kyushu)机场，试图阻止特种攻击机起飞。
+	- ### 5日
+		- 盟军同意将德国划分为四个控制区（美国、英国、法国和苏联）。[威廉·哈尔西(WilliamHalsey,Jr.)率领](https://en.wikipedia.org/wiki/William_Halsey,_Jr.)的美国舰队在一场巨大的太平洋[台风中](https://en.wikipedia.org/wiki/Typhoon)遭受了广泛的破坏。
+	- ### 10日
+		- 澳大利亚军队[登陆文莱](https://en.wikipedia.org/wiki/Operation_Oboe_Six)。
+	- ### 11日
+		- 荷兰小岛[Schiermonnikoog](https://en.wikipedia.org/wiki/Schiermonnikoog_(island_and_municipality))是欧洲最后被盟军解放的部分。
+	- ### 13日
+		- 澳大利亚人占领[文莱](https://en.wikipedia.org/wiki/Brunei)。日本海军上将[太田稔](https://en.wikipedia.org/wiki/Minoru_%C5%8Cta)和他周围的数千名海军旅因未能保卫日本冲绳而进行仪式自杀。
+	- ### 15日
+		- [日本大阪](https://en.wikipedia.org/wiki/Osaka)遭到严重轰炸。
+	- ### 16日
+		- 日本人在中国中部大撤退。
+	- ### 19日
+		- 英国开始[复员](https://en.wikipedia.org/wiki/Demobilization)。
+	- ### 22日
+		- 日本人在冲绳的失败现在已经完成。
+	- ### 26日
+		- [联合国宪章](https://en.wikipedia.org/wiki/United_Nations_Charter)在旧金山签署。
+	- ### 27日
+		- 第一个油泵在[塔拉干岛](https://en.wikipedia.org/wiki/Tarakan_Island)恢复。
+- ## 7月
+	- ### 1日
+		- 澳大利亚军队[登陆婆罗洲巴厘巴板，](https://en.wikipedia.org/wiki/Battle_of_Balikpapan_(1945))这是西方盟军在战争中的最后一次主要陆上行动。
+	- ### 5日
+		- [道格拉斯麦克阿瑟](https://en.wikipedia.org/wiki/Douglas_MacArthur)将军宣布菲律宾已经解放。
+	- ### 6日
+		- [挪威](https://en.wikipedia.org/wiki/Norway)对日本宣战。
+	- ### 10日
+		- 美国海军[快速航母特遣队](https://en.wikipedia.org/wiki/Fast_Carrier_Task_Force)38架飞机首次参加对东京的袭击。
+	- ### 14日
+		- 意大利对日本宣战。
+	- ### 16日
+		- 美国在新墨西哥州阿拉莫戈多进行[三位一体试验](https://en.wikipedia.org/wiki/Trinity_test)，这是首次核武器试验。
+	- ### 17日
+		- [波茨坦会议](https://en.wikipedia.org/wiki/Potsdam_Conference)在[英国首相丘吉尔](https://en.wikipedia.org/wiki/Winston_Churchill)、[苏联首相斯大林](https://en.wikipedia.org/wiki/Joseph_Stalin)和美国[总统杜鲁门的](https://en.wikipedia.org/wiki/Harry_S._Truman)领导下开始。盟军领导人同意坚持日本[无条件投降](https://en.wikipedia.org/wiki/Unconditional_surrender)。
+	- ### 22日
+		- 美国和日本在[东京湾海战](https://en.wikipedia.org/wiki/Battle_of_Tokyo_Bay)中发生小规模冲突。日本人略有损失。
+	- ### 24日
+		- 杜鲁门在波茨坦会议上暗示美国拥有核武器。英国和美国人开始[轰炸吴](https://en.wikipedia.org/wiki/Bombing_of_Kure)。
+	- ### 26日
+		- [工党](https://en.wikipedia.org/wiki/British_Labour_Party)以压倒性优势赢得[英国大选](https://en.wikipedia.org/wiki/1945_United_Kingdom_general_election)。[克莱门特·艾德礼](https://en.wikipedia.org/wiki/Clement_Attlee)接替丘吉尔出任[英国首相，](https://en.wikipedia.org/wiki/United_Kingdom_Prime_Minister)并立即飞往波茨坦的谈判桌。在[波茨坦公告](https://en.wikipedia.org/wiki/Potsdam_Declaration)发出。
+	- ### 28日
+		- 日本战列舰[榛名号](https://en.wikipedia.org/wiki/Japanese_battleship_Haruna)和[伊势](https://en.wikipedia.org/wiki/Japanese_battleship_Ise)号在吴海军基地浅锚地被美国[第38特遣队](https://en.wikipedia.org/wiki/Task_Force_38)的飞机击沉。
+	- ### 30日
+		- 在[USS印第安纳波利斯](https://en.wikipedia.org/wiki/USS_Indianapolis_(CA-35))是午夜后不久，由日本潜艇用户交付原子弹材料后沉没[天宁岛](https://en.wikipedia.org/wiki/Tinian)。由于通讯不畅，这艘船的下落有一段时间不明，在接下来的四天里，许多船员淹死或被鲨鱼袭击。
+	- ### 31日
+		- 美国对日本[神户市](https://en.wikipedia.org/wiki/Kobe)和[名古屋](https://en.wikipedia.org/wiki/Nagoya)市进行空袭。
+- ## 8月
+	- ### 1日
+		- 乌克兰叛乱分子攻击警察局[Baligrod](https://en.wikipedia.org/wiki/Baligrod)，[波兰](https://en.wikipedia.org/wiki/Poland)。波兰士兵保卫车站，赶走袭击者，他们在撤退时烧毁了几座房屋。
+	- ### 2日
+		- [波茨坦会议](https://en.wikipedia.org/wiki/Potsdam_Conference)结束诸如将[德国人](https://en.wikipedia.org/wiki/Expulsion_of_Germans_after_World_War_II)从德国东部和东欧其他地方驱逐之类的问题是[波茨坦协议规定的](https://en.wikipedia.org/wiki/Potsdam_Agreement)。
+	- ### 6日
+		- B-29轰炸机[伊诺拉盖伊](https://en.wikipedia.org/wiki/Enola_Gay)在广岛[投下](https://en.wikipedia.org/wiki/Atomic_bomb)第一颗原子弹“[小男孩](https://en.wikipedia.org/wiki/Little_Boy)”。
+	- ### 8日
+		- 苏联对日本宣战；在[满洲的苏联入侵](https://en.wikipedia.org/wiki/Soviet_invasion_of_Manchuria)开始，大约一个小时后，其中包括在着陆[千岛群岛](https://en.wikipedia.org/wiki/Kuril_Islands)。对此，日本人一直在[撤离](https://en.wikipedia.org/wiki/Evacuation_of_Karafuto_and_Kuriles)。
+	- ### 9日
+		- B-29轰炸机[博克斯卡](https://en.wikipedia.org/wiki/Bockscar)在长崎投下第二颗原子弹“[胖子](https://en.wikipedia.org/wiki/Fat_Man)”。
+	- ### 10日
+		- 日本政府宣布已向盟国发送了接受《波茨坦宣言》条款的信息，条件是“不包含任何损害天皇作为主权统治者特权的要求”。
+	- ### 14日
+		- 日本军人和右翼分子[试图推翻](https://en.wikipedia.org/wiki/Ky%C5%ABj%C5%8D_incident)他们的政府并阻止不可避免的投降。美国军队作战行动的最后一天。所有单位都冻结在原地。
+	- ### 15日
+		- [裕仁天皇](https://en.wikipedia.org/wiki/Hirohito)通过无线电广播宣布[日本投降](https://en.wikipedia.org/wiki/Surrender_of_Japan)；尽管投降似乎是“无条件”的，但皇帝的身份仍然有待商榷。[战胜日本日](https://en.wikipedia.org/wiki/Victory_over_Japan_Day)庆祝活动在世界各地举行。
+	- ### 16日
+		- 裕仁天皇发布[敕令，](https://en.wikipedia.org/wiki/Gyokuon-h%C5%8Ds%C5%8D)命令日军停火。
+	- ### 17日
+		- [印度尼西亚](https://en.wikipedia.org/wiki/Indonesia)宣布脱离日本独立。[关于](https://en.wikipedia.org/wiki/General_Order_No._1)日本投降的第1号总令已获杜鲁门总统批准。
+	- ### 19日
+		- 在[河内的](https://en.wikipedia.org/wiki/Hanoi)一次自发的非共产主义会议上，[胡志明](https://en.wikipedia.org/wiki/Ho_Chi_Minh)和[越盟](https://en.wikipedia.org/wiki/Viet_Minh)在从法国手中夺取权力的运动中发挥了领导作用。由于日本在此期间仍控制着印度支那，[BảoĐại](https://en.wikipedia.org/wiki/B%E1%BA%A3o_%C4%90%E1%BA%A1i)继续前进，因为他认为越盟仍在与美国OSS合作，可以保证越南的独立。后来，胡志明的游击队占领了河内并宣布成立临时政府。中国国民党和中国共产党人之间的敌意公开。
+	- ### 20日
+		- 纳粹合作者[维德昆·吉斯林](https://en.wikipedia.org/wiki/Vidkun_Quisling)在挪威奥斯陆接受审判。
+	- ### 22日
+		- 日军在满洲向红军投降。
+	- ### 27日
+		- 在缅甸的日军在仰光仪式上投降。
+	- ### 30日
+		- [塞西尔·哈考特](https://en.wikipedia.org/wiki/Cecil_Harcourt)少将率领的皇家海军解放[香港](https://en.wikipedia.org/wiki/Hong_Kong)。
+	- ### 31日
+		- 麦克阿瑟将军接管日本政府在东京的指挥权。
+- ## 9月
+	- ### 2日
+		- [日本投降书](https://en.wikipedia.org/wiki/Japanese_Instrument_of_Surrender)签署在东京湾的密苏里[号战舰](https://en.wikipedia.org/wiki/USS_Missouri_(BB-63))甲板上。[日本帝国陆军](https://en.wikipedia.org/wiki/Imperial_Japanese_Army)司令[山下智之](https://en.wikipedia.org/wiki/Tomoyuki_Yamashita)将军在菲律宾北部[伊富高的江岸](https://en.wikipedia.org/wiki/Kiangan,_Ifugao)向菲律宾和美国军队投降。：胡志明市发布了他的《独立宣言》，大量借鉴了美国战略服务办公室提供的副本中的《美国独立宣言》。何志平自任越南民主共和国总统并寻求美国的承认，但被杜鲁门总统一再无视。
+	- ### 4日
+		- 最后一批德军在斯瓦尔巴群岛投降。
+	- ### 5日
+		- 新加坡被英印军队正式解放。
+	- ### 6日
+		- [美国对日本的初始投降后政策](https://en.wikipedia.org/wiki/US_Initial_Post-Surrender_Policy_for_Japan)管理着美国在日本的占领政策，得到了杜鲁门的批准。
+	- ### 9日
+		- 驻华日军正式投降。
+	- ### 12日
+		- [安倍信行](https://en.wikipedia.org/wiki/Nobuyuki_Abe)总督下台后，日本对朝鲜的统治结束。
+	- ### 13日
+		- [道格拉斯·格雷西](https://en.wikipedia.org/wiki/Douglas_Gracey)少将的印度第20师指挥的英军，总共约26,000人，抵达[西贡](https://en.wikipedia.org/wiki/Saigon)，解除在[16度线](https://en.wikipedia.org/wiki/16th_parallel_north)以南越南的日本占领军的武装并接受其投降。180,000名中国国民党士兵，主要是贫苦农民，抵达[河内](https://en.wikipedia.org/wiki/Hanoi)，在战线以北解除武装并接受投降。在他们从中国出发的整个过程中掠夺越南村庄之后，他们继续掠夺河内。
+	- ### 16日
+		- 驻港日军正式签署投降书。
+	- ### 22日
+		- 英国从西贡附近的日本拘留营中重新武装了1,400名法国士兵。在西贡，9月24日晚上，由越盟武装分子和同情者组成的暴徒袭击了法国殖民政府，并杀死了大约150名欧洲平民。估计有20,000名法国平民居住在西贡。
+	- ### 29日
+		- 美国通用[罗伯特Milchrist炮](https://en.wikipedia.org/wiki/Robert_Milchrist_Cannon)接受来自日本的海军和陆军士兵的武器宫古和石垣在岛屿投降[咲洲Gunto](https://en.wikipedia.org/wiki/Sakishima_Gunto)。
+- ## 10月
+	- ### 1日
+		- 在[越南南部](https://en.wikipedia.org/wiki/Southern_Vietnam)，纯粹的英法双边协议承认法国对南部地区的管理。在[越南北部](https://en.wikipedia.org/wiki/Northern_Vietnam)，中国军队“横冲直撞”。[Hồ](https://en.wikipedia.org/wiki/H%E1%BB%93_Ch%C3%AD_Minh)的ViệtMinh无可救药地无力应对。
+	- ### 15日
+		- 前总理[皮埃尔·拉瓦尔](https://en.wikipedia.org/wiki/Pierre_Laval)被法国临时政府处决。
+	- ### 25日
+		- 一般[安藤利吉](https://en.wikipedia.org/wiki/Rikichi_And%C5%8D)，[总督台湾](https://en.wikipedia.org/wiki/Governor-General_of_Taiwan)和统帅岛上所有日军，圈在台湾一般[陈毅](https://en.wikipedia.org/wiki/Chen_Yi_(Kuomintang))的的[国民党](https://en.wikipedia.org/wiki/Kuomintang)（国民党）军队。陈毅宣布这一天为“[台湾光复日](https://en.wikipedia.org/wiki/Retrocession_Day)”，并将该岛组织为中华民国[台湾省](https://en.wikipedia.org/wiki/Taiwan_Province)。
+- ## 11月
+	- ### 20日
+		- 20[纽伦堡战争罪法庭成立](https://en.wikipedia.org/wiki/Nuremberg_trials)。
+	- ### 21日
+		- 21美国最高法院大法官[罗伯特·杰克逊(RobertH.Jackson)](https://en.wikipedia.org/wiki/Robert_H._Jackson)以长达数小时的演讲为起诉开庭，给法院和公众都留下了深刻印象。
+	- ### 26日
+		- 26介绍了霍斯巴赫备忘录（希特勒在其中解释了他的战争计划的会议）。
+	- ### 29日
+		- 29放映电影《纳粹集中营》。
+		- 2911月29日取消了禁止GI与奥地利女性结婚的禁令。后来也取消了对德国女性的禁令。在军队服役的黑人士兵不得与白人女性结婚（如果她们仍然在军队中），因此直到1948年禁止异族通婚的禁令被取消，她们才受到限制。
+	- ### 30日
+		- 30证人欧文·冯·拉豪森作证说，凯特尔和冯·里宾特洛甫下令谋杀波兰人、犹太人和俄罗斯战俘。
+- ## 12月
+	- ### 11日
+		- 11放映电影《纳粹计划》，展示纳粹对战争的长期规划和准备。
+	- ### 28日
+		- 美国海岸警卫队移交美国财政部。
+	- ### 31日
+		- [英国家庭卫队](https://en.wikipedia.org/wiki/British_Home_Guard)解散。

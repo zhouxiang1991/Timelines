@@ -1,0 +1,1083 @@
+# 1951年
+- [LEOI](https://en.wikipedia.org/wiki/LEO_(computer))'LyonsElectronicOffice'是[EDSAC](https://en.wikipedia.org/wiki/EDSAC)计算平台的商业开发，由英国公司[J.LyonsandCo.支持。](https://en.wikipedia.org/wiki/J._Lyons_and_Co.)。
+# 1955年
+- [麻省理工学院](https://en.wikipedia.org/wiki/Massachusetts_Institute_of_Technology)为[UNIVAC1103](https://en.wikipedia.org/wiki/UNIVAC_1103)制作的TapeDirector操作系统。
+- [通用汽车操作系统](https://en.wikipedia.org/w/index.php?titleGeneral_Motors_Operating_System&actionedit&redlink1)为[IBM701](https://en.wikipedia.org/wiki/IBM_701)。
+# 1956年
+- [GM-NAAI/O](https://en.wikipedia.org/wiki/GM-NAA_I/O)的[IBM704](https://en.wikipedia.org/wiki/IBM_704)，基于通用操作系统。
+# 1957年
+- [AtlasSupervisor](https://en.wikipedia.org/wiki/Atlas_Supervisor)（[曼彻斯特大学](https://en.wikipedia.org/wiki/University_of_Manchester)）（Atlas计算机项目启动）。
+- [BESYS](https://en.wikipedia.org/wiki/BESYS)（[贝尔实验室](https://en.wikipedia.org/wiki/Bell_Labs)），适用于[IBM704](https://en.wikipedia.org/wiki/IBM_704)、后来的[IBM7090](https://en.wikipedia.org/wiki/IBM_7090)和[IBM7094](https://en.wikipedia.org/wiki/IBM_7094)。
+# 1958年
+- [密歇根州行政系统的大学](https://en.wikipedia.org/wiki/University_of_Michigan_Executive_System)（超微电极），为IBM704，[709](https://en.wikipedia.org/wiki/IBM_709)，和[7090](https://en.wikipedia.org/wiki/IBM_7090)。
+# 1959年
+- [SHARE操作系统](https://en.wikipedia.org/wiki/SHARE_Operating_System)(SOS)，基于GM-NAAI/O。
+# 1960年
+- [IBSYS](https://en.wikipedia.org/wiki/IBM_7090/94_IBSYS)（[IBM](https://en.wikipedia.org/wiki/IBM)为其[7090](https://en.wikipedia.org/wiki/IBM_7090)和[7094](https://en.wikipedia.org/wiki/IBM_7094)）。
+# 1961年
+- [CTSS](https://en.wikipedia.org/wiki/Compatible_Time-Sharing_System)演示（[麻省理工学院的](https://en.wikipedia.org/wiki/Massachusetts_Institute_of_Technology)[IBM7094](https://en.wikipedia.org/wiki/IBM_7094)兼容分时系统）。
+- [MCP](https://en.wikipedia.org/wiki/Burroughs_MCP)（[巴勒斯](https://en.wikipedia.org/wiki/Burroughs_Corporation)主控制程序）。
+# 1962年
+- [AtlasSupervisor](https://en.wikipedia.org/wiki/Atlas_Supervisor)（[曼彻斯特大学](https://en.wikipedia.org/wiki/University_of_Manchester)）（Atlas计算机委托）。
+- [BBN分时系统](https://en.wikipedia.org/wiki/BBN_Time-Sharing_System)。
+- [GCOS](https://en.wikipedia.org/wiki/General_Comprehensive_Operating_System)（[GE的](https://en.wikipedia.org/wiki/General_Electric)通用综合运营系统，原GECOS，通用电气综合运营主管）。
+# 1963年
+- [AN/FSQ-32](https://en.wikipedia.org/wiki/AN/FSQ-32)，另一个早期的分时系统开始。
+- [CTSS开始](https://en.wikipedia.org/wiki/Compatible_Time-Sharing_System)运行（[麻省理工学院的](https://en.wikipedia.org/wiki/Massachusetts_Institute_of_Technology)[IBM7094](https://en.wikipedia.org/wiki/IBM_7094)兼容分时系统）。
+- [JOSS](https://en.wikipedia.org/wiki/JOSS)，一种不区分操作系统和语言的交互式分时系统。
+- [TitanSupervisor](https://en.wikipedia.org/wiki/Titan_(1963_computer))，早期分时系统开始。
+# 1964年
+- [KDF9TimesharingDirector](https://en.wikipedia.org/wiki/English_Electric_KDF9)([EnglishElectric](https://en.wikipedia.org/wiki/English_Electric))–一个早期的、完全硬件安全的、完全抢占式进程切换、用于KDF9的多道程序操作系统（最初于1960年发布）。
+- [伯克利分时系统](https://en.wikipedia.org/wiki/Berkeley_Timesharing_System)（用于[科学数据系统](https://en.wikipedia.org/wiki/Scientific_Data_Systems)的[SDS940](https://en.wikipedia.org/wiki/SDS_940)）。
+- [达特茅斯分时系统](https://en.wikipedia.org/wiki/Dartmouth_Time_Sharing_System)（[达特茅斯学院](https://en.wikipedia.org/wiki/Dartmouth_College)的DTSSforGE计算机）。
+- [OS/360](https://en.wikipedia.org/wiki/OS/360_and_successors)（IBM用于其S/360系列的主要操作系统）（已发布）。
+- [范围](https://en.wikipedia.org/wiki/CDC_SCOPE)（CDC3000系列）。
+- PDP-6Monitor([DEC](https://en.wikipedia.org/wiki/Digital_Equipment_Corporation))后代于1970年更名为[TOPS-10](https://en.wikipedia.org/wiki/TOPS-10)。
+- [执行8](https://en.wikipedia.org/wiki/EXEC_8)([UNIVAC](https://en.wikipedia.org/wiki/UNIVAC))。
+# 1965年
+- [多道程序系统](https://en.wikipedia.org/wiki/THE_multiprogramming_system)（[埃因霍温应用科技大学](https://en.wikipedia.org/wiki/Eindhoven_University_of_Technology)）开发。
+- [Multics](https://en.wikipedia.org/wiki/Multics)（麻省理工学院、GE、[贝尔实验室](https://en.wikipedia.org/wiki/Bell_Labs)用于[GE-645](https://en.wikipedia.org/wiki/GE-600_series)）（已发布）。
+- [BOS/360](https://en.wikipedia.org/wiki/BOS/360)（IBM的基本操作系统）。
+- [TOS/360](https://en.wikipedia.org/wiki/IBM_TOS/360)（IBM的磁带操作系统）。
+- [TSOS](https://en.wikipedia.org/wiki/Time_Sharing_Operating_System)（后来的VMOS）（[RCA](https://en.wikipedia.org/wiki/RCA)）。
+- [选择操作系统](https://en.wikipedia.org/wiki/Pick_operating_system)。
+# 1966年
+- [OS/360](https://en.wikipedia.org/wiki/OS/360_and_successors)（IBM为其S/360系列提供的主要操作系统）PCP和MFT（已发货）。
+- [DOS/360](https://en.wikipedia.org/wiki/DOS/360)（IBM的磁盘操作系统）。
+- [MS/8](https://en.wikipedia.org/wiki/MS/8)（[RichardF.Lary](https://en.wikipedia.org/wiki/Richard_F._Lary)的DECPDP-8系统）。
+- 用于[ICT](https://en.wikipedia.org/wiki/International_Computers_and_Tabulators) 1900系列的GEORGE1&2。
+- [SODA](https://en.wikipedia.org/wiki/SODA_(operating_system))为[Elwro](https://en.wikipedia.org/wiki/Elwro)的[奥得河1204](https://en.wikipedia.org/wiki/Odra_(computer))。
+# 1967年
+- [CP-40](https://en.wikipedia.org/wiki/IBM_CP-40)是CP-67在改进的IBMSystem/360Model40上的前身。
+- [CP-67](https://en.wikipedia.org/wiki/CP-67)（IBM，也称为[CP/CMS](https://en.wikipedia.org/wiki/CP/CMS)）。
+- [密歇根终端系统](https://en.wikipedia.org/wiki/Michigan_Terminal_System)(MTS)（IBMS/360-67和后续机型的分时系统）。
+- [ITS](https://en.wikipedia.org/wiki/Incompatible_Timesharing_System)（麻省理工学院用于DECPDP-6和PDP-10的不兼容分时系统）。
+- [ORVYL](https://en.wikipedia.org/wiki/ORVYL_and_WYLBUR)（斯坦福大学的IBMS/360分时系统）。
+- [TSS/360](https://en.wikipedia.org/wiki/TSS_(operating_system))（IBM的S/360-67分时系统，从未正式发布，于1969年和1971年再次取消）。
+- 操作系统/360[MVT](https://en.wikipedia.org/wiki/OS/MVT)。
+- [WAITS](https://en.wikipedia.org/wiki/WAITS)（[SAIL](https://en.wikipedia.org/wiki/Stanford_Artificial_Intelligence_Laboratory)，斯坦福人工智能实验室，DECPDP-6和PDP-10的分时系统，后来的TOPS-10）。
+# 1968年
+- [航空公司管制计划(ACP)](https://en.wikipedia.org/wiki/IBM_Airline_Control_Program)(IBM)。
+- [THEmultiprogrammingsystem](https://en.wikipedia.org/wiki/THE_multiprogramming_system)([EindhovenUniversityofTechnology](https://en.wikipedia.org/wiki/Eindhoven_University_of_Technology))出版。
+- [TSS/8](https://en.wikipedia.org/wiki/TSS/8)（PDP-8的DEC）。
+# 1969年
+- [TENEX](https://en.wikipedia.org/wiki/TENEX_(operating_system))（用于DEC系统的[Bolt、Beranek和Newman](https://en.wikipedia.org/wiki/BBN_Technologies)，后来的[TOPS-20](https://en.wikipedia.org/wiki/TOPS-20)）。
+- [Unics（后来的Unix）](https://en.wikipedia.org/wiki/Unix)（[AT&T](https://en.wikipedia.org/wiki/AT%26T_Corporation)，最初在DEC计算机上）。
+- [RC4000多道程序系统](https://en.wikipedia.org/wiki/RC_4000_Multiprogramming_System)([RC](https://en.wikipedia.org/wiki/Regnecentralen))。
+- [Multics](https://en.wikipedia.org/wiki/Multics)（MIT、GE、贝尔实验室的[GE-645](https://en.wikipedia.org/wiki/GE-600_series)和后来的[霍尼韦尔6180](https://en.wikipedia.org/wiki/Honeywell_6000_series)）（10月对付费客户开放）。
+- [GEORGE3](https://en.wikipedia.org/wiki/GEORGE_(operating_system)#GEORGE_3_&_4)适用于[ICL](https://en.wikipedia.org/wiki/International_Computers_Limited) [1900系列](https://en.wikipedia.org/wiki/ICT_1900_series)。
+# 1970年
+- [DOS-11](https://en.wikipedia.org/wiki/DEC_BATCH-11/DOS-11)(PDP-11)。
+# 1971年
+- [RSTS-11](https://en.wikipedia.org/wiki/RSTS/E)2A-19（首次发布版本；PDP-11）。
+- [操作系统/8](https://en.wikipedia.org/wiki/OS/8)。
+# 1972年
+- [数据通用RDOS](https://en.wikipedia.org/wiki/Data_General_RDOS)。
+- [江户](https://en.wikipedia.org/wiki/Edos)。
+- [操作系统/虚拟存储1](https://en.wikipedia.org/wiki/OS/VS1)(OS/VS1)。
+- [操作系统/虚拟存储2R1](https://en.wikipedia.org/wiki/OS/VS2_(SVS))(OS/VS2SVS)。
+- [虚拟机设施/370](https://en.wikipedia.org/wiki/VM_(operating_system))(VM/370)，有时也称为VM/CMS。
+- 虚拟机/基本系统扩展程序产品（BSEPP或VM/SE）。
+- 虚拟机/系统扩展程序产品（SEPP或VM/BSE）。
+- [音乐/SP](https://en.wikipedia.org/wiki/MUSIC/SP)。
+- [PRIMOS](https://en.wikipedia.org/wiki/PRIMOS)（用[FORTRANIV](https://en.wikipedia.org/wiki/FORTRAN_IV)编写，没有[指针](https://en.wikipedia.org/wiki/Pointer_(computer_programming))，而后来的版本，在18版左右，用[PL/I](https://en.wikipedia.org/wiki/PL/I)版本编写，称为[PL/P](https://en.wikipedia.org/wiki/PL/P)）。
+# 1973年
+- Эльбрус-1([Elbrus-1](https://en.wikipedia.org/wiki/Elbrus_(computer)))–苏联计算机–使用高级语言uЭль-76([AL-76/ALGOL68](https://en.wikipedia.org/wiki/ALGOL_68))创建。
+- [VME](https://en.wikipedia.org/wiki/ICL_VME)–实现语言[S3](https://en.wikipedia.org/wiki/S3_(programming_language))([ALGOL68](https://en.wikipedia.org/wiki/ALGOL_68))。
+- [RSX-11](https://en.wikipedia.org/wiki/RSX-11)D。
+- [RT-11](https://en.wikipedia.org/wiki/RT-11)。
+- [高操作系统](https://en.wikipedia.org/wiki/Xerox_Alto)。
+# 1974年
+- [CP/M](https://en.wikipedia.org/wiki/CP/M)。
+- [DOS-11](https://en.wikipedia.org/wiki/DEC_BATCH-11/DOS-11)V09-20C（最后一个稳定版本，1974年6月）。
+- [辛特兰三世](https://en.wikipedia.org/wiki/Sintran_III)。
+- [MONECS](https://en.wikipedia.org/wiki/MONECS)。
+- [多重编程执行器](https://en.wikipedia.org/wiki/HP_Multi-Programming_Executive)(MPE)–Hewlett-Packard。
+- Hydra–基于功能的多处理操作系统内核。
+- [操作系统/虚拟存储2R2](https://en.wikipedia.org/wiki/MVS)(MVS)。
+# 1975年
+- [BS2000](https://en.wikipedia.org/wiki/BS2000)V2.0（首次发布版本）。
+- [版本6Unix](https://en.wikipedia.org/wiki/Version_6_Unix)。
+# 1976年
+- [剑桥CAP计算机](https://en.wikipedia.org/wiki/CAP_computer)——所有操作系统程序都用[ALGOL68C](https://en.wikipedia.org/wiki/ALGOL_68C)编写，一些密切相关的受保护程序在[BCPL中](https://en.wikipedia.org/wiki/BCPL)。
+- [克雷操作系统](https://en.wikipedia.org/wiki/Cray_Operating_System)。
+- [弹性](https://en.wikipedia.org/wiki/FLEX_(operating_system))。
+- [TOPS-20](https://en.wikipedia.org/wiki/TOPS-20)。
+- [串联不间断操作系统v1](https://en.wikipedia.org/wiki/Tandem_Computers)。
+# 1977年
+- [1BSD](https://en.wikipedia.org/wiki/Berkeley_Software_Distribution)。
+- [内核](https://en.wikipedia.org/wiki/KERNAL)。
+- [绿洲操作系统](https://en.wikipedia.org/wiki/OASIS_operating_system)。
+- [TRSDOS](https://en.wikipedia.org/wiki/TRSDOS)。
+- [虚拟内存系统(VMS)](https://en.wikipedia.org/wiki/OpenVMS)V1.0（初始商业发布，10月25日）。
+# 1978年
+- [2BSD](https://en.wikipedia.org/wiki/Berkeley_Software_Distribution)。
+- [苹果操作系统](https://en.wikipedia.org/wiki/Apple_DOS)。
+- [操作系统](https://en.wikipedia.org/wiki/HDOS)。
+- [PTDOS](https://en.wikipedia.org/wiki/PTDOS)。
+- [TRIPOS](https://en.wikipedia.org/wiki/TRIPOS)。
+- [UCSDp-System](https://en.wikipedia.org/wiki/UCSD_Pascal)（首次发布版本）。
+- [Lisp机器](https://en.wikipedia.org/wiki/Lisp_machine)(CADR)。
+- KVM/370–IBMVM/370的安全改造。
+- KSOS–FordAerospace的安全操作系统设计。
+- MVS/系统扩展(MVS/SE)。
+# 1979年
+- [3BSD](https://en.wikipedia.org/wiki/Berkeley_Software_Distribution)。
+- [雅达利DOS](https://en.wikipedia.org/wiki/Atari_DOS)。
+- [邮政](https://en.wikipedia.org/wiki/PERQ)。
+- [非接触式训练系统](https://en.wikipedia.org/wiki/NLTSS)。
+- [UNIX/32V](https://en.wikipedia.org/wiki/UNIX/32V)。
+- [版本7Unix](https://en.wikipedia.org/wiki/Version_7_Unix)。
+- UCLASecureUNIX–基于安全内核的早期安全UNIX操作系统。
+- MVS/系统扩展R2(MVS/SE2)。
+- [议员/米](https://en.wikipedia.org/wiki/MP/M)。
+# 1980年
+- [86-DOS](https://en.wikipedia.org/wiki/86-DOS)。
+- [CTOS](https://en.wikipedia.org/wiki/Convergent_Technologies_Operating_System)。
+- [新Dos/80](https://en.wikipedia.org/wiki/NewDos/80)。
+- [操作系统-9](https://en.wikipedia.org/wiki/OS-9)。
+- [求救](https://en.wikipedia.org/wiki/Apple_SOS)。
+- MVS/系统产品(MVS/SP)V1。
+- [虚拟机/系统产品](https://en.wikipedia.org/wiki/VM_(operating_system))（VM/SP）。
+- [赛尼克斯](https://en.wikipedia.org/wiki/Xenix)。
+- [AOS/VS](https://en.wikipedia.org/wiki/AOS/VS)（一般数据）。
+# 1981年
+- [橡子MOS](https://en.wikipedia.org/wiki/Acorn_MOS)。
+- [Xinu](https://en.wikipedia.org/wiki/Xinu)firstrelease。
+- [业务操作系统](https://en.wikipedia.org/wiki/Business_Operating_System_(software))。
+- [Aegis](https://en.wikipedia.org/wiki/Domain/OS)SR1（第一个Apollo/DOMAIN系统于3月27日发货）。
+- [电脑二](https://en.wikipedia.org/wiki/IBM_PC_DOS)。
+- [Pilot](https://en.wikipedia.org/wiki/Pilot_(operating_system))（[施乐之星](https://en.wikipedia.org/wiki/Xerox_Star)操作系统）。
+- [MS-DOS](https://en.wikipedia.org/wiki/MS-DOS)。
+- [悉尼科技大学](https://en.wikipedia.org/wiki/Amdahl_UTS)。
+- [iMAX](https://en.wikipedia.org/wiki/Intel_iAPX_432)–用于英特尔iAPX432功能机器的操作系统。
+- [CP/M-86](https://en.wikipedia.org/wiki/CP/M-86)。
+# 1982年
+- [DOS准将](https://en.wikipedia.org/wiki/Commodore_DOS)。
+- [LDOS](https://en.wikipedia.org/wiki/Logical_Disk_Operating_System)（LogicalSystems,Inc.–用于RadioShackTRS-80型号I、II和III）。
+- [QNX](https://en.wikipedia.org/wiki/QNX)。
+- SunUNIX（后来的[SunOS](https://en.wikipedia.org/wiki/SunOS)）0.7。
+- [极品](https://en.wikipedia.org/wiki/Ultrix)。
+- [层云你](https://en.wikipedia.org/wiki/Stratus_VOS)。
+- [Unix系统III](https://en.wikipedia.org/wiki/Unix_System_III)。
+- [求救](https://en.wikipedia.org/wiki/PSOS_(real-time_operating_system))。
+# 1983年
+- [丽莎办公系统7/7](https://en.wikipedia.org/wiki/Apple_Lisa)。
+- [相干](https://en.wikipedia.org/wiki/Coherent_(operating_system))。
+- [GNU](https://en.wikipedia.org/wiki/GNU)（项目启动）。
+- [NovellNetWare](https://en.wikipedia.org/wiki/NetWare)([S-Net](https://en.wikipedia.org/wiki/Novell_S-Net))。
+- [专业版DOS](https://en.wikipedia.org/wiki/ProDOS)。
+- [操作系统](https://en.wikipedia.org/wiki/SunOS)1.0。
+- STOP–用于SCOMP硬件的[TCSEC](https://en.wikipedia.org/wiki/Trusted_Computer_System_Evaluation_Criteria)A1级安全操作系统。
+- LOCUS–UNIX兼容、高可靠性、分布式操作系统。
+- [迪尼克斯](https://en.wikipedia.org/wiki/DNIX)。
+- MVS/系统产品V2（MVS/扩展架构，MVS/XA）。
+# 1984年
+- [两个都](https://en.wikipedia.org/wiki/AMSDOS)。
+- [Mac操作系统](https://en.wikipedia.org/wiki/Classic_Mac_OS)（系统1.0）。
+- [MSX-DOS](https://en.wikipedia.org/wiki/MSX-DOS)。
+- [个人电脑/IX](https://en.wikipedia.org/wiki/PC/IX)。
+- [辛克莱QDOS](https://en.wikipedia.org/wiki/Sinclair_QDOS)。
+- [QNX](https://en.wikipedia.org/wiki/QNX)。
+- [独特的](https://en.wikipedia.org/wiki/UNICOS)。
+- [威尼斯](https://en.wikipedia.org/wiki/Venix)2.0。
+- [虚拟机/扩展架构迁移协助](https://en.wikipedia.org/wiki/VM_(operating_system))(VM/XAMA)。
+# 1985年
+- [视窗1.0](https://en.wikipedia.org/wiki/Windows_1.0)。
+- [AmigaOS](https://en.wikipedia.org/wiki/AmigaOS)。
+- [雅达利服务条款](https://en.wikipedia.org/wiki/Atari_TOS)。
+- [总监/用户体验](https://en.wikipedia.org/wiki/DG/UX)。
+- [更多](https://en.wikipedia.org/wiki/DOS_Plus)。
+- [MIPS风险](https://en.wikipedia.org/wiki/MIPS_RISC/os)。
+- [Oberon](https://en.wikipedia.org/wiki/Oberon_(operating_system))–用Oberon编写。
+- [操作系统](https://en.wikipedia.org/wiki/SunOS)2.0。
+- [版本8Unix](https://en.wikipedia.org/wiki/Version_8_Unix)。
+- [视窗1.0](https://en.wikipedia.org/wiki/Windows_1.0)1。
+- [Xenix](https://en.wikipedia.org/wiki/Xenix)2.0。
+- [虚拟机/扩展架构系统工具](https://en.wikipedia.org/wiki/VM_(operating_system))(VM/XASF)。
+- [图形环境管理器](https://en.wikipedia.org/wiki/Graphics_Environment_Manager)。
+# 1986年
+- [AIX](https://en.wikipedia.org/wiki/IBM_AIX)1.0。
+- [操作系统](https://en.wikipedia.org/wiki/Apple_IIGS)。
+- [生成](https://en.wikipedia.org/wiki/Genera_(operating_system))7.0。
+- [用户体验](https://en.wikipedia.org/wiki/HP-UX)。
+- [太阳操作系统](https://en.wikipedia.org/wiki/SunOS)3.0。
+- [地球观测站](https://en.wikipedia.org/wiki/GEOS_(8-bit_operating_system))。
+- [版本9Unix](https://en.wikipedia.org/wiki/Version_9_Unix)。
+- GEMSOS–用于BLACKERVPN和GTNP的[TCSEC](https://en.wikipedia.org/wiki/Trusted_Computer_System_Evaluation_Criteria)A1级安全内核。
+- Cronus分布式操作系统。
+# 1987年
+- Topaz–用Modula-2+编写并收集垃圾的用于DECFirefly工作站的半分布式操作系统。
+- [Arthur](https://en.wikipedia.org/wiki/History_of_RISC_OS)（在1989年以[RISCOS](https://en.wikipedia.org/wiki/RISC_OS)的名义推出了大量改进版本）。
+- [IRIX](https://en.wikipedia.org/wiki/IRIX)（3.0是第一个SGI版本）。
+- [迷你](https://en.wikipedia.org/wiki/MINIX)1.0。
+- [BS2000](https://en.wikipedia.org/wiki/BS2000)V9.0。
+- [操作系统/2](https://en.wikipedia.org/wiki/OS/2)(1.0)。
+- [PC-MOS/386](https://en.wikipedia.org/wiki/PC-MOS/386)。
+- [视窗2.0](https://en.wikipedia.org/wiki/Windows_2.0)。
+# 1988年
+- [A/UX](https://en.wikipedia.org/wiki/A/UX)（苹果电脑）。
+- [AOS/VSII](https://en.wikipedia.org/wiki/AOS/VS_II)（一般数据）。
+- [风险指数](https://en.wikipedia.org/wiki/RISC_iX)。
+- [KeyKOS](https://en.wikipedia.org/wiki/KeyKOS)–用于IBM大型机的基于功能的微内核，具有应用程序数据的自动持久性。
+- [山猫操作系统](https://en.wikipedia.org/wiki/LynxOS)。
+- [CP/M](https://en.wikipedia.org/wiki/CP/M)更名为[DR-DOS](https://en.wikipedia.org/wiki/DR-DOS)。
+- [Mac操作系统](https://en.wikipedia.org/wiki/Classic_Mac_OS)（[系统6](https://en.wikipedia.org/wiki/System_6)）。
+- MVS/系统产品V3（MVS/企业系统架构，MVS/ESA）。
+- [操作系统/2](https://en.wikipedia.org/wiki/OS/2)(1.1)。
+- [操作系统/400](https://en.wikipedia.org/wiki/IBM_i)。
+- [斯巴达DOSX](https://en.wikipedia.org/wiki/SpartaDOS_X)。
+- [操作系统](https://en.wikipedia.org/wiki/SunOS)4.0。
+- [TOPS-10](https://en.wikipedia.org/wiki/TOPS-10)7.04（最后一个稳定版本，1988年7月）。
+- [太阳系](https://en.wikipedia.org/wiki/HeliOS)1.0。
+- VAXVMM\-[TCSEC](https://en.wikipedia.org/wiki/Trusted_Computer_System_Evaluation_Criteria)A1级，[VMM](https://en.wikipedia.org/wiki/Virtual_Machine_Manager)为[VAX](https://en.wikipedia.org/wiki/VAX)计算机（撤销之前使用有限的）。
+- [Flex机器](https://en.wikipedia.org/wiki/Flex_machine)——带有操作系统和其他用ALGOL68RS编写的软件的标记、功能机器。
+- [虚拟机/扩展架构系统产品](https://en.wikipedia.org/wiki/VM_(operating_system))（VM/XASP）。
+# 1989年
+- [EPOC](https://en.wikipedia.org/wiki/EPOC_(operating_system))。
+- [NeXTSTEP](https://en.wikipedia.org/wiki/NeXTSTEP)(1.0)。
+- [操作系统/2](https://en.wikipedia.org/wiki/OS/2)(1.2)。
+- [RISCOS](https://en.wikipedia.org/wiki/RISC_OS)（第一个版本被称为Arthur2，但更名为RISCOS2，并于1989年4月首次作为RISCOS2.00出售）。
+- [SCOUNIX](https://en.wikipedia.org/wiki/SCO_OpenServer)（第3版）。
+- [TSX-32](https://en.wikipedia.org/wiki/TSX-32)。
+- [版本10Unix](https://en.wikipedia.org/wiki/Version_10_Unix)。
+- [Xenix](https://en.wikipedia.org/wiki/Xenix)2.3.4（最后一个稳定版本）。
+- 陆军安全操作系统(ASOS)–用于Ada应用程序的[TCSEC](https://en.wikipedia.org/wiki/Trusted_Computer_System_Evaluation_Criteria)A1级安全实时操作系统。
+# 1990年
+- [AmigaOS](https://en.wikipedia.org/wiki/AmigaOS)2.0。
+- [BeOS](https://en.wikipedia.org/wiki/BeOS)(v1)。
+- [DOS/V](https://en.wikipedia.org/wiki/DOS/V)。
+- [生成](https://en.wikipedia.org/wiki/Genera_(operating_system))8.0。
+- [操作系统/2](https://en.wikipedia.org/wiki/OS/2)1.3。
+- [OSF/1](https://en.wikipedia.org/wiki/Tru64_UNIX)。
+- [AIX](https://en.wikipedia.org/wiki/IBM_AIX)3.0。
+- MVS/ESASP版本4。
+- [NovellNetWare](https://en.wikipedia.org/wiki/NetWare)3。
+- [视窗3.0](https://en.wikipedia.org/wiki/Windows_3.0)。
+- LOCK–[TCSEC](https://en.wikipedia.org/wiki/Trusted_Computer_System_Evaluation_Criteria)A1级安全系统，内核和硬件支持[类型强制](https://en.wikipedia.org/wiki/Type_enforcement)。
+- [虚拟机/企业系统架构](https://en.wikipedia.org/wiki/VM_(operating_system))(VM/XAESA)。
+- [电脑/地球站](https://en.wikipedia.org/wiki/GEOS_(16-bit_operating_system))。
+# 1991年
+- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)0.01-0.1。
+- [Mac操作系统](https://en.wikipedia.org/wiki/Classic_Mac_OS)（[系统7](https://en.wikipedia.org/wiki/System_7)）。
+- [迷你](https://en.wikipedia.org/wiki/MINIX)1.5。
+- [笔尖操作系统](https://en.wikipedia.org/wiki/PenPoint_OS)。
+- [风险](https://en.wikipedia.org/wiki/RISC_OS)3。
+- 可信Xenix–重写和安全增强的Xenix在[TCSEC](https://en.wikipedia.org/wiki/Trusted_Computer_System_Evaluation_Criteria)B2级评估。
+- [Amoeba](https://en.wikipedia.org/wiki/Amoeba_(operating_system))–基于微内核、符合POSIX的分布式操作系统。
+# 1992年
+- [386BSD](https://en.wikipedia.org/wiki/386BSD)0.1。
+- [BSD/386](https://en.wikipedia.org/wiki/BSD/OS)，由[BSDi开发](https://en.wikipedia.org/wiki/Berkeley_Software_Design)，后来被称为BSD/OS。
+- [AmigaOS](https://en.wikipedia.org/wiki/AmigaOS)3.0。
+- [AmigaUnix](https://en.wikipedia.org/wiki/Amiga_Unix)2.01（最新稳定版本）。
+- [RSTS/E](https://en.wikipedia.org/wiki/RSTS/E)10.1（最后一个稳定版本，1992年9月）。
+- [SLS](https://en.wikipedia.org/wiki/Softlanding_Linux_System)。
+- [Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))2.0（SunOS4.x的继任者；基于SVR4而不是BSD）。
+- [OpenVMS](https://en.wikipedia.org/wiki/OpenVMS)V1.0（第一个OpenVMSAXP(Alpha)特定版本，1992年11月）。
+- [OS/2](https://en.wikipedia.org/wiki/OS/2)2.0（第一个基于i38632位的版本）。
+- [计划9](https://en.wikipedia.org/wiki/Plan_9_from_Bell_Labs)第一版（首次公开发布给大学）。
+- [视窗3.1](https://en.wikipedia.org/wiki/Windows_3.1x)。
+- [LGX](https://en.wikipedia.org/wiki/Yggdrasil_Linux/GNU/X)。
+# 1993年
+- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)。
+- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)。
+- [牛顿操作系统](https://en.wikipedia.org/wiki/Newton_OS)。
+- [WindowsNT3.1](https://en.wikipedia.org/wiki/Windows_NT_3.1)（第一个WindowsNT内核公开发行版）。
+- [开放Genera](https://en.wikipedia.org/wiki/Genera_(operating_system))1.0。
+- [IBM4690操作系统](https://en.wikipedia.org/wiki/4690_Operating_System)。
+- [NovellNetWare](https://en.wikipedia.org/wiki/NetWare)4。
+- [操作系统/2](https://en.wikipedia.org/wiki/OS/2)2.1。
+- [Slackware](https://en.wikipedia.org/wiki/Slackware)1.0。
+- [春天](https://en.wikipedia.org/wiki/Spring_(operating_system))。
+# 1994年
+- [AIX](https://en.wikipedia.org/wiki/IBM_AIX)4.0、4.1。
+- IBMMVS/ESASP版本5。
+- [操作系统/2](https://en.wikipedia.org/wiki/OS/2)3.0。
+- [RISC操作系统](https://en.wikipedia.org/wiki/RISC_OS)3.5。
+- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)1.0（第一个多平台版本，1994年10月）。
+- [SPIN](https://en.wikipedia.org/wiki/SPIN_(operating_system))–用Modula-3编写的可扩展操作系统。
+- [红帽](https://en.wikipedia.org/wiki/Red_Hat_Linux)。
+# 1995年
+- [数字UNIX](https://en.wikipedia.org/wiki/Tru64_UNIX)（又名Tru64UNIX）。
+- [开放式BSD](https://en.wikipedia.org/wiki/OpenBSD)。
+- [操作系统/390](https://en.wikipedia.org/wiki/OS/390)。
+- [计划9](https://en.wikipedia.org/wiki/Plan_9_from_Bell_Labs)第二版（商业第二版已向公众开放。）。
+- [Ultrix](https://en.wikipedia.org/wiki/Ultrix)4.5（最后一个主要版本）。
+- [视窗95](https://en.wikipedia.org/wiki/Windows_95)。
+# 1996年
+- [MacOS7.6](https://en.wikipedia.org/wiki/Classic_Mac_OS)（第一个正式命名的MacOS）。
+- [视窗NT4.0](https://en.wikipedia.org/wiki/Windows_NT_4.0)。
+- [视窗CE1.0](https://en.wikipedia.org/wiki/Windows_Embedded_Compact)。
+- [风险](https://en.wikipedia.org/wiki/RISC_OS)3.6。
+- [AIX](https://en.wikipedia.org/wiki/IBM_AIX)4.2。
+- [操作系统/2](https://en.wikipedia.org/wiki/OS/2)4.0。
+- [掌上操作系统](https://en.wikipedia.org/wiki/Palm_OS)。
+- [Debian](https://en.wikipedia.org/wiki/Debian)1.1。
+- JN–用于嵌入式Java应用程序的微内核操作系统。
+# 1997年
+- [地狱](https://en.wikipedia.org/wiki/Inferno_(operating_system))。
+- [操作系统8](https://en.wikipedia.org/wiki/Mac_OS_8)。
+- [视窗CE2.0](https://en.wikipedia.org/wiki/Windows_Embedded_Compact)。
+- [SkyOS](https://en.wikipedia.org/wiki/SkyOS)。
+- [MINIX](https://en.wikipedia.org/wiki/MINIX)2.0。
+- [风险](https://en.wikipedia.org/wiki/RISC_OS)3.7。
+- [AIX](https://en.wikipedia.org/wiki/IBM_AIX)4.3。
+- [DR-WebSpyder](https://en.wikipedia.org/wiki/DR-WebSpyder)1.0。
+- [克星](https://en.wikipedia.org/wiki/Nemesis_(operating_system))。
+# 1998年
+- [Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))7（第一个[64位](https://en.wikipedia.org/wiki/64-bit_computing)Solaris发行版–从这一点开始，名称去掉“2。”，否则就是Solaris2.7）。
+- [视窗98](https://en.wikipedia.org/wiki/Windows_98)。
+- [RT-11](https://en.wikipedia.org/wiki/RT-11)5.7（最后一个稳定版本，1998年10月）。
+- [NovellNetWare](https://en.wikipedia.org/wiki/Novell_NetWare)5。
+- [朱诺斯](https://en.wikipedia.org/wiki/Junos)。
+- [DR-WebSpyder](https://en.wikipedia.org/wiki/DR-WebSpyder)2.0。
+# 1999年
+- [AROS](https://en.wikipedia.org/wiki/AROS_Research_Operating_System)（单机版首次启动）。
+- [风险](https://en.wikipedia.org/wiki/RISC_OS)4。
+- [操作系统9](https://en.wikipedia.org/wiki/Mac_OS_9)。
+- [操作系统/2](https://en.wikipedia.org/wiki/OS/2)4.5。
+- [Windows98（第二版）](https://en.wikipedia.org/wiki/Windows_98_Second_Edition)。
+- [地狱](https://en.wikipedia.org/wiki/Inferno_(operating_system))第二版（最后分配（版本2.3，角1999年7月），朗讯的地狱业务部）。
+# 2000年
+- ## 02月
+	- [视窗2000](https://en.wikipedia.org/wiki/Windows_2000)。
+	- [Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))8。
+- ## 03月
+	- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)4.0。
+	- [红帽Linux](https://en.wikipedia.org/wiki/Red_Hat_Linux)6.2E。
+	- [AtheOS](https://en.wikipedia.org/wiki/AtheOS)[BeOSR5](https://en.wikipedia.org/wiki/BeOS_R5)。
+- ## 04月
+	- [掌上电脑2000](https://en.wikipedia.org/wiki/Pocket_PC_2000)。
+- ## 06月
+	- [视窗CE3.0](https://en.wikipedia.org/wiki/Windows_Embedded_Compact)。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)2.7。
+	- [计划9](https://en.wikipedia.org/wiki/Plan_9_from_Bell_Labs)第三版。
+- ## 07月
+	- [Windows2000](https://en.wikipedia.org/wiki/Windows_2000)服务包1。
+	- [OS/400](https://en.wikipedia.org/wiki/OS/400)V4R5。
+- ## 08月
+	- [Debian](https://en.wikipedia.org/wiki/Debian)2.2。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)0.1。
+- ## 09月
+	- [视窗千年版](https://en.wikipedia.org/wiki/Windows_Me)。
+	- [MacOSX公共测试版](https://en.wikipedia.org/wiki/Mac_OS_X_Public_Beta)。
+	- [SUSELinux](https://en.wikipedia.org/wiki/SUSE_Linux)7.0。
+- ## 10月
+	- [z/OS](https://en.wikipedia.org/wiki/Z/OS)[z/VM](https://en.wikipedia.org/wiki/Z/VM)[MorphOS](https://en.wikipedia.org/wiki/MorphOS)0.2。
+- ## 12月
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)1.5[OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)2.8。
+	- [AmigaOS](https://en.wikipedia.org/wiki/AmigaOS)3.9[HP-UX](https://en.wikipedia.org/wiki/HP-UX)11i。
+# 2001年
+- ## 02月
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)0.4。
+- ## 03月
+	- [MacOSX猎豹](https://en.wikipedia.org/wiki/Mac_OS_X_10.0)(v10.0)。
+- ## 05月
+	- [Windows2000](https://en.wikipedia.org/wiki/Windows_2000)服务包2。
+	- [AIX](https://en.wikipedia.org/wiki/IBM_AIX)5L5.1[操作系统/400](https://en.wikipedia.org/wiki/OS/400)V5R1。
+- ## 06月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)2.9。
+- ## 07月
+	- [电子通讯站](https://en.wikipedia.org/wiki/EComStation)1.0。
+- ## 08月
+	- [俳句](https://en.wikipedia.org/wiki/Haiku_(operating_system))。
+- ## 09月
+	- [MacOSXPuma](https://en.wikipedia.org/wiki/Mac_OS_X_10.1)(v10.1)。
+- ## 10月
+	- [PocketPC2002](https://en.wikipedia.org/wiki/Pocket_PC_2002)[WindowsXP](https://en.wikipedia.org/wiki/Windows_XP)[WindowsXP64位版本2002](https://en.wikipedia.org/wiki/Windows_XP_64-bit_Edition)。
+	- [NovellNetWare](https://en.wikipedia.org/wiki/Novell_NetWare)6.0。
+- ## 12月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)3.0。
+	- [操作系统/2](https://en.wikipedia.org/wiki/OS/2)4.52。
+# 2002年
+- ## 01月
+	- [视窗CE4.x](https://en.wikipedia.org/wiki/Windows_Embedded_Compact)。
+	- [JX微内核用于Java](https://en.wikipedia.org/wiki/JX_(operating_system))Sanos微内核用于网络设备[K42微内核用于NUMA机器](https://en.wikipedia.org/wiki/K42)。
+- ## 03月
+	- [红帽企业Linux](https://en.wikipedia.org/wiki/Red_Hat_Enterprise_Linux)2.1AS。
+- ## 04月
+	- [SUSELinux](https://en.wikipedia.org/wiki/SUSE_Linux)8.0。
+	- [计划9](https://en.wikipedia.org/wiki/Plan_9_from_Bell_Labs)第四版。
+- ## 05月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)3.1。
+	- [Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))9([SPARC](https://en.wikipedia.org/wiki/SPARC))。
+- ## 07月
+	- [Debian](https://en.wikipedia.org/wiki/Debian)3.0。
+	- [音节](https://en.wikipedia.org/wiki/Syllable_Desktop)0.4.0。
+- ## 08月
+	- [Windows2000](https://en.wikipedia.org/wiki/Windows_2000)服务包3。
+	- [MacOSX捷豹](https://en.wikipedia.org/wiki/Mac_OS_X_10.2)(v10.2)。
+	- [OS/400](https://en.wikipedia.org/wiki/OS/400)V5R2。
+- ## 09月
+	- [WindowsXP服务包1](https://en.wikipedia.org/wiki/Windows_XP_Service_Pack_1)。
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)1.6。
+- ## 10月
+	- [AIX](https://en.wikipedia.org/wiki/IBM_AIX)5.2。
+- ## 11月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)3.2。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)1.0。
+- ## 12月
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)1.1。
+# 2003年
+- ## 01月
+	- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)5.0。
+	- [Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))9([x86](https://en.wikipedia.org/wiki/X86))JNode–[JavaOS的](https://en.wikipedia.org/wiki/JavaOS)继任者。
+- ## 02月
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)1.2[ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.1.0。
+- ## 03月
+	- [WindowsXP64位版本2003](https://en.wikipedia.org/wiki/Windows_XP_64-bit_Edition)。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)1.3。
+- ## 04月
+	- [视窗服务器2003](https://en.wikipedia.org/wiki/Windows_Server_2003)。
+	- [电子通讯站](https://en.wikipedia.org/wiki/EComStation)1.1。
+- ## 05月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)3.3。
+	- [红帽企业Linux](https://en.wikipedia.org/wiki/Red_Hat_Enterprise_Linux)2.1ES。
+- ## 06月
+	- [Windows2000](https://en.wikipedia.org/wiki/Windows_2000)ServicePack4[WindowsMobile2003](https://en.wikipedia.org/wiki/Windows_Mobile_2003)。
+	- [OpenVMS](https://en.wikipedia.org/wiki/OpenVMS)8.0。
+- ## 08月
+	- [NovellNetWare](https://en.wikipedia.org/wiki/Novell_NetWare)6.5[MorphOS](https://en.wikipedia.org/wiki/MorphOS)1.4。
+- ## 09月
+	- [HP-UX](https://en.wikipedia.org/wiki/HP-UX)11iv2。
+- ## 10月
+	- [MacOSXPanther](https://en.wikipedia.org/wiki/Mac_OS_X_Panther)(v10.3)。
+	- [红帽企业Linux](https://en.wikipedia.org/wiki/Red_Hat_Enterprise_Linux)3[SUSELinux](https://en.wikipedia.org/wiki/SUSE_Linux)9.0。
+- ## 11月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)3.4。
+	- [Fedora核心](https://en.wikipedia.org/wiki/Fedora_(operating_system))1。
+- ## 12月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.0。
+# 2004年
+- ## 01月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.1。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.2.0。
+- ## 02月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.2、2.6.3。
+- ## 03月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.4。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.2.1。
+- ## 04月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.5。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.2.2。
+- ## 05月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)3.5。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.6[FedoraCore](https://en.wikipedia.org/wiki/Fedora_(operating_system))2。
+- ## 06月
+	- [i5/OS](https://en.wikipedia.org/wiki/I5/OS)V5R3[ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.2.3。
+- ## 07月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)1.0。
+- ## 08月
+	- [WindowsCE5.x](https://en.wikipedia.org/wiki/Windows_Embedded_Compact)[WindowsXPServicePack2](https://en.wikipedia.org/wiki/Windows_XP_Service_Pack_2)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.8。
+	- [AIX](https://en.wikipedia.org/wiki/IBM_AIX)5.3[eComStation](https://en.wikipedia.org/wiki/EComStation)1.2。
+- ## 09月
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.2.4。
+- ## 10月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.9[Ubuntu4.10](https://en.wikipedia.org/wiki/Ubuntu_version_history#0410)。
+- ## 11月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)3.6。
+	- [Fedora核心](https://en.wikipedia.org/wiki/Fedora_(operating_system))3。
+- ## 12月
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)2.0。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.10。
+# 2005年
+- ## 01月
+	- [的Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))10周[的ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.2.5。
+- ## 02月
+	- [红帽企业Linux](https://en.wikipedia.org/wiki/Red_Hat_Enterprise_Linux)4。
+	- [OpenVMS](https://en.wikipedia.org/wiki/OpenVMS)8.2。
+- ## 03月
+	- [WindowsServer2003ServicePack1](https://en.wikipedia.org/wiki/Windows_Server_2003_Service_Pack_1)[WindowsXPProfessionalx64版](https://en.wikipedia.org/wiki/Windows_XP_Professional_x64_Edition)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.11[NovellOpenEnterpriseServer](https://en.wikipedia.org/wiki/Novell_Open_Enterprise_Server)。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)1.4.4。
+- ## 04月
+	- [MacOSXTiger](https://en.wikipedia.org/wiki/Mac_OS_X_Tiger)(v10.4)。
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)1.2。
+	- [Ubuntu5.04](https://en.wikipedia.org/wiki/Ubuntu_version_history#0504)。
+	- [ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.2.6[MorphOS](https://en.wikipedia.org/wiki/MorphOS)1.4.5。
+- ## 05月
+	- [视窗手机5.0](https://en.wikipedia.org/wiki/Windows_Mobile_5.0)。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)3.7。
+- ## 06月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.12[FedoraCore](https://en.wikipedia.org/wiki/Fedora_(operating_system))4[Debian](https://en.wikipedia.org/wiki/Debian)3.1。
+- ## 08月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.13。
+	- [ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.2.7[MorphOS](https://en.wikipedia.org/wiki/MorphOS)1.4.5经典版。
+- ## 10月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.14[Ubuntu5.10](https://en.wikipedia.org/wiki/Ubuntu_version_history#0510)[SUSELinux](https://en.wikipedia.org/wiki/SUSE_Linux)10.0。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.2.8。
+- ## 11月
+	- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)6.0[OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)3.8。
+- ## 12月
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)3.0。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.2.9。
+# 2006年
+- ## 01月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)1.4。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.15。
+	- [i5/OS](https://en.wikipedia.org/wiki/I5/OS)V5R4[Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))101/06。
+- ## 03月
+	- [视窗服务器2003R2](https://en.wikipedia.org/wiki/Windows_Server_2003_R2)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.16[FedoraCore](https://en.wikipedia.org/wiki/Fedora_(operating_system))5。
+- ## 05月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)3.9。
+	- [符号](https://en.wikipedia.org/wiki/SymbOS)[MINIX](https://en.wikipedia.org/wiki/MINIX)3.1.2。
+- ## 06月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.17[Ubuntu6.06](https://en.wikipedia.org/wiki/Ubuntu_version_history#0606)(LTS)。
+	- [索拉里斯](https://en.wikipedia.org/wiki/Solaris_(operating_system))106/06。
+- ## 07月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)1.6。
+- ## 08月
+	- [BS2000/OSD](https://en.wikipedia.org/wiki/BS2000)v7.0[ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.3.0。
+- ## 09月
+	- [视窗CE6.0](https://en.wikipedia.org/wiki/Windows_Embedded_Compact)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.18。
+	- [FreeDOS](https://en.wikipedia.org/wiki/FreeDOS)1.0[OpenVMS](https://en.wikipedia.org/wiki/OpenVMS)8.3。
+- ## 10月
+	- [FedoraCore](https://en.wikipedia.org/wiki/Fedora_(operating_system))6[Ubuntu6.10](https://en.wikipedia.org/wiki/Ubuntu_version_history#0610)[Slackware](https://en.wikipedia.org/wiki/Slackware)11.0。
+- ## 11月
+	- [视窗Vista](https://en.wikipedia.org/wiki/Windows_Vista)。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)4.0。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.19。
+	- [AmigaOS4.0](https://en.wikipedia.org/wiki/AmigaOS_4)[Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))1011/06。
+# 2007年
+- ## 01月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)1.8。
+	- [巴拉特操作系统解决方案](https://en.wikipedia.org/wiki/Bharat_Operating_System_Solutions)。
+- ## 02月
+	- [视窗手机6.0](https://en.wikipedia.org/wiki/Windows_Mobile_6.0)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.20。
+	- [地狱火](https://en.wikipedia.org/wiki/Inferno_(operating_system))第四版。
+- ## 03月
+	- [WindowsServer2003服务包2](https://en.wikipedia.org/wiki/Windows_Server_2003_Service_Pack_2)。
+	- [红帽企业Linux](https://en.wikipedia.org/wiki/Red_Hat_Enterprise_Linux)5。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.3.1。
+- ## 04月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.21[Ubuntu7.04](https://en.wikipedia.org/wiki/Ubuntu_version_history#0704)[Debian](https://en.wikipedia.org/wiki/Debian)4.0。
+- ## 05月
+	- [iPhone操作系统1](https://en.wikipedia.org/wiki/IPhone_OS_1)。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)4.1。
+	- [软呢帽](https://en.wikipedia.org/wiki/Fedora_(operating_system))7。
+- ## 07月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.22[Slackware](https://en.wikipedia.org/wiki/Slackware)12.0。
+- ## 08月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)1.10。
+	- [索拉里斯](https://en.wikipedia.org/wiki/Solaris_(operating_system))108/07。
+- ## 09月
+	- [iPhone操作系统](https://en.wikipedia.org/wiki/IPhone_OS_1)1.1。
+	- [HP-UX](https://en.wikipedia.org/wiki/HP-UX)11iv3[ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.3.3。
+- ## 10月
+	- [MacOSXLeopard](https://en.wikipedia.org/wiki/Mac_OS_X_Leopard)(v10.5)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.23[Ubuntu7.10](https://en.wikipedia.org/wiki/Ubuntu_version_history#0710)。
+	- [OpenVMS](https://en.wikipedia.org/wiki/OpenVMS)8.3-1H1。
+- ## 11月
+	- [视窗家庭服务器](https://en.wikipedia.org/wiki/Windows_Home_Server)。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)4.2。
+	- [Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))8[操作系统](https://en.wikipedia.org/wiki/GOS_(operating_system))。
+	- [AIX](https://en.wikipedia.org/wiki/IBM_AIX)6.1，。
+- ## 12月
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)4.0。
+# 2008年
+- ## 01月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.24。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.3.4。
+- ## 02月
+	- [WindowsVistaServicePack1](https://en.wikipedia.org/wiki/Windows_Vista_Service_Pack_1)[WindowsServer2008](https://en.wikipedia.org/wiki/Windows_Server_2008)。
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)1.12[FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)7.0。
+- ## 03月
+	- [IBMi](https://en.wikipedia.org/wiki/IBM_i)6.1[奇点](https://en.wikipedia.org/wiki/Singularity_(operating_system))1.1。
+- ## 04月
+	- [WindowsMobile6.1](https://en.wikipedia.org/wiki/Windows_Mobile_6.1)[WindowsXPServicePack3](https://en.wikipedia.org/wiki/Windows_XP_Service_Pack_3)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.25[Ubuntu8.04](https://en.wikipedia.org/wiki/Ubuntu_version_history#804)(LTS)。
+- ## 05月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)4.3。
+	- [Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))9[Slackware](https://en.wikipedia.org/wiki/Slackware)12.1。
+	- [Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))105/08[OpenSolaris](https://en.wikipedia.org/wiki/OpenSolaris)2008.05[BS2000/OSD](https://en.wikipedia.org/wiki/BS2000)v8.0A。
+- ## 06月
+	- [SUSELinux](https://en.wikipedia.org/wiki/SUSE_Linux)11.0。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)2.0[ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.3.5。
+- ## 07月
+	- [iPhone操作系统2](https://en.wikipedia.org/wiki/IPhone_OS_2)。
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)2.0。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.26。
+- ## 08月
+	- [停止](https://en.wikipedia.org/wiki/XTS-400)6.5[ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.3.6。
+- ## 09月
+	- [iPhone操作系统](https://en.wikipedia.org/wiki/IPhone_OS_2)2.1。
+	- [AmigaOS4.1](https://en.wikipedia.org/wiki/AmigaOS_4.1)[z/OS](https://en.wikipedia.org/wiki/Z/OS)V1R10[MorphOS](https://en.wikipedia.org/wiki/MorphOS)2.1。
+- ## 10月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.27[Ubuntu8.10](https://en.wikipedia.org/wiki/Ubuntu_version_history#0810)[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))1.0。
+	- [Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))1010/08[OKL43.0](https://en.wikipedia.org/wiki/Open_Kernel_Labs)。
+- ## 11月
+	- [iPhone操作系统](https://en.wikipedia.org/wiki/IPhone_OS_2)2.2。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)4.4。
+	- [软呢帽](https://en.wikipedia.org/wiki/Fedora_(operating_system))10。
+	- [Singularity](https://en.wikipedia.org/wiki/Singularity_(operating_system))2.0[ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.3.7[Genode](https://en.wikipedia.org/wiki/Genode)8.11。
+- ## 12月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.28[Slackware](https://en.wikipedia.org/wiki/Slackware)12.2。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)2.2[OpenSolaris](https://en.wikipedia.org/wiki/OpenSolaris)2008.11。
+# 2009年
+- ## 02月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)2.2。
+	- [Debian](https://en.wikipedia.org/wiki/Debian)5.0[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))1.1。
+	- [ReactOS的](https://en.wikipedia.org/wiki/ReactOS)0.3.8。
+- ## 03月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.29。
+- ## 04月
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)5.0。
+	- [Ubuntu9.04](https://en.wikipedia.org/wiki/Ubuntu_version_history#0904)[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))1.5。
+	- [ReactOS的](https://en.wikipedia.org/wiki/ReactOS)0.3.9。
+- ## 05月
+	- [WindowsMobile6.5](https://en.wikipedia.org/wiki/Windows_Mobile_6.5)[WindowsVistaServicePack2](https://en.wikipedia.org/wiki/Windows_Vista_Service_Pack_2)。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)4.5。
+	- [索拉里斯](https://en.wikipedia.org/wiki/Solaris_(operating_system))105/09。
+- ## 06月
+	- [iPhone操作系统3](https://en.wikipedia.org/wiki/IPhone_OS_3)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.30[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))11[PalmwebOS](https://en.wikipedia.org/wiki/WebOS)1。
+	- [AmigaOS4.1](https://en.wikipedia.org/wiki/AmigaOS_4.1)[OpenSolaris](https://en.wikipedia.org/wiki/OpenSolaris)2009.06。
+- ## 07月
+	- [ReactOS的](https://en.wikipedia.org/wiki/ReactOS)0.3.10。
+- ## 08月
+	- [MacOSX雪豹](https://en.wikipedia.org/wiki/Mac_OS_X_Snow_Leopard)(v10.6)。
+	- [Slackware](https://en.wikipedia.org/wiki/Slackware)13.0。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)2.3。
+- ## 09月
+	- [iPhone操作系统](https://en.wikipedia.org/wiki/IPhone_OS_3)3.1。
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)2.4。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.31[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))1.6。
+- ## 10月
+	- [Windows7](https://en.wikipedia.org/wiki/Windows_7)[WindowsServer2008R2](https://en.wikipedia.org/wiki/Windows_Server_2008_R2)。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)4.6。
+	- [Ubuntu9.10](https://en.wikipedia.org/wiki/Ubuntu_version_history#0910)[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))2.0。
+	- [Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))1010/09[MorphOS](https://en.wikipedia.org/wiki/MorphOS)2.4。
+- ## 11月
+	- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)8.0。
+	- [Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))12[openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)11.2。
+- ## 12月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.32。
+	- [ReactOS的](https://en.wikipedia.org/wiki/ReactOS)0.3.11。
+# 2010年
+- ## 01月
+	- [安卓](https://en.wikipedia.org/wiki/Android_(operating_system))2.1。
+	- [AmigaOS4.1更新。1](https://en.wikipedia.org/wiki/AmigaOS_4)。
+- ## 02月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.33。
+- ## 04月
+	- [iPhone操作系统](https://en.wikipedia.org/wiki/IPhone_OS_3)3.2。
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)2.6。
+	- [Ubuntu10.04](https://en.wikipedia.org/wiki/Ubuntu_10.04)(LTS)。
+	- [AmigaOS4.1更新。2](https://en.wikipedia.org/wiki/AmigaOS_4#AmigaOS_4.1_Update_2)[IBMi](https://en.wikipedia.org/wiki/IBM_i)7.1。
+- ## 05月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)4.7。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.34[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))13[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))2.2。
+	- [电子通讯站](https://en.wikipedia.org/wiki/EComStation)2.0。
+- ## 06月
+	- [iOS4](https://en.wikipedia.org/wiki/IOS_4)。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)2.5[OpenVMS](https://en.wikipedia.org/wiki/OpenVMS)8.4。
+- ## 07月
+	- [openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)11.3。
+- ## 08月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.35。
+- ## 09月
+	- [iOS4](https://en.wikipedia.org/wiki/IOS_4).1。
+	- [Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))109/10[AIX](https://en.wikipedia.org/wiki/AIX)7.1。
+- ## 10月
+	- [视窗电话7](https://en.wikipedia.org/wiki/Windows_Phone_7)。
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)2.8。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.36[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))14[Ubuntu10.10](https://en.wikipedia.org/wiki/Ubuntu_10.10)。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)2.6[ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.3.12。
+- ## 11月
+	- [iOS4](https://en.wikipedia.org/wiki/IOS_4).2。
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)5.1[OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)4.8。
+	- [红帽企业Linux](https://en.wikipedia.org/wiki/Red_Hat_Enterprise_Linux)6。
+- ## 12月
+	- [安卓](https://en.wikipedia.org/wiki/Android_(operating_system))2.3。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)2.7。
+# 2011年
+- ## 01月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.37。
+- ## 02月
+	- [Windows7服务包1](https://en.wikipedia.org/wiki/Windows_7_Service_Pack_1)。
+	- [Debian](https://en.wikipedia.org/wiki/Debian)6.0[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))3.0。
+- ## 03月
+	- [视窗CE7.0](https://en.wikipedia.org/wiki/Windows_Embedded_Compact)。
+	- [iOS4](https://en.wikipedia.org/wiki/IOS_4).3。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.38[openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)11.4。
+	- [ReactOS的](https://en.wikipedia.org/wiki/ReactOS)0.3.13。
+- ## 04月
+	- [Windows家庭服务器2011](https://en.wikipedia.org/wiki/Windows_Home_Server_2011)。
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)2.10。
+	- [Ubuntu11.04](https://en.wikipedia.org/wiki/Ubuntu_11.04)[Slackware](https://en.wikipedia.org/wiki/Slackware)13.37。
+- ## 05月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)4.9。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)2.6.39[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))15[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))3.1。
+	- [AmigaOS4.1更新。1](https://en.wikipedia.org/wiki/AmigaOS_4)（经典版）[eComStation](https://en.wikipedia.org/wiki/EComStation)2.1。
+- ## 06月
+	- [iOS5](https://en.wikipedia.org/wiki/IOS_5)。
+	- [GoogleChrome操作系统](https://en.wikipedia.org/wiki/Google_Chrome_OS)（首次发货）。
+	- [9前线](https://en.wikipedia.org/wiki/9front)。
+- ## 07月
+	- [MacOSXLion](https://en.wikipedia.org/wiki/Mac_OS_X_v10.7)(v10.7)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.0[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))3.2[惠普webOS](https://en.wikipedia.org/wiki/WebOS)3。
+	- [AmigaOS4.1更新。3](https://en.wikipedia.org/wiki/AmigaOS_4)。
+- ## 09月
+	- [视窗电话7.5](https://en.wikipedia.org/wiki/Windows_Phone_7.5)。
+- ## 10月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.1[Ubuntu11.10](https://en.wikipedia.org/wiki/Ubuntu_11.10)[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))4.0。
+- ## 11月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)5.0。
+	- [Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))16[openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)12.1。
+	- [索拉里斯](https://en.wikipedia.org/wiki/Solaris_(operating_system))1111/11。
+- ## 12月
+	- [AmigaOS4.1更新。4](https://en.wikipedia.org/wiki/AmigaOS_4)。
+# 2012年
+- ## 01月
+	- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)9.0。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.2。
+	- [自由DOS](https://en.wikipedia.org/wiki/FreeDOS)1.1。
+- ## 02月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)3.0。
+	- [ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.3.14[Minix](https://en.wikipedia.org/wiki/Minix)3.2。
+- ## 03月
+	- [iOS5](https://en.wikipedia.org/wiki/IOS_5).1。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.3[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))4.0.4。
+- ## 04月
+	- [Ubuntu12.04](https://en.wikipedia.org/wiki/Ubuntu_12.04)(LTS)。
+- ## 05月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)5.1。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.4[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))17。
+	- [操作系统](https://en.wikipedia.org/wiki/DexOS)。
+- ## 06月
+	- [BS2000/OSD](https://en.wikipedia.org/wiki/BS2000)9.0[MorphOS](https://en.wikipedia.org/wiki/MorphOS)3.0。
+- ## 07月
+	- [OSX山狮](https://en.wikipedia.org/wiki/OS_X_Mountain_Lion)(v10.8)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.5[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))4.1[openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)12.2。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)3.1[AmigaOS4.1更新。5](https://en.wikipedia.org/wiki/AmigaOS_4)。
+- ## 09月
+	- [视窗服务器2012](https://en.wikipedia.org/wiki/Windows_Server_2012)。
+	- [iOS6](https://en.wikipedia.org/wiki/IOS_6)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.6[Slackware](https://en.wikipedia.org/wiki/Slackware)14.0[Qubes操作系统](https://en.wikipedia.org/wiki/Qubes_OS)。
+- ## 10月
+	- [视窗8](https://en.wikipedia.org/wiki/Windows_8)[视窗电话8](https://en.wikipedia.org/wiki/Windows_Phone_8)。
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)6.0[OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)5.2。
+	- [Ubuntu12.10](https://en.wikipedia.org/wiki/Ubuntu_12.10)。
+	- [Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))11.1。
+- ## 11月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)3.2。
+	- [安卓](https://en.wikipedia.org/wiki/Android_(operating_system))4.2。
+	- [俳句](https://en.wikipedia.org/wiki/Haiku_(operating_system))R1阿尔法4。
+- ## 12月
+	- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)9.1。
+# 2013年
+- ## 01月
+	- [iOS6](https://en.wikipedia.org/wiki/IOS_6).1。
+	- [软呢帽](https://en.wikipedia.org/wiki/Fedora_(operating_system))18。
+	- [黑莓10](https://en.wikipedia.org/wiki/BlackBerry_10)[Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))101/13。
+- ## 02月
+	- [视窗电话7.8](https://en.wikipedia.org/wiki/Windows_Phone_7.8)。
+- ## 03月
+	- [openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)12.3。
+- ## 04月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)3.4。
+	- [Linux3.9](https://en.wikipedia.org/wiki/Linux_kernel)[Ubuntu13.04](https://en.wikipedia.org/wiki/Ubuntu_13.04)。
+- ## 05月
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)6.1[OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)5.3。
+	- [Debian](https://en.wikipedia.org/wiki/Debian)7.0。
+	- [ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.3.15[MorphOS](https://en.wikipedia.org/wiki/MorphOS)3.2。
+- ## 06月
+	- [WindowsCE8.0(2013)](https://en.wikipedia.org/wiki/Windows_Embedded_Compact)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.10。
+- ## 07月
+	- [Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))19[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))4.3。
+- ## 09月
+	- [IOS7](https://en.wikipedia.org/wiki/IOS_7)。
+	- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)9.2。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.11。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)3.3[z/OS](https://en.wikipedia.org/wiki/Z/OS)版本2.1。
+- ## 10月
+	- [Windows8.1](https://en.wikipedia.org/wiki/Windows_8.1)[WindowsServer2012R2](https://en.wikipedia.org/wiki/Windows_Server_2012_R2)。
+	- [OSXMavericks](https://en.wikipedia.org/wiki/OS_X_Mavericks)(v10.9)。
+	- [Ubuntu13.10](https://en.wikipedia.org/wiki/Ubuntu_13.10)。
+- ## 11月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)3.6[OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)5.4。
+	- [Slackware](https://en.wikipedia.org/wiki/Slackware)14.1[openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)13.1[Android](https://en.wikipedia.org/wiki/Android_(operating_system))4.4[Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.12。
+- ## 12月
+	- [软呢帽](https://en.wikipedia.org/wiki/Fedora_(operating_system))20。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)3.4Muen [分离内核](https://en.wikipedia.org/wiki/Separation_kernel)。
+# 2014年
+- ## 01月
+	- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)10.0。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.13。
+- ## 02月
+	- [ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.3.16[MorphOS](https://en.wikipedia.org/wiki/MorphOS)3.5。
+- ## 03月
+	- [iOS7](https://en.wikipedia.org/wiki/IOS_7).1。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.14。
+- ## 04月
+	- [视窗电话8.1](https://en.wikipedia.org/wiki/Windows_Phone_8.1)。
+	- [Ubuntu14.04](https://en.wikipedia.org/wiki/Ubuntu_14.04)(LTS)。
+	- [Solaris](https://en.wikipedia.org/wiki/Solaris_(operating_system))11.2。
+- ## 05月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)5.5。
+- ## 06月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)3.8。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.15[红帽企业Linux7](https://en.wikipedia.org/wiki/Red_Hat_Enterprise_Linux#RHEL_7)。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)3.6。
+- ## 08月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.16。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)3.7。
+- ## 09月
+	- [iOS8](https://en.wikipedia.org/wiki/IOS_8)。
+	- [迷你](https://en.wikipedia.org/wiki/Minix)3.3。
+- ## 10月
+	- [OSX优胜美地](https://en.wikipedia.org/wiki/OS_X_Yosemite)(v10.10)[iOS8](https://en.wikipedia.org/wiki/IOS_8).1。
+	- [Ubuntu14.10](https://en.wikipedia.org/wiki/Ubuntu_14.10)[Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.17。
+- ## 11月
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)5.6[FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)10.1[蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)4.0。
+	- [openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)13.2[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))5.0。
+	- [IBMi](https://en.wikipedia.org/wiki/IBM_i)7.2[ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.3.17。
+- ## 12月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.18[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))21。
+# 2015年
+- ## 02月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)3.19。
+- ## 03月
+	- [iOS8](https://en.wikipedia.org/wiki/IOS_8).2。
+- ## 04月
+	- [iOS8](https://en.wikipedia.org/wiki/IOS_8).3[watchOS1](https://en.wikipedia.org/wiki/WatchOS_1)。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.0[Debian](https://en.wikipedia.org/wiki/Debian)8.0[Ubuntu15.04](https://en.wikipedia.org/wiki/Ubuntu_15.04)。
+	- [氧化还原操作系统](https://en.wikipedia.org/wiki/Redox_(operating_system))。
+- ## 05月
+	- [软呢帽](https://en.wikipedia.org/wiki/Fedora_(operating_system))22。
+	- [BS2000/OSD](https://en.wikipedia.org/wiki/BS2000)10.0。
+- ## 06月
+	- [iOS8](https://en.wikipedia.org/wiki/IOS_8).4。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.1。
+	- [MorphOS](https://en.wikipedia.org/wiki/MorphOS)3.9。
+- ## 07月
+	- [视窗10](https://en.wikipedia.org/wiki/Windows_10)([1507](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1507)))。
+- ## 08月
+	- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)10.2。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.2。
+- ## 09月
+	- [OSXElCapitan](https://en.wikipedia.org/wiki/OS_X_El_Capitan)(v10.11)[iOS9](https://en.wikipedia.org/wiki/IOS_9)[watchOS2](https://en.wikipedia.org/wiki/WatchOS#watchOS_2.x)。
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)7.0。
+	- [z/OS](https://en.wikipedia.org/wiki/Z/OS)版本2.2。
+- ## 10月
+	- [iOS9](https://en.wikipedia.org/wiki/IOS_9).1[tvOS](https://en.wikipedia.org/wiki/TvOS)9。
+	- [安卓](https://en.wikipedia.org/wiki/Android_(operating_system))6.0[Ubuntu15.10](https://en.wikipedia.org/wiki/Ubuntu_15.10)。
+	- [AIX](https://en.wikipedia.org/wiki/AIX)7.2[Solaris11](https://en.wikipedia.org/wiki/Solaris_11).3。
+- ## 11月
+	- [Windows](https://en.wikipedia.org/wiki/Windows_10)11月10日更新([1511](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1511)))[Windows10移动版](https://en.wikipedia.org/wiki/Windows_10_Mobile)([1511](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1511)))。
+	- [tvOS](https://en.wikipedia.org/wiki/TvOS)9.1。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.3[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))23[openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)Leap42.1。
+- ## 12月
+	- [iOS9](https://en.wikipedia.org/wiki/IOS_9).2[watchOS2.1](https://en.wikipedia.org/wiki/WatchOS#watchOS_2.x)[tvOS](https://en.wikipedia.org/wiki/TvOS)9.2。
+# 2016年
+- ## 01月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.4。
+	- [迷你](https://en.wikipedia.org/wiki/Minix)3.4。
+- ## 02月
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.4。
+- ## 03月
+	- [iOS9](https://en.wikipedia.org/wiki/IOS_9).3[watchOS2.2](https://en.wikipedia.org/wiki/WatchOS#watchOS_2.x)[tvOS](https://en.wikipedia.org/wiki/TvOS)9.3。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)5.9[FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)10.3。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.5。
+- ## 04月
+	- [Ubuntu16.04](https://en.wikipedia.org/wiki/Ubuntu_16.04)。
+	- [IBMi](https://en.wikipedia.org/wiki/IBM_i)7.3[ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.4.1。
+- ## 05月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.6。
+- ## 06月
+	- [Slackware](https://en.wikipedia.org/wiki/Slackware)14.2[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))24[LinuxMint](https://en.wikipedia.org/wiki/Linux_Mint)18。
+- ## 07月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.7。
+- ## 08月
+	- [Windows10](https://en.wikipedia.org/wiki/Windows_10)周年更新([1607](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1607)))[Windows10移动版](https://en.wikipedia.org/wiki/Windows_10_Mobile)周年更新([1607](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1607)))。
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)4.6。
+	- [安卓](https://en.wikipedia.org/wiki/Android_(operating_system))7.0。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.4.2。
+- ## 09月
+	- [WindowsServer2016](https://en.wikipedia.org/wiki/Windows_Server_2016)(1607)。
+	- [macOSSierra](https://en.wikipedia.org/wiki/MacOS_Sierra)(v10.12)[iOS10](https://en.wikipedia.org/wiki/IOS_10)[watchOS3](https://en.wikipedia.org/wiki/WatchOS#watchOS_3.x)[tvOS](https://en.wikipedia.org/wiki/TvOS)10。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)6.0。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.8。
+- ## 10月
+	- [iOS10](https://en.wikipedia.org/wiki/IOS_10).1[watchOS3.1](https://en.wikipedia.org/wiki/WatchOS#watchOS_3.x)。
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)7.0.2[FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)11.0。
+	- [安卓](https://en.wikipedia.org/wiki/Android_(operating_system))7.1[Ubuntu16.10](https://en.wikipedia.org/wiki/Ubuntu_16.10)。
+- ## 11月
+	- [OracleLinux](https://en.wikipedia.org/wiki/Oracle_Linux)7.3[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))25[openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)Leap42.2。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.4.3。
+- ## 12月
+	- [iOS10](https://en.wikipedia.org/wiki/IOS_10).2[tvOS](https://en.wikipedia.org/wiki/TvOS)10.1。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.9[LinuxMint](https://en.wikipedia.org/wiki/Linux_Mint)18.1。
+	- [自由DOS](https://en.wikipedia.org/wiki/FreeDOS)1.2。
+# 2017年
+- ## 02月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.10。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.4.4。
+- ## 03月
+	- [iOS10](https://en.wikipedia.org/wiki/IOS_10).3[watchOS3.2](https://en.wikipedia.org/wiki/WatchOS#watchOS_3.x)[tvOS](https://en.wikipedia.org/wiki/TvOS)10.2。
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)4.8[NetBSD](https://en.wikipedia.org/wiki/NetBSD)7.1。
+- ## 04月
+	- [Windows10](https://en.wikipedia.org/wiki/Windows_10)创意者更新([1703](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1703)))[Windows10移动](https://en.wikipedia.org/wiki/Windows_10_Mobile)创意者更新([1703](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1703)))。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)6.1。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.11[Ubuntu17.04](https://en.wikipedia.org/wiki/Ubuntu_17.04)。
+- ## 05月
+	- [ReactOS](https://en.wikipedia.org/wiki/ReactOS)0.4.5[ArcaOS](https://en.wikipedia.org/wiki/ArcaOS)5.0.0。
+- ## 06月
+	- [Debian](https://en.wikipedia.org/wiki/Debian)9.0[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))26。
+- ## 07月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.12[openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)Leap42.3。
+	- [BS2000/OSD](https://en.wikipedia.org/wiki/BS2000)11.0[ArcaOS](https://en.wikipedia.org/wiki/ArcaOS)5.0.1。
+- ## 08月
+	- [安卓](https://en.wikipedia.org/wiki/Android_(operating_system))8.0。
+- ## 09月
+	- [macOSHighSierra](https://en.wikipedia.org/wiki/MacOS_High_Sierra)(v10.13)[iOS11](https://en.wikipedia.org/wiki/IOS_11)[watchOS4](https://en.wikipedia.org/wiki/WatchOS#watchOS_4.x)[tvOS](https://en.wikipedia.org/wiki/TvOS)11。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.13。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.4.6。
+- ## 10月
+	- [Windows10](https://en.wikipedia.org/wiki/Windows_10)秋季创意者更新([1709](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1709)))[Windows10移动](https://en.wikipedia.org/wiki/Windows_10_Mobile)秋季创意者更新([1709](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1709)))[WindowsServer2016](https://en.wikipedia.org/wiki/Windows_Server_2016)秋季创意者更新([1709](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1709)))。
+	- [iOS11](https://en.wikipedia.org/wiki/IOS_11).1[watchOS4.1](https://en.wikipedia.org/wiki/WatchOS#watchOS_4.x)[tvOS](https://en.wikipedia.org/wiki/TvOS)11.1。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)6.2[蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)5.0。
+	- [Ubuntu17.10](https://en.wikipedia.org/wiki/Ubuntu_17.10)。
+- ## 11月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.14[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))27。
+	- [裸机](https://en.wikipedia.org/wiki/BareMetal)1.0.0。
+- ## 12月
+	- [iOS11](https://en.wikipedia.org/wiki/IOS_11).2[watchOS4.2](https://en.wikipedia.org/wiki/WatchOS#watchOS_4.x)[tvOS](https://en.wikipedia.org/wiki/TvOS)11.2。
+	- [安卓](https://en.wikipedia.org/wiki/Android_(operating_system))8.1。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.4.7。
+# 2018年
+- ## 01月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.15。
+- ## 02月
+	- [ArcaOS](https://en.wikipedia.org/wiki/ArcaOS)5.0.2。
+- ## 03月
+	- [iOS11](https://en.wikipedia.org/wiki/IOS_11).3[watchOS4.3](https://en.wikipedia.org/wiki/WatchOS#watchOS_4.x)[tvOS](https://en.wikipedia.org/wiki/TvOS)11.3。
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)7.1.2。
+	- [Genode](https://en.wikipedia.org/wiki/Genode)SculptEA。
+- ## 04月
+	- [Windows](https://en.wikipedia.org/wiki/Windows_10)2018年4月10日更新([1803](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1803)))。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)6.3[蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)5.2。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.16[Ubuntu18.04](https://en.wikipedia.org/wiki/Ubuntu_18.04)(LTS)。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.4.8。
+- ## 05月
+	- [iOS11](https://en.wikipedia.org/wiki/IOS_11).4[tvOS](https://en.wikipedia.org/wiki/TvOS)11.4。
+	- [Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))28[openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)Leap15.0。
+- ## 06月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.17。
+	- [Genode](https://en.wikipedia.org/wiki/Genode)SculptTC。
+- ## 07月
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)8.0。
+	- [SUSELinuxEnterprise](https://en.wikipedia.org/wiki/SUSE_Linux_Enterprise)15。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.4.9。
+- ## 08月
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)7.2。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.18[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))9.0。
+	- [ArcaOS](https://en.wikipedia.org/wiki/ArcaOS)5.0.3[Solaris11](https://en.wikipedia.org/wiki/Solaris_11).4。
+- ## 09月
+	- [macOSMojave](https://en.wikipedia.org/wiki/MacOS_Mojave)(v10.14)[iOS12](https://en.wikipedia.org/wiki/IOS_12)[watchOS5](https://en.wikipedia.org/wiki/WatchOS#watchOS_5.x)[tvOS](https://en.wikipedia.org/wiki/TvOS)12。
+	- [Genode](https://en.wikipedia.org/wiki/Genode)SculptVC。
+- ## 10月
+	- [Windows](https://en.wikipedia.org/wiki/Windows_10)2018年10月10日更新([1809](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1809)))[WindowsServer2019](https://en.wikipedia.org/wiki/Windows_Server_2019)([1809](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1809)))。
+	- [iOS12](https://en.wikipedia.org/wiki/IOS_12).1[watchOS5](https://en.wikipedia.org/wiki/WatchOS#watchOS_5.x).1[tvOS](https://en.wikipedia.org/wiki/TvOS)12.1。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)6.4。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.19[Ubuntu18.10](https://en.wikipedia.org/wiki/Ubuntu_18.10)[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))29。
+	- [宁静操作系统](https://en.wikipedia.org/wiki/SerenityOS)。
+- ## 11月
+	- [ReactOS的](https://en.wikipedia.org/wiki/ReactOS)0.4.10。
+- ## 12月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)5.4[FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)12.0。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)4.20。
+# 2019年
+- ## 03月
+	- [iOS12](https://en.wikipedia.org/wiki/IOS_12).2[watchOS5](https://en.wikipedia.org/wiki/WatchOS#watchOS_5.x).2[tvOS](https://en.wikipedia.org/wiki/TvOS)12.2。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.0。
+	- [反应系统](https://en.wikipedia.org/wiki/ReactOS)0.4.11。
+- ## 04月
+	- [Ubuntu19.04](https://en.wikipedia.org/wiki/Ubuntu_19.04)[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))30。
+- ## 05月
+	- [Windows](https://en.wikipedia.org/wiki/Windows_10)2019年5月10日更新（[1903年](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1903))）。
+	- [iOS12](https://en.wikipedia.org/wiki/IOS_12).3[tvOS](https://en.wikipedia.org/wiki/TvOS)12.3。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)6.5[NetBSD](https://en.wikipedia.org/wiki/NetBSD)8.1。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.1[红帽企业Linux](https://en.wikipedia.org/wiki/Red_Hat_Enterprise_Linux)8[openSUSE](https://en.wikipedia.org/wiki/OpenSUSE)Leap15.1。
+- ## 06月
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)5.6。
+	- [SUSELinuxEnterprise](https://en.wikipedia.org/wiki/SUSE_Linux_Enterprise)15SP1。
+	- [IBMi](https://en.wikipedia.org/wiki/IBM_i)7.4。
+- ## 07月
+	- [iOS12](https://en.wikipedia.org/wiki/IOS_12).4[watchOS5](https://en.wikipedia.org/wiki/WatchOS#watchOS_5.x).3[tvOS](https://en.wikipedia.org/wiki/TvOS)12.4。
+	- [Debian](https://en.wikipedia.org/wiki/Debian)10.0[Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.2。
+	- [ArcaOS](https://en.wikipedia.org/wiki/ArcaOS)5.0.4。
+- ## 09月
+	- [iOS13](https://en.wikipedia.org/wiki/IOS_13)[iOS13](https://en.wikipedia.org/wiki/IOS_13).1[iPadOS](https://en.wikipedia.org/wiki/IPadOS)13.1[watchOS6](https://en.wikipedia.org/wiki/WatchOS#watchOS_6.x)[tvOS](https://en.wikipedia.org/wiki/TvOS)13。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.3[安卓](https://en.wikipedia.org/wiki/Android_(operating_system))10.0。
+	- [ReactOS的](https://en.wikipedia.org/wiki/ReactOS)0.4.12。
+- ## 10月
+	- [iOS13](https://en.wikipedia.org/wiki/IOS_13).2[iPadOS](https://en.wikipedia.org/wiki/IPadOS)13.2[watchOS6](https://en.wikipedia.org/wiki/WatchOS#watchOS_6.x).1[macOSCatalina](https://en.wikipedia.org/wiki/MacOS_Catalina)(v10.15)。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)6.6。
+	- [Ubuntu19.10](https://en.wikipedia.org/wiki/Ubuntu_19.10)[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))31。
+- ## 11月
+	- [Windows](https://en.wikipedia.org/wiki/Windows_10)2019年11月10日更新（[1909年](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_1909))）。
+	- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)12.1。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.4。
+- ## 12月
+	- [iOS13](https://en.wikipedia.org/wiki/IOS_13).3[iPadOS](https://en.wikipedia.org/wiki/IPadOS)13.3。
+# 2020年
+- ## 01月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.5。
+- ## 02月
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)9.0。
+- ## 03月
+	- [iOS13](https://en.wikipedia.org/wiki/IOS_13).4[iPadOS](https://en.wikipedia.org/wiki/IPadOS)13.4[watchOS6](https://en.wikipedia.org/wiki/WatchOS#watchOS_6.x).2。
+	- [蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)5.8。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.6。
+- ## 04月
+	- [Ubuntu20.04](https://en.wikipedia.org/wiki/Ubuntu_20.04)[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))32。
+	- [ReactOS的](https://en.wikipedia.org/wiki/ReactOS)0.4.13。
+- ## 05月
+	- [Windows](https://en.wikipedia.org/wiki/Windows_10)2020年5月10日更新（[2004年](https://en.wikipedia.org/wiki/Windows_10_version_history_(version_2004))）。
+	- [iOS13](https://en.wikipedia.org/wiki/IOS_13).5[iPadOS](https://en.wikipedia.org/wiki/IPadOS)13.5。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)6.7。
+	- [OpenVMS](https://en.wikipedia.org/wiki/OpenVMS)9.0。
+- ## 06月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.7。
+	- [ArcaOS](https://en.wikipedia.org/wiki/ArcaOS)5.0.5[俳句](https://en.wikipedia.org/wiki/Haiku_(operating_system))R1/beta2。
+- ## 07月
+	- [iOS13](https://en.wikipedia.org/wiki/IOS_13).6[iPadOS](https://en.wikipedia.org/wiki/IPadOS)13.6。
+- ## 08月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.8。
+	- [ArcaOS](https://en.wikipedia.org/wiki/ArcaOS)5.0.6。
+- ## 09月
+	- [iOS13](https://en.wikipedia.org/wiki/IOS_13).7[iOS14](https://en.wikipedia.org/wiki/IOS_14)。
+	- [安卓11](https://en.wikipedia.org/wiki/Android_11)。
+- ## 10月
+	- [Windows](https://en.wikipedia.org/wiki/Windows_10)2020年10月10日更新（[20H2](https://en.wikipedia.org/wiki/Windows_10_20H2)）。
+	- [iOS14](https://en.wikipedia.org/wiki/IOS_14).1。
+	- [NetBSD](https://en.wikipedia.org/wiki/NetBSD)9.1[OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)6.8[FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)12.2。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.9[Fedora](https://en.wikipedia.org/wiki/Fedora_(operating_system))33[Ubuntu20.10](https://en.wikipedia.org/wiki/Ubuntu_20.10)。
+- ## 11月
+	- [macOSBigSur](https://en.wikipedia.org/wiki/MacOS_Big_Sur)(v11.0)。
+- ## 12月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.10。
+# 2021年
+- ## 04月
+	- [FreeBSD](https://en.wikipedia.org/wiki/FreeBSD)13.0。
+	- [软呢帽](https://en.wikipedia.org/wiki/Fedora_(operating_system))34。
+- ## 05月
+	- [Windows](https://en.wikipedia.org/wiki/Windows_10)2021年5月10日更新（[21H1](https://en.wikipedia.org/wiki/Windows_10_21H1)）。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)6.9[蜻蜓BSD](https://en.wikipedia.org/wiki/DragonFly_BSD)6.0[NetBSD](https://en.wikipedia.org/wiki/NetBSD)9.2。
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.12[Ubuntu21.04](https://en.wikipedia.org/wiki/Ubuntu_21.04)。
+- ## 06月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.13。
+- ## 08月
+	- [Linux](https://en.wikipedia.org/wiki/Linux_kernel)5.14[Debian](https://en.wikipedia.org/wiki/Debian)11.0。
+- ## 09月
+	- [iOS15](https://en.wikipedia.org/wiki/IOS_15)。
+- ## 10月
+	- [视窗11](https://en.wikipedia.org/wiki/Windows_11)。
+	- [OpenBSD](https://en.wikipedia.org/wiki/OpenBSD)7.0。
+	- [安卓12](https://en.wikipedia.org/wiki/Android_12),[Ubuntu21.10](https://en.wikipedia.org/wiki/Ubuntu_21.10)。

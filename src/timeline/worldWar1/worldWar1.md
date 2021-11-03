@@ -1,0 +1,1483 @@
+# 1914年
+- ## 6月
+	- ### 28日
+		- 奥匈帝国王位继承人[奥地利大公弗朗茨·斐迪南](https://en.wikipedia.org/wiki/Assassination_of_Archduke_Franz_Ferdinand_of_Austria)被暗杀，他和他的妻子[苏菲公爵夫人](https://en.wikipedia.org/wiki/Sophie,_Duchess_of_Hohenberg)在[萨拉热窝](https://en.wikipedia.org/wiki/Sarajevo)被波斯尼亚塞尔维亚人[加夫里洛·普林西普](https://en.wikipedia.org/wiki/Gavrilo_Princip)杀害。([详情](https://en.wikipedia.org/wiki/Assassination_in_Sarajevo))。
+- ## 7月
+	- ### 5日
+		- 在俄罗斯军国主义的情况下，奥匈帝国寻求德国支持对塞尔维亚的战争。[德国](https://en.wikipedia.org/wiki/German_Empire)保证提供支持。
+	- ### 23日
+		- “黑色周”开始。奥匈帝国向[塞尔维亚](https://en.wikipedia.org/wiki/Kingdom_of_Serbia)发出最后通牒。塞尔维亚当晚作出回应，同意最后通牒的大部分但不是所有条款。德皇认为塞尔维亚的反应令人满意，但德国外交官并没有向奥地利施压以求和。([详情](https://en.wikipedia.org/wiki/July_Ultimatum))。
+	- ### 24日
+		- 塞尔维亚动员，预计奥地利在拒绝最后通牒后宣战。
+	- ### 25日
+		- 奥地利出动。俄罗斯进入备战时期（部分动员）。
+	- ### 28日
+		- [奥匈帝国](https://en.wikipedia.org/wiki/Austria-Hungary)对塞尔维亚宣战。([详情](https://en.wikipedia.org/wiki/To_my_peoples))。
+	- ### 29日
+		- 德国皇帝威廉二世和俄国[沙皇尼古拉二世](https://en.wikipedia.org/wiki/Czar_Nicholas_II)通过电报进行交流。
+	- ### 30日
+		- 德国向俄罗斯发出最后通牒。
+	- ### 31日
+		- 俄罗斯动员起来进行战争。
+- ## 8月
+	- ### 1日
+		- 德国向[俄罗斯](https://en.wikipedia.org/wiki/Russian_Empire)宣战并动员起来。
+		- [法国](https://en.wikipedia.org/wiki/French_Third_Republic)出动。
+		- [意大利](https://en.wikipedia.org/wiki/Kingdom_of_Italy)宣布中立。
+		- [丹麦](https://en.wikipedia.org/wiki/Denmark)、[瑞典](https://en.wikipedia.org/wiki/Sweden)和[挪威联合](https://en.wikipedia.org/wiki/Norway)宣布中立。
+		- [德国](https://en.wikipedia.org/wiki/German_Empire)与[奥斯曼帝国](https://en.wikipedia.org/wiki/Ottoman_Empire)签订[秘密同盟条约](https://en.wikipedia.org/wiki/Ottoman%E2%80%93German_alliance)。([详情](https://en.wikipedia.org/wiki/Ottoman-German_Alliance))。
+	- ### 2日-26日
+		- 德国围困和捕捉强化[隆维](https://en.wikipedia.org/wiki/Longwy)，“铁门巴黎”，卢森堡边境附近，打开法国大众德国入侵。
+	- ### 2日
+		- 德国入侵[卢森堡](https://en.wikipedia.org/wiki/Luxembourg)。([详情](https://en.wikipedia.org/wiki/German_occupation_of_Luxembourg_in_World_War_I))。
+		- [Joncherey的小规模冲突，](https://en.wikipedia.org/wiki/Skirmish_at_Joncherey)西线的第一次军事行动。([详情](https://en.wikipedia.org/wiki/Skirmish_at_Joncherey))。
+	- ### 3日
+		- [德国](https://en.wikipedia.org/wiki/German_Empire)对[法国](https://en.wikipedia.org/wiki/French_Third_Republic)宣战。 [比利时](https://en.wikipedia.org/wiki/Belgium)拒绝允许德国军队进入法国边境。
+		- [瑞士](https://en.wikipedia.org/wiki/Switzerland)宣布中立，并为防御目的进行动员。
+	- ### 4日-16日
+		- [围攻列日](https://en.wikipedia.org/wiki/Siege_of_Li%C3%A8ge)。德国人围攻并占领了比利时[列日](https://en.wikipedia.org/wiki/Li%C3%A8ge)的堡垒。
+	- ### 4日
+		- [德国入侵比利时](https://en.wikipedia.org/wiki/German_invasion_of_Belgium_(1914))包抄法国军队。([详情](https://en.wikipedia.org/wiki/Rape_of_Belgium))。
+		- 英国抗议违反[伦敦条约所](https://en.wikipedia.org/wiki/Treaty_of_London_(1839))保证的比利时中立，德国总理回答说，该条约只是一张雪纺纸（一张纸片）。在[英国](https://en.wikipedia.org/wiki/United_Kingdom_of_Great_Britain_and_Ireland)宣布对德国宣战。([详情](https://en.wikipedia.org/wiki/History_of_the_United_Kingdom_during_World_War_I#Government))。
+		- 美国宣布中立。
+	- ### 5日
+		- 在打响了第一武器[墨尔本](https://en.wikipedia.org/wiki/Melbourne)，[澳大利亚](https://en.wikipedia.org/wiki/Australia)这是从澳大利亚军队枪杀。
+		- 德国汽船[SS普法尔茨](https://en.wikipedia.org/wiki/SS_Pfalz_(1913))通过在被解雇后自首[堡的Nepean](https://en.wikipedia.org/wiki/Fort_Nepean)，南[墨尔本](https://en.wikipedia.org/wiki/Melbourne)，[澳大利亚](https://en.wikipedia.org/wiki/Australia)（[详细信息](https://en.wikipedia.org/wiki/SS_Pfalz_(1913))）。
+		- [黑山](https://en.wikipedia.org/wiki/Kingdom_of_Montenegro)向[奥匈帝国](https://en.wikipedia.org/wiki/Austria-Hungary)宣战。
+		- 在[奥斯曼帝国](https://en.wikipedia.org/wiki/Ottoman_Empire)关闭[达达尼尔海峡](https://en.wikipedia.org/wiki/Dardanelles)。
+	- ### 6日
+		- [奥匈帝国](https://en.wikipedia.org/wiki/Austria-Hungary)对[俄罗斯](https://en.wikipedia.org/wiki/Russian_Empire)宣战。
+		- [塞尔维亚](https://en.wikipedia.org/wiki/Kingdom_of_Serbia)对[德国宣战](https://en.wikipedia.org/wiki/German_Empire)。
+	- ### 7日-10日
+		- [米卢斯](https://en.wikipedia.org/wiki/Battle_of_Mulhouse)之战，边境之战的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Mulhouse))。
+	- ### 7日
+		- [西班牙](https://en.wikipedia.org/wiki/Spain)宣布“最严格的中立”。([详情](https://en.wikipedia.org/wiki/Spain_during_World_War_I))。
+	- ### 8日
+		- 黑山向[德国宣战](https://en.wikipedia.org/wiki/German_Empire)。
+	- ### 9日
+		- 该[属多哥战役](https://en.wikipedia.org/wiki/Togoland_Campaign)开始。([详情](https://en.wikipedia.org/wiki/Togoland_Campaign))。
+	- ### 11日
+		- 法国对奥匈帝国宣战。
+	- ### 12日
+		- 英国向奥匈帝国宣战。
+		- [哈伦](https://en.wikipedia.org/wiki/Battle_of_Halen)之战，边境之战的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Halen))。
+	- ### 14日-25日
+		- [洛林](https://en.wikipedia.org/wiki/Battle_of_Lorraine)战役，边境战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Lorraine))。
+	- ### 15日
+		- 德国军队进入[英属东非](https://en.wikipedia.org/wiki/British_East_Africa)并占领[塔维塔](https://en.wikipedia.org/wiki/Taveta,_Kenya)。([详情](https://en.wikipedia.org/wiki/German_East_Africa_Campaign))。
+	- ### 16日-20日
+		- 塞尔维亚人在[塞尔战役中](https://en.wikipedia.org/wiki/Battle_of_Cer)击败了奥匈帝国。([详情](https://en.wikipedia.org/wiki/Battle_of_Cer))。
+	- ### 17日
+		- 俄军进入[东普鲁士](https://en.wikipedia.org/wiki/East_Prussia)。([详情](https://en.wikipedia.org/wiki/Battle_of_Stallup%C3%B6nen))。
+	- ### 20日
+		- 德国人在[Gumbinnen战役中](https://en.wikipedia.org/wiki/Battle_of_Gumbinnen)袭击了东普鲁士的俄国人。除了偏离施里芬计划之外，这次攻击也是失败的。([详情](https://en.wikipedia.org/wiki/Battle_of_Gumbinnen))。
+		- 德国人占领[布鲁塞尔](https://en.wikipedia.org/wiki/Brussels)。
+		- [Morhange](https://en.wikipedia.org/wiki/Battle_of_Morhange)战役，洛林战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Morhange))。
+		- [萨尔堡](https://en.wikipedia.org/wiki/Battle_of_Sarrebourg)战役，洛林战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Sarrebourg))。
+	- ### 21日-23日
+		- [阿登](https://en.wikipedia.org/wiki/Battle_of_the_Ardennes)战役，边境战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Ardennes))。
+	- ### 21日
+		- [沙勒罗瓦](https://en.wikipedia.org/wiki/Battle_of_Charleroi)战役，边境战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Charleroi))。
+	- ### 23日-25日
+		- [Kraśnik战役，伦贝格战役的](https://en.wikipedia.org/wiki/Battle_of_Kra%C5%9Bnik)一个阶段。奥匈帝国第一集团军击败俄罗斯第四集团军。([详情](https://en.wikipedia.org/wiki/Battle_of_Kra%C5%9Bnik))。
+	- ### 23日-30日
+		- [坦能堡战役](https://en.wikipedia.org/wiki/Battle_of_Tannenberg)：俄军被德军惨败。
+	- ### 23日
+		- [日本](https://en.wikipedia.org/wiki/Japan)对[德国宣战](https://en.wikipedia.org/wiki/Germany)。([详情](https://en.wikipedia.org/wiki/Japan_during_World_War_I#Events_of_1914))。
+		- [蒙斯](https://en.wikipedia.org/wiki/Battle_of_Mons)之战，边境之战的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Mons))。
+	- ### 24日
+		- [Elouges的行动](https://en.wikipedia.org/wiki/Action_of_Elouges)。
+		- [Mortagne](https://en.wikipedia.org/wiki/Battle_of_the_Mortagne)之战，洛林战役的一个阶段。
+	- ### 25日
+		- 日本对奥匈帝国宣战。
+		- [石台](https://en.wikipedia.org/wiki/Kamerun_Campaign)之战：卡梅伦战役开始。
+	- ### 26日-30日
+		- [格尼拉利帕战役，伦贝格战役的](https://en.wikipedia.org/wiki/Battle_of_Gnila_Lipa)一个阶段。
+	- ### 26日-27日
+		- [LeCateau之战](https://en.wikipedia.org/wiki/Battle_of_Le_Cateau)导致盟军撤退。
+	- ### 26日
+		- 英国和法国军队征服了德国在西非的保护国[多哥兰](https://en.wikipedia.org/wiki/Togoland)。(详情)。
+		- [大费特战役](https://en.wikipedia.org/wiki/Battle_of_Le_Grand_Fayt)。
+	- ### 27日
+		- [埃特勒战役](https://en.wikipedia.org/wiki/Battle_of_%C3%89treux)。
+	- ### 28日
+		- 在[皇家海军](https://en.wikipedia.org/wiki/Royal_Navy)赢得了[黑尔戈兰湾的第一次争斗](https://en.wikipedia.org/wiki/First_Battle_of_Heligoland_Bight)在[北海](https://en.wikipedia.org/wiki/North_Sea)。
+		- [奥匈帝国](https://en.wikipedia.org/wiki/Austria-Hungary)对[比利时](https://en.wikipedia.org/wiki/Belgium)宣战。
+	- ### 29日-31日
+		- [第一次加鲁阿战役](https://en.wikipedia.org/wiki/First_Battle_of_Garua)。
+	- ### 29日-30日
+		- [圣昆廷之战](https://en.wikipedia.org/wiki/Battle_of_St._Quentin_(1914))，又称吉斯之战。盟军有序撤退。
+	- ### 30日
+		- [新西兰](https://en.wikipedia.org/wiki/New_Zealand)占据德属萨摩亚（后来的[西萨摩亚](https://en.wikipedia.org/wiki/Western_Samoa)）。([详情](https://en.wikipedia.org/wiki/Fall_of_German_Samoa))。
+- ## 8月7日-9月13日
+	- [边疆之战](https://en.wikipedia.org/wiki/Battle_of_the_Frontiers)。德国人取得了对英国远征军和法国第五集团军的胜利。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Frontiers))。
+- ## 8月23日-9月11日
+	- [伦贝格战役](https://en.wikipedia.org/wiki/Battle_of_Lemberg_(1914))。俄国人夺取[利沃夫](https://en.wikipedia.org/wiki/Lviv)。([详情](https://en.wikipedia.org/wiki/Battle_of_Galicia))。
+- ## 8月24日-9月28日
+	- 盟军[大撤退](https://en.wikipedia.org/wiki/Great_Retreat)到马恩河。
+- ## 8月24日-9月7日
+	- 德国人围攻并占领了莫伯日要塞。([详情](https://en.wikipedia.org/wiki/Siege_of_Maubeuge))。
+- ## 8月26日-9月2日
+	- [科马罗战役，伦贝格战役的](https://en.wikipedia.org/wiki/Battle_of_Komarow_(1914))一部分。([详情](https://en.wikipedia.org/wiki/Battle_of_Komarow_(1914)))。
+- ## 8月27日-11月7日
+	- [青岛之战](https://en.wikipedia.org/wiki/Battle_of_Tsingtao)：英国和日本军队占领的德国受控端口[青啤](https://en.wikipedia.org/wiki/Tsingtao)在[中国](https://en.wikipedia.org/wiki/Republic_of_China_(1912-1949))。
+- ## 9月
+	- ### 1日
+		- [在Néry采取行动](https://en.wikipedia.org/wiki/Action_at_N%C3%A9ry)。
+		- [圣彼得堡](https://en.wikipedia.org/wiki/Saint_Petersburg)更名为彼得格勒，删除了德语单词“Burg”和“Sankt”。
+	- ### 2日-11日
+		- 奥匈帝国在[拉瓦鲁斯卡战役中](https://en.wikipedia.org/wiki/Battle_of_Rava_Russka)失败，这是伦贝格战役的一个阶段。
+	- ### 5日-12日
+		- [第一次马恩河战役](https://en.wikipedia.org/wiki/First_Battle_of_the_Marne)。德军在[巴黎的](https://en.wikipedia.org/wiki/Paris)进攻被阻止，标志着施里[芬计划](https://en.wikipedia.org/wiki/Schlieffen_Plan)的失败。
+		- [乌尔克河](https://en.wikipedia.org/wiki/Battle_of_the_Ourcq)战役，第一次马恩河战役的一个阶段。
+		- [两个莫林之战](https://en.wikipedia.org/wiki/Battle_of_the_Two_Morins)。
+	- ### 5日
+		- 英国[侦察巡洋舰](https://en.wikipedia.org/wiki/Scout_cruiser) [HMSPathfinder](https://en.wikipedia.org/wiki/HMS_Pathfinder_(1904))在苏格兰附近被[U-boat](https://en.wikipedia.org/wiki/U-boat#World_War_I_(1914–1918)) [SMU-21](https://en.wikipedia.org/wiki/SM_U-21_(Germany))击沉。
+	- ### 6日-12日
+		- [圣贡德沼泽](https://en.wikipedia.org/wiki/Battle_of_the_Marshes_of_Saint-Gond)之战，第一次马恩河战役的一个阶段。
+		- [维特里](https://en.wikipedia.org/wiki/Battle_of_Vitry)战役，第一次马恩河战役的一个阶段。
+		- [雷维尼](https://en.wikipedia.org/wiki/Battle_of_Revigny)战役，第一次马恩河战役的一个阶段。
+	- ### 6日
+		- [那空之战](https://en.wikipedia.org/wiki/Battle_of_Nsanakong)。
+	- ### 7日-14日
+		- [第一次马祖里湖战役](https://en.wikipedia.org/wiki/First_Battle_of_the_Masurian_Lakes)：俄军从东普鲁士撤退，伤亡惨重。
+	- ### 7日
+		- [范宁突袭](https://en.wikipedia.org/wiki/Fanning_Raid)。
+	- ### 9日
+		- [TheobaldvonBethmannHollweg](https://en.wikipedia.org/wiki/Theobald_von_Bethmann_Hollweg)阐述了德国的战争目标。([详情](https://en.wikipedia.org/wiki/Septemberprogramm))。
+	- ### 11日
+		- [比塔帕卡之战](https://en.wikipedia.org/wiki/Battle_of_Bita_Paka)。
+	- ### 13日-28日
+		- [埃纳河](https://en.wikipedia.org/wiki/First_Battle_of_the_Aisne)的第一次战役以大平局告终。在[比赛进行到海](https://en.wikipedia.org/wiki/Race_to_the_Sea)开始。
+	- ### 13日
+		- 来自[南非的](https://en.wikipedia.org/wiki/South_Africa)军队开始入侵[德国西南非洲](https://en.wikipedia.org/wiki/German_South-West_Africa)。([详情](https://en.wikipedia.org/wiki/South-West_Africa_Campaign))。
+	- ### 14日-17日
+		- [托马之围](https://en.wikipedia.org/wiki/Siege_of_Toma)。大多数在[新几内亚的](https://en.wikipedia.org/wiki/German_New_Guinea)德国军队当时或次年向澳大利亚人投降。
+	- ### 14日
+		- [埃里希·冯·法金汉](https://en.wikipedia.org/wiki/Erich_von_Falkenhayn)替换[赫尔穆特·毛奇](https://en.wikipedia.org/wiki/Helmuth_von_Moltke_the_Younger)为参谋长德国首席雅戈尔。
+	- ### 15日
+		- [布尔人](https://en.wikipedia.org/wiki/Boer)领袖[马尼·马里茨](https://en.wikipedia.org/wiki/Manie_Maritz)在南非起义。([详情](https://en.wikipedia.org/wiki/Maritz_rebellion))。
+	- ### 20日
+		- [桑给巴尔](https://en.wikipedia.org/wiki/Battle_of_Zanzibar)海战，德国海军胜利。
+	- ### 22日-26日
+		- [第一次皮卡第战役](https://en.wikipedia.org/wiki/First_Battle_of_Picardy)。
+	- ### 22日
+		- [轰炸帕皮提](https://en.wikipedia.org/wiki/Bombardment_of_Papeete)。
+		- 德国[轻巡洋舰](https://en.wikipedia.org/wiki/Light_cruiser) [埃姆登](https://en.wikipedia.org/wiki/SMS_Emden_(1908))攻击[马德拉斯](https://en.wikipedia.org/wiki/Madras)。([详情](https://en.wikipedia.org/wiki/Bombardment_of_Madras))。
+	- ### 24日
+		- 在[普热梅希尔的围攻](https://en.wikipedia.org/wiki/Siege_of_Przemy%C5%9Bl)开始。
+	- ### 25日-29日
+		- [第一次阿尔伯特战役](https://en.wikipedia.org/wiki/Battle_of_Albert_(1914))。
+	- ### 26日
+		- [桑方丹战役](https://en.wikipedia.org/wiki/Battle_of_Sandfontein)。
+	- ### 29日-30日
+		- 日本占领[马绍尔群岛](https://en.wikipedia.org/wiki/Marshall_Islands)。
+- ## 9月6日-10月4日
+	- [德里纳之战](https://en.wikipedia.org/wiki/Battle_of_Drina)。
+- ## 9月19日-10月11日
+	- [弗莱里之战](https://en.wikipedia.org/wiki/Battle_of_Flirey)。
+- ## 9月28日-10月10日
+	- 德国人围攻并占领了[比利时安特卫普](https://en.wikipedia.org/wiki/Antwerp)。([详情](https://en.wikipedia.org/wiki/Siege_of_Antwerp_(1914)))。
+- ## 9月29日-10月31日
+	- [维斯瓦河战役](https://en.wikipedia.org/wiki/Battle_of_the_Vistula_River)，又称华沙战役。
+- ## 10月
+	- ### 1日-4日
+		- [第一次阿拉斯战役](https://en.wikipedia.org/wiki/Battle_of_Arras_(1914))。
+	- ### 16日-31日
+		- [伊瑟尔之战](https://en.wikipedia.org/wiki/Battle_of_the_Yser)。法国和比利时军队保护了比利时的海岸线。
+	- ### 28日
+		- [槟城之战](https://en.wikipedia.org/wiki/Battle_of_Penang)。德国巡洋舰埃姆登号在[马六甲海峡](https://en.wikipedia.org/wiki/Strait_of_Malacca)击沉两艘英国军舰。
+	- ### 29日
+		- [黑海突袭](https://en.wikipedia.org/wiki/Black_Sea_Raid)。奥斯曼帝国军舰轰炸了俄罗斯的[敖德萨](https://en.wikipedia.org/wiki/Odessa)和[塞瓦斯托波尔](https://en.wikipedia.org/wiki/Sevastopol)港口。
+- ## 10月9日-11月1日
+	- 中央权力控制贝尔格莱德。([详情](https://en.wikipedia.org/wiki/Belgrade#World_War_I))。
+- ## 10月10日-11月2日
+	- [拉巴塞战役](https://en.wikipedia.org/wiki/Battle_of_La_Bassee)。
+- ## 10月12日-11月2日
+	- [第一次墨西尼战役](https://en.wikipedia.org/wiki/Battle_of_Messines_(1914))。
+- ## 10月13日-11月2日
+	- [阿蒙蒂埃斯之战](https://en.wikipedia.org/wiki/Battle_of_Armentieres)。
+- ## 10月19日-11月22日
+	- [伊普尔](https://en.wikipedia.org/wiki/First_Battle_of_Ypres)的第一次战役结束[了出海竞赛](https://en.wikipedia.org/wiki/Race_to_the_Sea)。德国人被阻止到达加[来](https://en.wikipedia.org/wiki/Calais)和[敦刻尔克](https://en.wikipedia.org/wiki/Dunkirk)。
+- ## 11月
+	- ### 1日
+		- [俄罗斯](https://en.wikipedia.org/wiki/Russia)对[奥斯曼帝国宣战](https://en.wikipedia.org/wiki/Ottoman_Empire)。
+		- [科罗内尔之战](https://en.wikipedia.org/wiki/Battle_of_Coronel)。冯·施佩的德国巡洋舰中队击败下皇家海军中队[克里斯托弗·克拉多克](https://en.wikipedia.org/wiki/Christopher_Cradock)关闭[智利](https://en.wikipedia.org/wiki/Chile)。
+	- ### 2日-16日
+		- [伯格曼攻势](https://en.wikipedia.org/wiki/Bergmann_Offensive)，第一次世界大战[高加索地区](https://en.wikipedia.org/wiki/Caucasus)的首次军事交战。
+	- ### 2日
+		- 在[英国](https://en.wikipedia.org/wiki/United_Kingdom)开始的海上封锁[德国](https://en.wikipedia.org/wiki/Germany)。([详情](https://en.wikipedia.org/wiki/First_Battle_of_the_Atlantic))。
+		- 塞尔维亚向奥斯曼帝国宣战。
+	- ### 3日-5日
+		- 冯·莱托-福尔贝克(VonLettow-Vorbeck)的德国殖民军队在德属东非[的坦噶战役中](https://en.wikipedia.org/wiki/Battle_of_Tanga)击败了英国人。
+	- ### 3日
+		- [黑山](https://en.wikipedia.org/wiki/Montenegro)向奥斯曼帝国宣战。
+		- [乞力马扎罗山之战](https://en.wikipedia.org/wiki/Battle_of_Kilimanjaro)。
+	- ### 5日
+		- 法国和英国向奥斯曼帝国宣战。
+	- ### 6日
+		- [法奥登陆](https://en.wikipedia.org/wiki/Fao_Landing)，英国人和印度人围攻法奥要塞。
+	- ### 7日
+		- 日军攻占[青岛](https://en.wikipedia.org/wiki/Tsingtao)海军基地。([详情](https://en.wikipedia.org/wiki/Siege_of_Tsingtao))。
+	- ### 11日-21日
+		- [巴士拉之战](https://en.wikipedia.org/wiki/Battle_of_Basra_(1914))。
+	- ### 11日
+		- [苏丹穆罕默德五世](https://en.wikipedia.org/wiki/Sultan_Mehmed_V)对盟国宣布[圣战](https://en.wikipedia.org/wiki/Jihad)。(详情)。
+	- ### 13日
+		- 埃尔赫里之战：法国在[摩洛哥](https://en.wikipedia.org/wiki/Morocco)最惨败于[Zayanes](https://en.wikipedia.org/wiki/Zaian_War)之手。
+	- ### 19日
+		- [国家杜马的](https://en.wikipedia.org/wiki/State_Duma_(Russian_Empire))布尔什维克代表被捕并流放到[西伯利亚](https://en.wikipedia.org/wiki/Siberia)。
+	- ### 23日
+		- [巴士拉](https://en.wikipedia.org/wiki/Basra)被[英国](https://en.wikipedia.org/wiki/United_Kingdom)占领。
+- ## 11月11日-12月6日
+	- [罗兹战役](https://en.wikipedia.org/wiki/Battle_of_%C5%81%C3%B3d%C5%BA_(1914))（也称为[西里西亚攻势](https://en.wikipedia.org/wiki/Silesian_Offensive)）。
+- ## 11月16日-12月15日
+	- [科卢巴拉战役](https://en.wikipedia.org/wiki/Battle_of_Kolubara)，奥匈帝国撤出塞尔维亚。
+- ## 12月
+	- ### 1日-13日
+		- [利马诺瓦战役](https://en.wikipedia.org/wiki/Battle_of_Limanowa)。
+	- ### 3日-9日
+		- [古尔纳之战](https://en.wikipedia.org/wiki/Battle_of_Qurna)。
+	- ### 8日
+		- [福克兰群岛海战](https://en.wikipedia.org/wiki/Battle_of_the_Falkland_Islands)。冯·斯佩的德国巡洋舰中队被[皇家海军](https://en.wikipedia.org/wiki/Royal_Navy)击败。
+	- ### 10日
+		- [60山](https://en.wikipedia.org/wiki/Battle_of_Hill_60_(Western_Front))被德军占领。
+	- ### 14日
+		- 奥斯曼帝国占领[波斯](https://en.wikipedia.org/wiki/Persia)边境城镇[Qotur](https://en.wikipedia.org/wiki/Qotur)作为通往高加索的桥头堡，但在他们在萨里卡米什失败后撤退。([详情](https://en.wikipedia.org/wiki/Persian_campaign_(World_War_I)))。
+	- ### 16日
+		- 德国舰队炮击[斯卡伯勒](https://en.wikipedia.org/wiki/Scarborough,_North_Yorkshire)、[哈特尔普尔](https://en.wikipedia.org/wiki/Hartlepool)和[惠特比](https://en.wikipedia.org/wiki/Whitby) [英格兰](https://en.wikipedia.org/wiki/England)。([详情](https://en.wikipedia.org/wiki/Raid_on_Scarborough,_Hartlepool_and_Whitby))。
+	- ### 18日-22日
+		- [纪梵希之战](https://en.wikipedia.org/wiki/Battle_of_Givenchy)。
+	- ### 20日
+		- 战斗在[珀斯](https://en.wikipedia.org/wiki/Perthes,_Ardennes)开始。
+	- ### 22日
+		- 战斗从[诺永](https://en.wikipedia.org/wiki/Noyon)开始。([详情](https://en.wikipedia.org/wiki/First_Battle_of_Champagne))。
+	- ### 24日-25日
+		- 在西线的某些地区，德国和英国军队之间举行了非正式的[圣诞节休战](https://en.wikipedia.org/wiki/Christmas_truce)。
+# 1915年
+- ## 1月
+	- ### 2日
+		- 俄罗斯在[喀尔巴阡山脉的](https://en.wikipedia.org/wiki/Carpathians)攻势开始了。它将持续到4月12日。
+	- ### 4日-11日
+		- 奥斯曼人出其不意地占领了[乌尔米亚](https://en.wikipedia.org/wiki/Urmia)和[大不里士](https://en.wikipedia.org/wiki/Tabriz)。
+	- ### 8日
+		- 日本试图将其[二十一条要求](https://en.wikipedia.org/wiki/Twenty-One_Demands)强加于中立的中国。
+	- ### 18日-19日
+		- [茉莉之战](https://en.wikipedia.org/wiki/Battle_of_Jassin)。
+	- ### 24日-26日
+		- 由约翰·奇姆布韦在[尼亚萨兰](https://en.wikipedia.org/wiki/Nyasaland)领导的奇姆布韦起义。
+	- ### 24日
+		- 英国大舰队和德国Hochseeflotte的中队之间的DoggerBank之战。
+	- ### 30日
+		- 俄罗斯人占领了大不里士。
+	- ### 31日
+		- [波利莫夫战役](https://en.wikipedia.org/wiki/Battle_of_Bolimov)。德国首先使用[化学武器](https://en.wikipedia.org/wiki/Poison_gas_in_World_War_I)。
+- ## 1月19日-12月22日
+	- [Hartmannswillerkopf之战，](https://en.wikipedia.org/wiki/Battle_of_Hartmannswillerkopf)为控制巅峰而进行的一系列战斗。
+- ## 1月28日-2月3日
+	- 奥斯曼无法捕捉到[苏伊士运河](https://en.wikipedia.org/wiki/Suez_Canal)在[第一苏伊士攻势](https://en.wikipedia.org/wiki/First_Suez_Offensive)。
+- ## 2月
+	- ### 4日
+		- [德国](https://en.wikipedia.org/wiki/Germany)开始对商船进行[无限制潜艇战](https://en.wikipedia.org/wiki/Atlantic_U-boat_Campaign_(World_War_I))。
+		- [扬·肯普](https://en.wikipedia.org/wiki/Jan_Kemp_(general))投降。[马里茨叛乱](https://en.wikipedia.org/wiki/Maritz_Rebellion)结束。
+		- [卡卡马斯战役](https://en.wikipedia.org/wiki/Battle_of_Kakamas)：德国入侵南非被击退。
+	- ### 7日-22日
+		- [第二次马祖里湖之战](https://en.wikipedia.org/wiki/Second_Battle_of_the_Masurian_Lakes)。俄罗斯X军被击败。
+	- ### 15日
+		- 新加坡军队叛变英国。
+	- ### 19日
+		- 英法海军进攻[达达尼尔海峡](https://en.wikipedia.org/w/index.php?titleNaval_operations_in_the_Dardanelles&actionedit&redlink1)。[加里波利战役](https://en.wikipedia.org/wiki/Gallipoli_Campaign)开始。
+- ## 3月
+	- ### 5日
+		- 英国和法国向俄罗斯承诺[君士坦丁堡](https://en.wikipedia.org/wiki/Constantinople)。
+	- ### 7日
+		- 在俄罗斯反攻的推动下，奥斯曼帝国撤退到库图尔。
+	- ### 14日
+		- [MásaTierra之战](https://en.wikipedia.org/wiki/Battle_of_M%C3%A1s_a_Tierra)。[德国东亚分舰队](https://en.wikipedia.org/wiki/German_East_Asia_Squadron)的最后一支残部被击沉，其船员被拘留在中立国[智利](https://en.wikipedia.org/wiki/Chile)。
+	- ### 18日
+		- 3月18日的战斗。英法试图逼迫[达达尼尔海峡](https://en.wikipedia.org/wiki/Naval_operations_in_the_Dardanelles_Campaign)失败，损失了3艘前无畏舰。
+	- ### 22日
+		- [Przemyśl](https://en.wikipedia.org/wiki/Siege_of_Przemy%C5%9Bl)之围结束。俄国人占领了堡垒。
+- ## 3月10日-3月13日
+	- [新教堂之战](https://en.wikipedia.org/wiki/Battle_of_Neuve_Chapelle)。在初步成功后，英国的进攻停止了。
+- ## 4月
+	- ### 12日-14日
+		- [沙巴之战](https://en.wikipedia.org/wiki/Battle_of_Shaiba)。
+	- ### 15日
+		- [迪尔曼之战](https://en.wikipedia.org/wiki/Battle_of_Dilman)。
+	- ### 22日-23日
+		- [Gravenstafel战役，](https://en.wikipedia.org/wiki/Battle_of_Gravenstafel)第二次伊普尔战役的第一阶段。
+	- ### 24日
+		- [亚美尼亚知识分子](https://en.wikipedia.org/wiki/Deportation_of_Armenian_intellectuals_on_24_April_1915)被驱逐到[安卡拉](https://en.wikipedia.org/wiki/Ankara)，这是[亚美尼亚种族灭绝的](https://en.wikipedia.org/wiki/Armenian_genocide)第一幕。
+	- ### 25日
+		- 盟军登陆加里波利，登陆[阿里伯努](https://en.wikipedia.org/wiki/Ari_Burnu)，很快更名为安扎克湾和[海勒斯角](https://en.wikipedia.org/wiki/Cape_Helles)。([详情](https://en.wikipedia.org/wiki/Battle_of_Gallipoli#Invasion))。
+	- ### 26日
+		- 协约国和[意大利](https://en.wikipedia.org/wiki/Italy)之间的伦敦条约。
+		- [Trekkopjes之战](https://en.wikipedia.org/wiki/Battle_of_Trekkopjes)。
+	- ### 28日
+		- [第一次克里西亚战役](https://en.wikipedia.org/wiki/First_Battle_of_Krithia)。盟军的进攻被击退。
+	- ### 29日
+		- [古林之战](https://en.wikipedia.org/wiki/Battle_of_Gurin)。
+- ## 4月5日-5月5日
+	- [Woevre的第一次战斗](https://en.wikipedia.org/wiki/First_Battle_of_Woevre)。
+- ## 4月19日-5月17日
+	- 奥斯曼帝国围攻亚美尼亚城市[凡](https://en.wikipedia.org/wiki/Defense_of_Van_(1915))。
+- ## 4月22日-5月25日
+	- 在[伊普尔第二次争斗](https://en.wikipedia.org/wiki/Second_Battle_of_Ypres)，处于胶着状态，其结束。[德国](https://en.wikipedia.org/wiki/Germany)首先使用[毒气](https://en.wikipedia.org/wiki/Poison_gas)。
+- ## 4月24日-5月5日
+	- [圣朱利安](https://en.wikipedia.org/wiki/Battle_of_St_Julien)战役，第二次伊普尔战役的一部分。
+- ## 5月
+	- ### 1日
+		- 该[戈尔利采-塔尔努夫进攻](https://en.wikipedia.org/wiki/Gorlice-Tarn%C3%B3w_Offensive)开始：一般马肯森下破德国军队通过俄罗斯线[加利西亚](https://en.wikipedia.org/wiki/Kingdom_of_Galicia_and_Lodomeria)。
+		- [老Hissarlik](https://en.wikipedia.org/wiki/Eski_Hissarlik)之战。
+	- ### 3日
+		- 军队从[AnzacCove](https://en.wikipedia.org/wiki/Landing_at_Anzac_Cove)撤退。
+		- 意大利取消了与德国和奥匈帝国[结成防御联盟的](https://en.wikipedia.org/wiki/Triple_Alliance_(1882))承诺。
+	- ### 5日-25日
+		- [费斯图伯特战役](https://en.wikipedia.org/wiki/Battle_of_Festubert)。
+	- ### 6日-8日
+		- [第二次克里西亚战役](https://en.wikipedia.org/wiki/Second_Battle_of_Krithia)。盟军的推进尝试再次受阻。
+	- ### 7日
+		- 英国班轮[Lusitania](https://en.wikipedia.org/wiki/RMS_Lusitania)被一艘德国U艇击沉。
+	- ### 8日-13日
+		- [FrezenbergRidge](https://en.wikipedia.org/wiki/Battle_of_Frezenberg)战役，第二次伊普尔战役的一部分。
+	- ### 9日
+		- [奥伯斯岭战役，](https://en.wikipedia.org/wiki/Battle_of_Aubers_Ridge)第二次阿图瓦战役的一个阶段。
+	- ### 10日
+		- 来自[匈牙利的](https://en.wikipedia.org/wiki/Hungary)军队在[雅罗斯瓦夫](https://en.wikipedia.org/wiki/Jaros%C5%82aw)击溃了俄国人。利沃夫再次落入奥地利手中。
+	- ### 11日
+		- 停战协定呼吁加里波利埋葬死者。([详情](https://en.wikipedia.org/wiki/Landing_at_Anzac_Cove))。
+	- ### 12日
+		- [温得和克](https://en.wikipedia.org/wiki/Windhoek)，德属西南非洲的首都，被[南非](https://en.wikipedia.org/wiki/South_Africa)军队占领。
+	- ### 23日
+		- [意大利](https://en.wikipedia.org/wiki/Italy)对[奥匈帝国](https://en.wikipedia.org/wiki/Austria-Hungary)宣战。([详情](https://en.wikipedia.org/wiki/Italy_during_World_War_I#From_neutrality_to_the_intervention_in_the_war))。
+	- ### 24日-25日
+		- [贝勒瓦尔德战役，](https://en.wikipedia.org/wiki/Battle_of_Bellewaarde)第二次伊普尔战役的最后阶段。
+- ## 5月9日-6月18日
+	- [第二次阿图瓦战役](https://en.wikipedia.org/wiki/Second_Battle_of_Artois)。
+- ## 5月16日-6月23日
+	- [科纳利之战](https://en.wikipedia.org/wiki/Battle_of_Konary)。
+- ## 5月31日-6月10日
+	- [第二次加鲁阿战役](https://en.wikipedia.org/wiki/Second_Battle_of_Garua)。
+- ## 6月
+	- ### 4日
+		- [第三次克里西亚战役](https://en.wikipedia.org/wiki/Third_Battle_of_Krithia)。又一次盟军失败。
+		- 俄国人离开[Przemyśl](https://en.wikipedia.org/wiki/Przemy%C5%9Bl)。([详情](https://en.wikipedia.org/wiki/Gorlice-Tarn%C3%B3w_Offensive))。
+	- ### 21日-23日
+		- [布科巴战役](https://en.wikipedia.org/wiki/Battle_of_Bukoba)。
+	- ### 22日
+		- 马肯森在[利沃夫](https://en.wikipedia.org/wiki/Lviv)地区再次突破俄罗斯防线。([详情](https://en.wikipedia.org/wiki/Gorlice-Tarn%C3%B3w_Offensive))。
+	- ### 27日
+		- 奥匈帝国重新进入利沃夫。([详情](https://en.wikipedia.org/wiki/Gorlice-Tarn%C3%B3w_Offensive))。
+	- ### 29日
+		- [恩冈德雷之战](https://en.wikipedia.org/wiki/Battle_of_Ngaundere)。
+- ## 6月-9月
+	- 在[俄罗斯大撤退](https://en.wikipedia.org/wiki/Great_Retreat_(Russian))来自波兰和加利西亚。
+- ## 6月23日-7月7日
+	- [伊松佐河的第一次战役](https://en.wikipedia.org/wiki/First_Battle_of_the_Isonzo)。
+- ## 6月28日-7月5日
+	- 英国赢得了[沟壑之战](https://en.wikipedia.org/wiki/Battle_of_Gully_Ravine)。
+- ## 7月
+	- ### 1日
+		- 同步武装战斗机的首次空中胜利​​（[详情](https://en.wikipedia.org/wiki/Synchronization_gear#The_Fokker_Stangensteuerung_gear)）。
+		- [奥塔维之战](https://en.wikipedia.org/wiki/Battle_of_Otavi)。
+	- ### 9日
+		- [西南非洲](https://en.wikipedia.org/wiki/South-West_Africa)的德军投降。
+	- ### 10日-26日
+		- [曼齐克特战役](https://en.wikipedia.org/wiki/Battle_of_Manzikert_(1915))。
+	- ### 25日
+		- 意大利人占领了卡布乔伍德。([详情](https://en.wikipedia.org/wiki/Second_Battle_of_the_Isonzo#The_battle))。
+		- 授予英国战斗飞行员的第一个[维多利亚十字](https://en.wikipedia.org/wiki/Victoria_Cross)勋章（[详情](https://en.wikipedia.org/wiki/Lanoe_Hawker#Victoria_Cross)）。
+	- ### 27日-31日
+		- [卡拉基利斯之战](https://en.wikipedia.org/wiki/Battle_of_Kara_Killisse_(1915))。
+- ## 7月18日-8月3日
+	- [伊松佐河的第二次战役](https://en.wikipedia.org/wiki/Second_Battle_of_the_Isonzo)。
+- ## 8月
+	- ### 5日
+		- 德国人占领[华沙](https://en.wikipedia.org/wiki/Warsaw)。([详情](https://en.wikipedia.org/wiki/Gorlice-Tarn%C3%B3w_Offensive))。
+	- ### 6日-21日
+		- [萨里拜尔战役，](https://en.wikipedia.org/wiki/Battle_of_Sari_Bair)八月攻势的一部分。英国夺取[加里波利](https://en.wikipedia.org/wiki/Gallipoli)半岛的最后一次失败尝试。
+	- ### 6日-15日
+		- 盟军[登陆苏夫拉湾](https://en.wikipedia.org/wiki/Landing_at_Suvla_Bay)，这是八月攻势的一个阶段。
+	- ### 6日-13日
+		- [克里西亚葡萄园之战，](https://en.wikipedia.org/wiki/Battle_of_Krithia_Vineyard)八月攻势的一部分。
+	- ### 6日-10日
+		- [孤松之战，](https://en.wikipedia.org/wiki/Battle_of_Lone_Pine)八月攻势的一部分。
+	- ### 7日-19日
+		- [丘努克拜尔战役，](https://en.wikipedia.org/wiki/Battle_of_Chunuk_Bair)八月攻势的一个阶段。
+	- ### 7日
+		- [内克战役，](https://en.wikipedia.org/wiki/Battle_of_the_Nek)八月攻势的一个阶段。
+	- ### 19日
+		- 一艘德国U-Boat沉没了班轮[SS阿拉伯号(1902)](https://en.wikipedia.org/wiki/SS_Arabic_(1902))。44人死亡，其中包括3名美国人。
+	- ### 21日-29日
+		- [60山之战，](https://en.wikipedia.org/wiki/Battle_of_Hill_60_(Gallipoli))八月攻势的一部分。
+	- ### 21日
+		- [弯刀山](https://en.wikipedia.org/wiki/Scimitar_Hill)，八月攻势的一个阶段。
+		- 意大利向奥斯曼帝国宣战。
+- ## 8月26日-9月19日
+	- [Sventiany攻势](https://en.wikipedia.org/wiki/Sventiany_Offensive)，Gorlice-Tarnow攻势的一个阶段。
+- ## 9月
+	- ### 1日
+		- [德国](https://en.wikipedia.org/wiki/Germany)暂停无限制潜艇战。([详情](https://en.wikipedia.org/wiki/First_Battle_of_the_Atlantic))。
+	- ### 5日
+		- [尼古拉斯二世](https://en.wikipedia.org/wiki/Nicholas_II)免去[尼古拉斯·尼古拉耶维奇大公](https://en.wikipedia.org/wiki/Grand_Duke_Nicholas_Nikolaevich_of_Russia_(1856-1929))担任俄罗斯陆军总司令的职务，亲自担任该职位。
+	- ### 5日-8日
+		- 该[尔瓦尔德会议](https://en.wikipedia.org/wiki/Zimmerwald_Conference)反军国主义的欧洲社会党在举行[尔瓦尔德](https://en.wikipedia.org/wiki/Zimmerwald)，[瑞士](https://en.wikipedia.org/wiki/Switzerland)。
+	- ### 19日
+		- 德国人占领[维尔纽斯](https://en.wikipedia.org/wiki/Vilnius)。[Gorlice-Tarnów攻势](https://en.wikipedia.org/wiki/The_Gorlice-Tarn%C3%B3w_Offensive)结束。
+	- ### 25日-28日
+		- [卢斯战役是](https://en.wikipedia.org/wiki/Battle_of_Loos)英国的一次重大攻势，失败了。
+	- ### 28日
+		- [EsSinn之战](https://en.wikipedia.org/wiki/Battle_of_Es_Sinn)。
+- ## 9月15日-11月4日
+	- [第三次阿图瓦战役](https://en.wikipedia.org/wiki/Third_Battle_of_Artois)。
+- ## 9月25日-11月6日
+	- [第二次香槟之战](https://en.wikipedia.org/wiki/Second_Battle_of_Champagne)。
+- ## 9月25日-10月15日
+	- [霍亨索伦堡垒](https://en.wikipedia.org/wiki/Battle_of_the_Hohenzollern_Redoubt)之战，卢斯战役的一个阶段。
+- ## 10月
+	- ### 3日
+		- 盟军在希腊的[萨洛尼卡](https://en.wikipedia.org/wiki/Salonika)登陆部队以援助塞尔维亚。
+	- ### 12日
+		- [伊迪丝·卡维尔](https://en.wikipedia.org/wiki/Edith_Cavell)被处决。
+	- ### 14日
+		- [保加利亚](https://en.wikipedia.org/wiki/Bulgaria)对塞尔维亚宣战([详情](https://en.wikipedia.org/wiki/Bulgaria_during_World_War_I#Bulgaria_enters_the_war))。
+	- ### 15日
+		- 在[英国](https://en.wikipedia.org/wiki/United_Kingdom)宣布保加利亚战争。
+		- 黑山向保加利亚宣战。
+	- ### 16日
+		- [法国](https://en.wikipedia.org/wiki/France)对保加利亚宣战。
+	- ### 19日
+		- [意大利](https://en.wikipedia.org/wiki/Italy)和[俄罗斯](https://en.wikipedia.org/wiki/Russia)对保加利亚宣战。
+	- ### 27日
+		- [安德鲁·费舍尔](https://en.wikipedia.org/wiki/Andrew_Fisher)辞去[澳大利亚总理职务](https://en.wikipedia.org/wiki/Prime_Minister_of_Australia)；他被[比利休斯](https://en.wikipedia.org/wiki/Billy_Hughes)取代。
+	- ### 29日
+		- [勒内·维维亚尼](https://en.wikipedia.org/wiki/Ren%C3%A9_Viviani)辞去[法国总理职务](https://en.wikipedia.org/wiki/Prime_Minister_of_France)；他被[阿里斯蒂德·布里安德](https://en.wikipedia.org/wiki/Aristide_Briand)取代。
+- ## 10月-7月11日
+	- [鲁菲吉三角洲战役](https://en.wikipedia.org/wiki/Battle_of_Rufiji_Delta)，德国巡洋舰[柯尼斯堡号](https://en.wikipedia.org/wiki/SMS_K%C3%B6nigsberg_(1905))被摧毁。
+- ## 10月7日-12月4日
+	- [塞尔维亚](https://en.wikipedia.org/wiki/Serbia)被[德国](https://en.wikipedia.org/wiki/Germany)、[奥匈帝国](https://en.wikipedia.org/wiki/Austria-Hungary)和[保加利亚](https://en.wikipedia.org/wiki/Bulgaria)入侵。
+- ## 10月14日-11月15日
+	- [OvchePoleOffensive](https://en.wikipedia.org/wiki/Ovche_Pole_Offensive)，一个阶段的同盟国入侵塞尔维亚，保加利亚人突破塞尔维亚防线。
+- ## 10月14日-11月9日
+	- [摩拉瓦攻势](https://en.wikipedia.org/wiki/Morava_Offensive)，中央列强入侵塞尔维亚的一个阶段，保加利亚人突破塞尔维亚防线。
+- ## 10月17日-11月21日
+	- [克里沃拉克战役，](https://en.wikipedia.org/wiki/Battle_of_Krivolak)[萨洛尼卡战线的](https://en.wikipedia.org/wiki/Salonika_Front)第一场。
+- ## 10月18日-11月4日
+	- [第三次伊松佐河战役](https://en.wikipedia.org/wiki/Third_Battle_of_the_Isonzo)。
+- ## 10月19日-7月7日
+	- 德国和葡萄牙军队在[安哥拉](https://en.wikipedia.org/wiki/Portuguese_Angola)\-[纳米比亚](https://en.wikipedia.org/wiki/German_South_West_Africa)边境发生冲突，但没有宣战。([详情](https://en.wikipedia.org/wiki/German_campaign_in_Angola))。
+- ## 11月
+	- ### 4日-6日
+		- [班卓琴之战](https://en.wikipedia.org/wiki/Battle_of_Banjo)。
+	- ### 10日
+		- 亲中央力量伊朗人从亲协约国军队手中夺取[设拉子](https://en.wikipedia.org/wiki/Shiraz)，并逮捕该市所有英国公民。
+	- ### 14日-30日
+		- 来自高加索的俄罗斯军队占领了[德黑兰](https://en.wikipedia.org/wiki/Tehran)。
+	- ### 17日
+		- 在奥斯曼帝国和德国人的武装下，[利比亚的](https://en.wikipedia.org/wiki/Libya) [塞努西人](https://en.wikipedia.org/wiki/Senussi)越过边界，从西部进攻[埃及](https://en.wikipedia.org/wiki/Egypt)。([详情](https://en.wikipedia.org/wiki/Senussi_Campaign#Prelude))。
+	- ### 22日-25日
+		- [Ctesiphon之战](https://en.wikipedia.org/wiki/Battle_of_Ctesiphon_(1915))，在今天的[伊拉克](https://en.wikipedia.org/wiki/Iraq)。
+	- ### 27日
+		- 塞尔维亚军队崩溃。它将撤退到[亚得里亚海](https://en.wikipedia.org/wiki/Adriatic_Sea)，并由意大利和法国海军撤离。([详情](https://en.wikipedia.org/wiki/Serbian_army%27s_retreat_through_Albania))。
+- ## 11月10日-12月4日
+	- [科索沃攻势](https://en.wikipedia.org/wiki/Kosovo_Offensive_(1915))，是同盟国入侵塞尔维亚的一个阶段，塞尔维亚人被推入阿尔巴尼亚。
+- ## 11月10日-12月2日
+	- [第四次伊松佐战役](https://en.wikipedia.org/wiki/Fourth_Battle_of_the_Isonzo)。
+- ## 12月
+	- ### 6日-12日
+		- [科斯图里诺战役](https://en.wikipedia.org/wiki/Battle_of_Kosturino)。
+	- ### 7日
+		- 奥斯曼帝国对美索不[达米亚库特](https://en.wikipedia.org/wiki/Siege_of_Kut)的第一次围攻开始了。
+	- ### 15日
+		- 俄罗斯人占领[哈马丹](https://en.wikipedia.org/wiki/Hamadan)。
+	- ### 18日
+		- [加里波利](https://en.wikipedia.org/wiki/Gallipoli)撤离、奥斯曼帝国的重大胜利和“盟军的灾难”。
+	- ### 19日
+		- [DouglasHaig](https://en.wikipedia.org/wiki/Douglas_Haig)接替[JohnFrench](https://en.wikipedia.org/wiki/John_French,_1st_Earl_of_Ypres)成为[英国远征军司令](https://en.wikipedia.org/wiki/British_Expeditionary_Force_(World_War_I))。
+	- ### 20日-17日
+		- [第一次香槟之战](https://en.wikipedia.org/wiki/First_Battle_of_Champagne)。
+	- ### 22日
+	- ### 23日
+		- 卡尔·齐默尔曼(CarlZimmermann)下令将Kamerun的所有德国军队和平民撤退到西班牙的[RíoMuni](https://en.wikipedia.org/wiki/R%C3%ADo_Muni)殖民地。
+- ## 12月17日-1月13日
+	- [第一次阿图瓦之战](https://en.wikipedia.org/wiki/First_Battle_of_Artois)。
+- ## 12月25日-1月18日
+	- [阿尔达罕之战](https://en.wikipedia.org/wiki/Battle_of_Ardahan)。
+# 1916年
+- ## 1月
+	- ### 5日-17日
+		- [奥匈帝国](https://en.wikipedia.org/wiki/Austro-Hungarian)对[黑山的](https://en.wikipedia.org/wiki/Montenegro)攻势，它投降了。([详情](https://en.wikipedia.org/wiki/Montenegrin_Campaign_(World_War_I)))。
+	- ### 6日-8日
+		- [谢赫萨阿德](https://en.wikipedia.org/wiki/Battle_of_Sheikh_Sa%27ad)之战，库特第一次围城战的一个阶段。
+	- ### 6日-7日
+		- [莫伊科瓦茨之战](https://en.wikipedia.org/wiki/Battle_of_Mojkovac)。
+	- ### 9日
+		- [加里波利战役](https://en.wikipedia.org/wiki/Gallipoli_Campaign)以盟军的失败和奥斯曼帝国的胜利告终。([详情](https://en.wikipedia.org/wiki/Battle_of_Gallipoli))。
+	- ### 11日
+		- [科孚岛](https://en.wikipedia.org/wiki/Corfu)被盟军占领。([详情](https://en.wikipedia.org/wiki/Corfu))。
+	- ### 13日
+		- 瓦迪之战，库特第一次围城战的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Wadi_(1916)))。
+	- ### 21日
+		- [汉纳](https://en.wikipedia.org/wiki/Battle_of_Hanna)之战，库特第一次围城战的一个阶段。
+	- ### 24日
+		- [ReinhardScheer](https://en.wikipedia.org/wiki/Reinhard_Scheer)被任命为德国的Hochseeflotte的指挥官。([详情](https://en.wikipedia.org/wiki/Reinhard_Scheer))。
+	- ### 27日
+		- [1916年兵役法](https://en.wikipedia.org/wiki/Military_Service_Act_1916)在英国引入了征兵制度。([详情](https://en.wikipedia.org/wiki/Military_service#United_Kingdom))。
+- ## 1月10日-2月16日
+	- [埃尔祖鲁姆战役](https://en.wikipedia.org/wiki/Battle_of_Erzurum_(1916))。
+- ## 2月
+	- ### 12日
+		- [萨拉塔山之战](https://en.wikipedia.org/wiki/Battle_of_Salaita_Hill)。
+	- ### 21日
+		- 在[凡尔登战役](https://en.wikipedia.org/wiki/Battle_of_Verdun)开始。
+	- ### 26日
+		- [阿加吉亚之战](https://en.wikipedia.org/wiki/Battle_of_Agagia)：[塞努西](https://en.wikipedia.org/wiki/Senussi)叛乱被英国镇压。
+	- ### 28日
+		- 德国卡梅伦（喀麦隆）投降。([详情](https://en.wikipedia.org/wiki/Kamerun_Campaign))。
+- ## 2月5日-4月15日
+	- [特拉比松战役](https://en.wikipedia.org/wiki/Trebizond_Campaign)。
+- ## 3月
+	- ### 1日-15日
+		- [伊松佐河第五次战役](https://en.wikipedia.org/wiki/Fifth_Battle_of_the_Isonzo)。
+	- ### 1日
+		- [德国](https://en.wikipedia.org/wiki/Germany)恢复无限制潜艇战。([详情](https://en.wikipedia.org/wiki/First_Battle_of_the_Atlantic))。
+	- ### 8日
+		- [杜贾伊拉战役](https://en.wikipedia.org/wiki/Battle_of_Dujaila)：英国试图解救库特失败。([详情](https://en.wikipedia.org/wiki/Battle_of_Dujaila))。
+	- ### 9日
+		- [德国](https://en.wikipedia.org/wiki/Germany)对[葡萄牙](https://en.wikipedia.org/wiki/Portugal)宣战。葡萄牙正式参战。([详情](https://en.wikipedia.org/wiki/Portugal_during_World_War_I))。
+	- ### 11日-12日
+		- [拉特玛内克战役](https://en.wikipedia.org/wiki/Battle_of_Latema_Nek)。
+	- ### 14日
+		- 在[十六的宣言](https://en.wikipedia.org/wiki/Manifesto_of_the_Sixteen)，宣告[Kropotkinist](https://en.wikipedia.org/wiki/Kropotkinist)\-anarchist支持联盟的战争努力，出版。([详情](https://en.wikipedia.org/wiki/Manifesto_of_the_Sixteen))。
+	- ### 15日
+		- 奥匈帝国对葡萄牙宣战。
+	- ### 18日
+		- [卡赫之战](https://en.wikipedia.org/wiki/Battle_of_Kahe)。
+- ## 3月2日-8月4日
+	- [比特利斯之战](https://en.wikipedia.org/wiki/Battle_of_Bitlis)。
+- ## 3月16日-11月6日
+	- 英国先发制人地占领了[达尔富尔苏丹国，](https://en.wikipedia.org/wiki/Sultanate_of_Darfur)并将其[并入英埃苏丹](https://en.wikipedia.org/wiki/Anglo-Egyptian_Sudan)。([详情](https://en.wikipedia.org/wiki/Anglo_Egyptian_Darfur_Expedition))。
+- ## 4月
+	- ### 24日-30日
+		- 该[Kienthal会议](https://en.wikipedia.org/wiki/Kienthal_Conference)，反战社会主义的第二次会议[尔瓦尔德运动](https://en.wikipedia.org/wiki/Zimmerwald_Movement)，在举行[Kienthal](https://en.wikipedia.org/wiki/Kienthal)，[瑞士](https://en.wikipedia.org/wiki/Switzerland)。([详情](https://en.wikipedia.org/wiki/Kienthal_Conference))。
+	- ### 24日-29日
+		- [复活节起义](https://en.wikipedia.org/wiki/Easter_Rising)由[爱尔兰](https://en.wikipedia.org/wiki/Irish_people)从独立叛军[英国](https://en.wikipedia.org/wiki/United_Kingdom)。([详情](https://en.wikipedia.org/wiki/Easter_Rising))。
+	- ### 27日-29日
+		- [毒气袭击Hulluch](https://en.wikipedia.org/wiki/Gas_attacks_at_Hulluch)。
+	- ### 29日
+		- 围困库特的英军向奥斯曼人投降，第一次库特之围结束。([详情](https://en.wikipedia.org/wiki/Siege_of_Kut))。
+- ## 5月
+	- ### 7日-10日
+		- [孔多阿伊拉吉战役](https://en.wikipedia.org/wiki/Battle_of_Kondoa_Irangi)。
+	- ### 10日
+		- 德国暂停无限制潜艇战。([详情](https://en.wikipedia.org/wiki/First_Battle_of_the_Atlantic))。
+	- ### 16日
+		- 英国和法国签署了[赛克斯-皮科协定](https://en.wikipedia.org/wiki/Sykes-Picot_Agreement)，确定了他们在中东的拟议范围。([详情](https://en.wikipedia.org/wiki/Sykes-Picot_Agreement))。
+	- ### 18日
+		- 波斯的俄军与[美索不达米亚](https://en.wikipedia.org/wiki/Mesopotamia)的英军会合，但为时已晚。([详情](https://en.wikipedia.org/wiki/Persian_campaign_(World_War_I)))。
+- ## 5月15日-6月10日
+	-  特伦蒂诺的奥匈帝国Strafexpedition。([详情](https://en.wikipedia.org/wiki/Battle_of_Asiago))。
+- ## 5月31日-6月1日
+	- 英国的大舰队和德国的Hochseeflotte之间的日德兰海战。([详情](https://en.wikipedia.org/wiki/Battle_of_Jutland))。
+- ## 6月
+	- ### 2日-14日
+		- [蒙特索雷尔战役](https://en.wikipedia.org/wiki/Battle_of_Mont_Sorrel)。
+	- ### 3日
+		- 俄罗斯人未能在波斯包围奥斯曼军队。([详情](https://en.wikipedia.org/wiki/Persian_campaign_(World_War_I)))。
+	- ### 4日
+		- 该[勃鲁西洛夫攻势](https://en.wikipedia.org/wiki/Brusilov_Offensive)开始。
+	- ### 5日
+		- [汉志](https://en.wikipedia.org/wiki/Hejaz)的阿拉伯起义开始了。([详情](https://en.wikipedia.org/wiki/Arab_Revolt))。
+		- [HMSHampshire](https://en.wikipedia.org/wiki/HMS_Hampshire_(1903))在[奥克尼群岛](https://en.wikipedia.org/wiki/Orkney_Islands)沉没；[基奇纳勋爵](https://en.wikipedia.org/wiki/Herbert_Kitchener,_1st_Earl_Kitchener)去世。([详情](https://en.wikipedia.org/wiki/HMS_Hampshire_(1903)))。
+	- ### 8日
+		- 在[亚得里亚海](https://en.wikipedia.org/wiki/Adriatic_Sea)，意大利军舰[SSPrincipeUmberto](https://en.wikipedia.org/wiki/SS_Principe_Umberto)被一艘奥匈帝国潜艇击沉。这是战争中最致命的沉没，有1,900人丧生。
+	- ### 10日
+		- [意大利](https://en.wikipedia.org/wiki/Italy)：[保罗·博塞利](https://en.wikipedia.org/wiki/Paolo_Boselli)接替[安东尼奥·萨兰德拉](https://en.wikipedia.org/wiki/Antonio_Salandra)出任[总理](https://en.wikipedia.org/wiki/Prime_Minister)。([详情](https://en.wikipedia.org/wiki/Paolo_Boselli))。
+		- 在[麦地那的围攻](https://en.wikipedia.org/wiki/Siege_of_Medina)开始。
+	- ### 12日
+		- [珀西·塞克斯](https://en.wikipedia.org/wiki/Percy_Sykes)就游行[克尔曼](https://en.wikipedia.org/wiki/Kerman)与俄罗斯军队在波斯中北部连接起来。
+	- ### 30日
+		- [野猪头](https://en.wikipedia.org/wiki/Battle_of_the_Boar%27s_Head)之战，从第二天开始的索姆河战役中转移。
+- ## 6月10日-7月4日
+	- 麦加之战，阿拉伯人攻占该城。([详情](https://en.wikipedia.org/wiki/Battle_of_Mecca_(1916)))。
+- ## 7月
+	- 塔伊夫之战。([详情](https://en.wikipedia.org/wiki/Battle_of_Taif_(1916)))。
+	- ### 1日-2日
+		- 英国在第二次阿尔伯特战役中占领弗里库尔。([详情](https://en.wikipedia.org/wiki/Capture_of_Fricourt))。
+	- ### 1日-13日
+		- 第二次阿尔伯特战役（索姆河战役的开始阶段）。([详情](https://en.wikipedia.org/wiki/Battle_of_Albert_(1916)))。
+	- ### 1日-3日
+		- 在[社会民主党](https://en.wikipedia.org/wiki/Social_Democratic_Party_of_Finland)赢得多数的俄罗斯人统治的议会[芬兰大公国](https://en.wikipedia.org/wiki/Grand_Duchy_of_Finland)。([详情](https://en.wikipedia.org/wiki/1916_Finnish_parliamentary_election))。
+	- ### 1日
+		- 在[索姆河战役](https://en.wikipedia.org/wiki/Battle_of_the_Somme)开始。([详情](https://en.wikipedia.org/wiki/First_day_on_the_Somme))。
+	- ### 2日-25日
+		- [埃尔津坎之战](https://en.wikipedia.org/wiki/Battle_of_Erzincan)。
+	- ### 2日
+		- 奥斯曼对波斯的反击[传到了克尔曼沙赫](https://en.wikipedia.org/wiki/Kermanshah)。([详情](https://en.wikipedia.org/wiki/Persian_campaign_(World_War_I)))。
+	- ### 3日-17日
+		- 英国在第二次阿尔伯特战役和巴赞丁岭战役期间俘虏了奥维尔。([详情](https://en.wikipedia.org/wiki/Battle_of_Albert_(1916)#Ovillers))。
+	- ### 3日-12日
+		- 英国在第二次阿尔伯特战役中俘获了马梅兹伍德。([详情](https://en.wikipedia.org/wiki/Battle_of_Albert_(1916)#Mametz_Wood))。
+	- ### 3日-7日
+		- 英国在第二次阿尔伯特战役中占领了拉布瓦塞尔。([详情](https://en.wikipedia.org/wiki/Battle_of_Albert_(1916)#La_Boisselle))。
+	- ### 4日-6日
+		- [Kostiuchnowka战役](https://en.wikipedia.org/wiki/Battle_of_Kostiuchnowka)。
+	- ### 7日-11日
+		- 英国在第二次阿尔伯特战役中俘虏康塔尔梅松。([详情](https://en.wikipedia.org/wiki/Battle_of_Albert_(1916)#Contalmaison))。
+	- ### 8日-14日
+		- 英国在第二次阿尔伯特战役中占领了特龙斯伍德。([详情](https://en.wikipedia.org/wiki/Capture_of_Tr%C3%B4nes_Wood))。
+	- ### 14日-17日
+		- [巴赞丁岭](https://en.wikipedia.org/wiki/Battle_of_Bazentin_Ridge)战役（索姆河战役初期）（[详情](https://en.wikipedia.org/wiki/Battle_of_Bazentin_Ridge)）。
+	- ### 19日-20日
+		- [弗罗梅尔](https://en.wikipedia.org/wiki/Battle_of_Fromelles)战役（索姆河战役的初始阶段）。
+	- ### 30日
+		- 德国特工破坏[泽西城](https://en.wikipedia.org/wiki/Jersey_City)为盟军供应军火的工厂，导致[黑汤姆爆炸](https://en.wikipedia.org/wiki/Black_Tom_explosion)。
+- ## 7月14日-9月15日
+	- Longuevaland[DelvilleWood](https://en.wikipedia.org/wiki/Battle_of_Delville_Wood)之战（索姆河战役的初始阶段）（[详情](https://en.wikipedia.org/wiki/Battle_of_Delville_Wood)）。
+- ## 7月23日-8月7日
+	- [波济耶尔](https://en.wikipedia.org/wiki/Battle_of_Pozi%C3%A8res)战役（索姆河战役初期）（[详情](https://en.wikipedia.org/wiki/Battle_of_Pozi%C3%A8res)）。
+- ## 7月24日-8月8日
+	- [科维尔战役](https://en.wikipedia.org/wiki/Battle_of_Kowel)。
+- ## 8月
+	- ### 3日-5日
+		- [罗姆人之战](https://en.wikipedia.org/wiki/Battle_of_Romani)。奥斯曼帝国在[西奈半岛](https://en.wikipedia.org/wiki/Sinai_peninsula)进攻英国失败。([详情](https://en.wikipedia.org/wiki/Battle_of_Romani))。
+	- ### 6日
+		- [多贝尔多战役，伊松佐](https://en.wikipedia.org/wiki/Battle_of_Doberdo)第六次战役的一部分。
+	- ### 6日-17日
+		- [伊松佐河第六次战役](https://en.wikipedia.org/wiki/Sixth_Battle_of_the_Isonzo)。意大利人占领[戈里齐亚](https://en.wikipedia.org/wiki/Gorizia)（8月9日）。([详情](https://en.wikipedia.org/wiki/Sixth_Battle_of_the_Isonzo))。
+	- ### 9日-18日
+		- 多伊兰之战。([详情](https://en.wikipedia.org/wiki/Battle_of_Doiran_(1916)))。
+	- ### 10日
+		- 奥斯曼占领哈马丹。([详情](https://en.wikipedia.org/wiki/Persian_campaign_(World_War_I)))。
+	- ### 24日
+		- [姆拉利之战](https://en.wikipedia.org/wiki/Battle_of_Mlali)。
+	- ### 27日
+		- [罗马尼亚](https://en.wikipedia.org/wiki/Romania)站在协约国一方参战。她的军队在几周内就被击败了。
+	- ### 28日
+		- [意大利](https://en.wikipedia.org/wiki/Italy)对[德国宣战](https://en.wikipedia.org/wiki/Germany)。
+	- ### 29日
+		- [保罗·冯·兴登堡](https://en.wikipedia.org/wiki/Paul_von_Hindenburg)接替[埃里希·冯·法尔肯海恩](https://en.wikipedia.org/wiki/Erich_von_Falkenhayn)担任德国参谋长。([详情](https://en.wikipedia.org/wiki/Paul_von_Hindenburg))。
+	- ### 30日
+		- 奥斯曼帝国向罗马尼亚宣战。
+- ## 8月26日-2月18日
+	- [摩拉之围](https://en.wikipedia.org/wiki/Siege_of_Mora)。
+- ## 8月27日-11月26日
+	- [特兰西瓦尼亚战役，](https://en.wikipedia.org/wiki/Battle_of_Transylvania)征服罗马尼亚的一个阶段。
+- ## 9月
+	- ### 1日
+		- 保加利亚对罗马尼亚宣战。
+	- ### 2日-6日
+		- [图尔图卡亚战役，](https://en.wikipedia.org/wiki/Battle_of_Turtucaia)征服罗马尼亚的一个阶段。
+	- ### 3日-6日
+		- [吉列蒙](https://en.wikipedia.org/wiki/Battle_of_Guillemont)战役（索姆河战役的中间阶段）（[详情](https://en.wikipedia.org/wiki/Battle_of_Guillemont)）。
+	- ### 5日-7日
+		- [多布里奇战役，](https://en.wikipedia.org/wiki/Battle_of_Dobrich)征服罗马尼亚的一个阶段。
+	- ### 6日
+		- 在[同盟国](https://en.wikipedia.org/wiki/Central_Powers)建立统一指挥。
+	- ### 7日-11日
+		- [木崎之战](https://en.wikipedia.org/wiki/Battle_of_Kisaki)。
+	- ### 8日-19日
+		- [塔博拉之战](https://en.wikipedia.org/wiki/Battle_of_Tabora)。
+	- ### 9日-11日
+		- [杜图米之战](https://en.wikipedia.org/wiki/Battle_of_Dutumi)。
+	- ### 9日
+		- [金奇](https://en.wikipedia.org/wiki/Battle_of_Ginchy)之战（索姆河之战的中间阶段）（[详情](https://en.wikipedia.org/wiki/Battle_of_Ginchy)）。
+	- ### 12日-30日
+		- [Kaymakchalan战役，](https://en.wikipedia.org/wiki/Battle_of_Kaymakchalan)莫纳斯提尔攻势的一个阶段。
+	- ### 12日-14日
+		- [MalkaNidzhe战役，](https://en.wikipedia.org/wiki/Battle_of_Malka_Nidzhe)[莫纳斯提尔攻势的](https://en.wikipedia.org/wiki/Monastir_Offensive)一个阶段。
+	- ### 14日-17日
+		- [伊松佐河第七次战役](https://en.wikipedia.org/wiki/Seventh_Battle_of_the_Isonzo)。
+	- ### 15日-22日
+		- [弗勒斯-库尔塞莱特之战](https://en.wikipedia.org/wiki/Battle_of_Flers-Courcelette)；英国人在历史上第一次使用[装甲坦克](https://en.wikipedia.org/wiki/Tanks_in_World_War_I)。([详情](https://en.wikipedia.org/wiki/Battle_of_Flers-Courcelette))。
+	- ### 17日-19日
+		- [第一次科巴丁战役，](https://en.wikipedia.org/wiki/First_Battle_of_Cobadin)征服罗马尼亚的一个阶段。
+	- ### 20日
+		- 该[勃鲁西洛夫攻势](https://en.wikipedia.org/wiki/Brusilov_Offensive)还大量俄罗斯成功结束。([详情](https://en.wikipedia.org/wiki/Brusilov_Offensive))。
+	- ### 25日-28日
+		- [莫瓦尔](https://en.wikipedia.org/wiki/Battle_of_Morval)战役（索姆河战役最后阶段的一部分）（[详情](https://en.wikipedia.org/wiki/Battle_of_Morval)）。
+	- ### 26日-28日
+		- [ThiepvalRidge](https://en.wikipedia.org/wiki/Battle_of_Thiepval_Ridge)之战（索姆河战役最后阶段的一部分）（[详情](https://en.wikipedia.org/wiki/Battle_of_Thiepval_Ridge)）。
+- ## 9月12日-12月11日
+	- [莫纳斯提尔攻势](https://en.wikipedia.org/wiki/Monastir_Offensive)，成立[萨洛尼卡前线](https://en.wikipedia.org/wiki/Salonika_Front)。
+- ## 9月29日-10月5日
+	- [弗拉曼达攻势](https://en.wikipedia.org/wiki/Flamanda_Offensive)，征服罗马尼亚的一个阶段。
+- ## 10月
+	- ### 9日-12日
+		- [伊松佐河第八次战役](https://en.wikipedia.org/wiki/Eighth_Battle_of_the_Isonzo)。
+	- ### 19日-25日
+		- [第二次科巴丁战役，](https://en.wikipedia.org/wiki/Second_Battle_of_Cobadin)征服罗马尼亚的一个阶段。
+	- ### 24日
+		- 法国人夺回凡尔登附近的[杜奥蒙堡](https://en.wikipedia.org/wiki/Fort_Douaumont)。(详情)。
+- ## 10月1日-11月11日
+	- [安克雷高地](https://en.wikipedia.org/wiki/Battle_of_Ancre_Heights)战役（索姆河战役的最后阶段）。
+- ## 10月1日-11月5日
+	- [LeTransloy](https://en.wikipedia.org/wiki/Battle_of_Le_Transloy)战役（索姆河战役的最后阶段）（[详情](https://en.wikipedia.org/wiki/Battle_of_Le_Transloy)）。
+- ## 10月-11月
+	- 塞尔纳弯的第一次战役，莫纳斯提尔攻势的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Cerna_Bend_(1916)))。
+- ## 11月
+	- ### 1日-4日
+		- [伊松佐河第九次战役](https://en.wikipedia.org/wiki/Ninth_Battle_of_the_Isonzo)。
+	- ### 11日
+		- [马塔蒙多战役](https://en.wikipedia.org/wiki/Battle_of_Matamondo)。
+	- ### 13日-18日
+		- [安克雷](https://en.wikipedia.org/wiki/Battle_of_the_Ancre)战役（索姆河战役结束阶段）（[详情](https://en.wikipedia.org/wiki/Battle_of_the_Ancre)）。
+	- ### 18日
+		- 在[索姆河战役](https://en.wikipedia.org/wiki/Battle_of_the_Somme)具有巨大的人员伤亡和英法的优势结束。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Somme_(1916)))。
+	- ### 21日
+		- [HMHSBritannic](https://en.wikipedia.org/wiki/HMHS_Britannic)在击中德国矿山后沉没（[详情](https://en.wikipedia.org/wiki/HMHS_Britannic)）。
+		- 奥地利皇帝、匈牙利国王弗朗西斯·约瑟夫一世逝世，查理一世继位。（[详情](https://en.wikipedia.org/wiki/Francis_Joseph_I_of_Austria)）。
+	- ### 25日
+		- [DavidBeatty](https://en.wikipedia.org/wiki/David_Beatty,_1st_Earl_Beatty)接替[JohnJellicoe](https://en.wikipedia.org/wiki/John_Jellicoe,_1st_Earl_Jellicoe)担任大舰队司令。杰利科成为第一任海洋领主。([详情](https://en.wikipedia.org/wiki/John_Jellicoe,_1st_Earl_Jellicoe))。
+	- ### 28日
+		- [普鲁纳鲁冲锋](https://en.wikipedia.org/wiki/Prunaru_Charge)，布加勒斯特战役的一个阶段，罗马尼亚骑兵拼命冲入敌阵。
+- ## 11月25日-12月3日
+	- [布加勒斯特战役，](https://en.wikipedia.org/wiki/Battle_of_Bucharest)征服罗马尼亚的一个阶段。
+- ## 12月
+	- ### 1日
+		- [阿尔热](https://en.wikipedia.org/wiki/Battle_of_the_Arges)战役，布加勒斯特战役的一个阶段。
+	- ### 3日-6日
+		- 在1916年12月3日至6日为期四天的危机中，[HHAsquith](https://en.wikipedia.org/wiki/H._H._Asquith)不知道他失去支持的速度有多快。[DavidLloydGeorge](https://en.wikipedia.org/wiki/David_Lloyd_George)现在得到了工会主义者的支持、工党的支持以及（感谢[ChristopherAddison](https://en.wikipedia.org/wiki/Christopher_Addison,_1st_Viscount_Addison)）大多数自由党议员的支持。阿斯奎斯倒下。([详情](https://en.wikipedia.org/wiki/H._H._Asquith))。
+	- ### 6日
+		- 德国人占领了[布加勒斯特](https://en.wikipedia.org/wiki/Bucharest)。[罗马尼亚](https://en.wikipedia.org/wiki/Romania)首都迁往[雅西](https://en.wikipedia.org/wiki/Ia%C5%9Fi)。([详情](https://en.wikipedia.org/wiki/Ia%C5%9Fi))。
+	- ### 7日-31日
+		- 新首相劳合乔治回应了对一个更加果断的政府的强烈要求。他大力成立了一个新的小型战争内阁，[莫里斯·汉基](https://en.wikipedia.org/wiki/Maurice_Hankey)（MauriceHankey）领导下的内阁秘书处，“花园郊区”的私人顾问秘书处，并转向总理控制。([详情](https://en.wikipedia.org/wiki/David_Lloyd_George))。
+	- ### 13日
+		- [罗伯特尼韦勒](https://en.wikipedia.org/wiki/Robert_Nivelle)取代[约瑟夫·霞飞](https://en.wikipedia.org/wiki/Joseph_Joffre)为统帅的法国军队。([详情](https://en.wikipedia.org/wiki/Robert_Nivelle))。
+	- ### 17日
+		- [高岑起义](https://en.wikipedia.org/wiki/Kaocen_Revolt)：[图阿雷格人](https://en.wikipedia.org/wiki/Tuareg)围攻[阿加德兹](https://en.wikipedia.org/wiki/Agadez)的法国驻军。
+	- ### 18日
+		- [凡尔登战役以](https://en.wikipedia.org/wiki/Battle_of_Verdun)双方伤亡惨重而告终。
+	- ### 23日-29日
+		- [圣诞大战](https://en.wikipedia.org/wiki/Christmas_Battles)。
+	- ### 23日
+		- 西奈半岛的马格达巴战役。([详情](https://en.wikipedia.org/wiki/Battle_of_Magdhaba))。
+	- ### 27日
+		- [多哥兰](https://en.wikipedia.org/wiki/Togoland)分为英法行政区。([详情](https://en.wikipedia.org/wiki/Togoland))。
+	- ### 30日
+		- [格里高利·拉斯普京](https://en.wikipedia.org/wiki/Grigori_Rasputin)，俄罗斯的[杰出人物](https://en.wikipedia.org/wiki/%C3%89minence_grise)，被暗杀了。([详情](https://en.wikipedia.org/wiki/Grigori_Rasputin))。
+- ## 12月-7月
+	- [坦噶尼喀湖之战](https://en.wikipedia.org/wiki/Battle_of_Lake_Tanganyika)。
+# 1917年
+- ## 1月
+	- ### 3日-4日
+		- [贝霍贝霍之战](https://en.wikipedia.org/wiki/Battle_of_Behobeho)。
+	- ### 9日
+		- [拉法之战](https://en.wikipedia.org/wiki/Battle_of_Rafa)。英国人将奥斯曼帝国赶出西奈半岛。([详情](https://en.wikipedia.org/wiki/Battle_of_Rafa))。
+	- ### 16日
+		- 德国外交大臣[亚瑟·齐默尔曼（ArthurZimmermann）](https://en.wikipedia.org/wiki/Arthur_Zimmermann)给他的驻墨西哥大使发了一封电报，指示他向墨西哥政府提议与美国结盟。([详情](https://en.wikipedia.org/wiki/Zimmermann_Telegram))。
+- ## 1月11日-3月13日
+	- 英国人袭击了安克雷。([详情](https://en.wikipedia.org/wiki/Operations_on_the_Ancre,_January%E2%80%93March_1917))。
+- ## 2月
+	- ### 1日
+		- 德国恢复无限制潜艇战。([详情](https://en.wikipedia.org/wiki/First_Battle_of_the_Atlantic))。
+	- ### 3日
+		- SSHousatonic一艘从[德克萨斯州加尔维斯顿](https://en.wikipedia.org/wiki/Galveston,_Texas)运送小麦到[英国](https://en.wikipedia.org/wiki/England)的美国轮船被一艘U型船击沉。
+	- ### 13日
+		- [MataHari](https://en.wikipedia.org/wiki/Mata_Hari)在[巴黎](https://en.wikipedia.org/wiki/Paris)被捕，罪名是为德国人从事间谍活动。
+	- ### 23日
+		- 第二次库特战役。英国人重新夺回了这座城市。([详情](https://en.wikipedia.org/wiki/Second_Battle_of_Kut))。
+- ## 2月23日-4月5日
+	- 德国人撤退到[兴登堡防线](https://en.wikipedia.org/wiki/Hindenburg_Line)。
+- ## 3月
+	- ### 1日
+		- ArzvonStraussenberg接替[ConradvonHötzendorf](https://en.wikipedia.org/wiki/Conrad_von_H%C3%B6tzendorf)担任奥匈帝国参谋长。([详情](https://en.wikipedia.org/wiki/Arz_von_Straussenberg))。
+	- ### 3日
+		- 法国人解救阿加德兹。
+	- ### 8日
+		- 彼得格勒的[国际妇女节](https://en.wikipedia.org/wiki/International_Women%27s_Day)庆祝活动引发了激烈的抗议活动，这些抗议活动将演变为[二月革命](https://en.wikipedia.org/wiki/February_Revolution)。
+	- ### 8日-11日
+		- 英国攻占[巴格达](https://en.wikipedia.org/wiki/Baghdad)。([详情](https://en.wikipedia.org/wiki/Fall_of_Baghdad_(1917)))。
+	- ### 12日
+		- 前一天在彼得格勒的[Znamenskaya广场](https://en.wikipedia.org/wiki/Znamenskaya_Square)有50人被杀后，俄罗斯军队拒绝向示威者开火。对监狱、法院、警察局和[Okhrana](https://en.wikipedia.org/wiki/Okhrana)办公室的多次袭击。杜马临时委员会成立。[彼得格勒苏维埃](https://en.wikipedia.org/wiki/Petrograd_Soviet)成立。
+	- ### 13日
+		- [南班杰之战](https://en.wikipedia.org/wiki/Battle_of_Nambanje)。
+	- ### 14日
+		- [中国](https://en.wikipedia.org/wiki/Republic_of_China_(1912-1949))与德国断绝关系。
+	- ### 15日
+		- [尼古拉二世](https://en.wikipedia.org/wiki/Nicholas_II)退位。一个[临时政府](https://en.wikipedia.org/wiki/Russian_Provisional_Government,_1917)的形成。
+	- ### 16日
+		- [列宁](https://en.wikipedia.org/wiki/Lenin)从[瑞士](https://en.wikipedia.org/wiki/Switzerland)流亡到彼得格勒并发表了他的[四月论文](https://en.wikipedia.org/wiki/April_Thesis)。
+	- ### 17日
+		- [阿里斯蒂德·布里安德](https://en.wikipedia.org/wiki/Aristide_Briand)辞去[法国总理职务](https://en.wikipedia.org/wiki/Prime_Minister_of_France)；他被[亚历山大·里博](https://en.wikipedia.org/wiki/Alexandre_Ribot)取代。
+	- ### 26日
+		- [第一次加沙战役](https://en.wikipedia.org/wiki/First_Battle_of_Gaza)。英国企图占领这座城市失败了。([详情](https://en.wikipedia.org/wiki/First_Battle_of_Gaza))。
+- ## 4月
+	- ### 2日-3日
+		- 澳大利亚人攻击[诺勒伊](https://en.wikipedia.org/wiki/Noreuil)。（[详情](https://en.wikipedia.org/wiki/Noreuil#World_War_One)。）。
+	- ### 6日
+		- 美国对德国宣战。([详情](https://en.wikipedia.org/wiki/American_entry_into_World_War_I))。
+	- ### 7日
+		- [古巴](https://en.wikipedia.org/wiki/Cuba)对德国宣战。
+		- [巴拿马](https://en.wikipedia.org/wiki/Panama)对德国宣战。
+		- 在[关岛](https://en.wikipedia.org/wiki/Guam)击沉短信Cormoran，这是美国和德国军队在太平洋地区唯一的敌对行动。
+	- ### 9日-14日
+		- 第一次斯卡普之战，第二次阿拉斯战役第一阶段的一部分。([详情](https://en.wikipedia.org/wiki/Battle_of_Arras_(1917)#First_phase))。
+	- ### 9日-12日
+		- 加拿大人在维米岭战役中取得了重大胜利，这是第二次阿拉斯战役第一阶段的一部分。([详情](https://en.wikipedia.org/wiki/Battle_of_Vimy_Ridge))。
+	- ### 10日-11日
+		- 第一次布勒考特战役，第二次阿拉斯战役第一阶段的一部分。([详情](https://en.wikipedia.org/wiki/Battle_of_Arras_(1917)#First_phase))。
+	- ### 11日
+		- [巴西](https://en.wikipedia.org/wiki/Brazil)与德国断绝关系。
+	- ### 13日
+		- [玻利维亚](https://en.wikipedia.org/wiki/Bolivia)与德国断交。
+	- ### 15日
+		- 拉格尼古战役，第二次阿拉斯战役第二阶段的一部分。([详情](https://en.wikipedia.org/wiki/Battle_of_Arras_(1917)#Second_phase))。
+	- ### 17日-20日
+		- [山丘之战](https://en.wikipedia.org/wiki/Battle_of_the_Hills)（也称为第三次香槟战役），转移到第二次埃纳河战役。
+	- ### 19日
+		- 第二次加沙战役。奥斯曼防线抵抗了英国的进攻。([详情](https://en.wikipedia.org/wiki/Second_Battle_of_Gaza))。
+	- ### 23日-24日
+		- 第二次斯卡普战役，第二次阿拉斯战役第二阶段的一部分。([详情](https://en.wikipedia.org/wiki/Battle_of_Arras_(1917)#Second_phase))。
+	- ### 23日
+		- 奥斯曼帝国与美国断绝关系。
+	- ### 28日-29日
+		- 阿勒战役，第二次阿拉斯战役第二阶段的一部分。([详情](https://en.wikipedia.org/wiki/Battle_of_Arras_(1917)#Second_phase))。
+- ## 4月-10月
+	- [南巴勒斯坦陷入僵局](https://en.wikipedia.org/wiki/Stalemate_in_Southern_Palestine)。
+- ## 4月9日-5月17日
+	- [第二次阿拉斯战役](https://en.wikipedia.org/wiki/Second_Battle_of_Arras)。英国人在没有获得任何战略突破的情况下攻击了一条戒备森严的德国防线。([详情](https://en.wikipedia.org/wiki/Battle_of_Arras_(1917)))。
+- ## 4月16日-5月9日
+	- 第二次埃纳河战役（也称为尼维尔攻势）以法国军队及其指挥官[罗伯特·尼维尔的](https://en.wikipedia.org/wiki/Robert_Nivelle)灾难告终。([详情](https://en.wikipedia.org/wiki/Second_Battle_of_the_Aisne))。
+- ## 4月22日-5月8日
+	- 第二次多伊兰战役。([详情](https://en.wikipedia.org/wiki/Battle_of_Doiran_(1917)))。
+- ## 4月29日-5月20日
+	- 法国军队的一系列兵变。([详情](https://en.wikipedia.org/wiki/Western_Front_(World_War_I)#French_Morale))。
+- ## 5月
+	- ### 3日-17日
+		- 第二次布勒考特战役，第二次阿拉斯战役第二阶段的一部分。([详情](https://en.wikipedia.org/wiki/Battle_of_Arras_(1917)#Second_phase))。
+	- ### 3日-4日
+		- 斯卡普河第三次战役，第二次阿拉斯战役第二阶段的一部分。([详情](https://en.wikipedia.org/wiki/Battle_of_Arras_(1917)#Second_phase))。
+		- 在彼得格勒和[莫斯科](https://en.wikipedia.org/wiki/Moscow)举行大规模示威活动，抗议[帕维尔·米](https://en.wikipedia.org/wiki/Pavel_Milyukov)留科夫(PavelMilyukov)的[说明，](https://en.wikipedia.org/wiki/Milyukov_note)确认俄罗斯对[协约国](https://en.wikipedia.org/wiki/Triple_Entente)战争努力的承诺。([详情](https://en.wikipedia.org/wiki/April_Crisis))。
+	- ### 5日-9日
+		- 塞尔纳湾第二次战役，盟军春季攻势的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Cerna_Bend_(1917)))。
+	- ### 5日-15日
+		- 盟军在萨洛尼卡前线的春季攻势。
+	- ### 5日
+		- [澳大利亚总理](https://en.wikipedia.org/wiki/Prime_Minister_of_Australia) [比利·休斯](https://en.wikipedia.org/wiki/Billy_Hughes)（BillyHughes）在支持征兵制的[民族主义党的](https://en.wikipedia.org/wiki/Nationalist_Party_of_Australia)联邦选举中赢得了多数席位。([详情](https://en.wikipedia.org/wiki/1917_Australian_federal_election))。
+	- ### 15日
+		- [菲利普·贝当](https://en.wikipedia.org/wiki/Philippe_P%C3%A9tain)取代[罗伯特尼韦勒](https://en.wikipedia.org/wiki/Robert_Nivelle)为统帅的法国军队。([详情](https://en.wikipedia.org/wiki/Philippe_P%C3%A9tain))。
+	- ### 23日
+		- 喀斯特地区赫马达山之战。
+		- [萨洛尼卡审判](https://en.wikipedia.org/wiki/Salonika_Trial)结束：作为与奥匈帝国和平条约谈判的一部分，萨拉热窝暗杀案的主要同谋[德拉古丁·迪米特里耶维奇](https://en.wikipedia.org/wiki/Dragutin_Dimitrijevic)被塞尔维亚以莫须有的罪名判处死刑。
+- ## 5月12日-6月6日
+	- 伊松佐河第十次战役。([详情](https://en.wikipedia.org/wiki/Tenth_Battle_of_the_Isonzo))。
+- ## 6月
+	- ### 7日-14日
+		- 第二次梅辛斯战役，英军布下19个深水[雷](https://en.wikipedia.org/wiki/Mining_(military))，夺回梅辛斯岭。([详情](https://en.wikipedia.org/wiki/Battle_of_Messines_(1917)))。
+	- ### 10日-29日
+		- 奥蒂加拉山战役。([详情](https://en.wikipedia.org/wiki/Battle_of_Mount_Ortigara))。
+	- ### 12日
+		- [希腊君士坦丁一世](https://en.wikipedia.org/wiki/Constantine_I_of_Greece)退位。
+	- ### 13日
+		- 哥达G.IV对伦敦进行了第一次成功的[重型轰炸机](https://en.wikipedia.org/wiki/Heavy_bomber)袭击。
+	- ### 25日
+		- 第一批美军登陆[法国](https://en.wikipedia.org/wiki/France)。([详情](https://en.wikipedia.org/wiki/American_Expeditionary_Force))。
+	- ### 27日
+		- [电池波美拉尼亚](https://en.wikipedia.org/wiki/Batterie_Pommern)又名。“LangeMax”，世界上最大的枪炮首次从[库凯拉尔](https://en.wikipedia.org/wiki/Koekelare)到[敦刻尔克](https://en.wikipedia.org/wiki/Dunkirk)（±50公里）。
+	- ### 30日
+		- [希腊](https://en.wikipedia.org/wiki/Greece)宣布对战争的[同盟国](https://en.wikipedia.org/wiki/Central_powers)。([详情](https://en.wikipedia.org/wiki/Greece_during_World_War_I))。
+- ## 6月-10月
+	- [安静行动](https://en.wikipedia.org/wiki/Operation_Hush)，失败的英国占领比利时海岸的计划。
+- ## 7月
+	- ### 1日-19日
+		- 克伦斯基攻势失败。这是俄罗斯在战争中的最后一项倡议。([详情](https://en.wikipedia.org/wiki/Kerensky_Offensive))。
+	- ### 1日-12日
+		- 中国短暂的君主政变和复辟，据称是德国推动的，目的是使中国与协约国保持距离。([详情](https://en.wikipedia.org/wiki/Manchu_Restoration))。
+	- ### 1日-2日
+		- [兹博罗夫战役，](https://en.wikipedia.org/wiki/Battle_of_Zborov_(1917))克伦斯基攻势的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Zborov_(1917)))。
+	- ### 6日
+		- 以阿拉伯的[劳伦斯](https://en.wikipedia.org/wiki/Lawrence_of_Arabia)为首的阿拉伯叛军夺取了约旦[亚喀巴](https://en.wikipedia.org/wiki/Aqaba)港。([详情](https://en.wikipedia.org/wiki/Battle_of_Aqaba))。
+	- ### 11日
+		- 该公开信伟业我的出版商[佛兰芒运动](https://en.wikipedia.org/wiki/Flemish_Movement)同情者内[比利时军队](https://en.wikipedia.org/wiki/Belgian_Army)的[伊瑟河前](https://en.wikipedia.org/wiki/Yser_Front)，抱怨对官方的歧视[荷兰语](https://en.wikipedia.org/wiki/Dutch_language)（[详细](https://en.wikipedia.org/wiki/Yser_Testament)）。
+	- ### 16日-17日
+		- 彼得格勒[七月天](https://en.wikipedia.org/wiki/July_Days)。
+	- ### 19日
+		- 在[德国国会](https://en.wikipedia.org/wiki/Reichstag_(German_Empire))通过一个和平解决方案。
+	- ### 20日
+		- 关于未来[南斯拉夫王国的](https://en.wikipedia.org/wiki/Kingdom_of_Yugoslavia)科孚宣言。([详情](https://en.wikipedia.org/wiki/Corfu_Declaration))。
+	- ### 21日
+		- [亚历山大·克伦斯基](https://en.wikipedia.org/wiki/Alexander_Kerensky)取代[格奥尔基·利沃夫](https://en.wikipedia.org/wiki/Georgy_Lvov)作为部长，总统[俄国临时政府](https://en.wikipedia.org/wiki/Russian_Provisional_Government)。
+	- ### 22日
+		- [暹](https://en.wikipedia.org/wiki/Siam)罗向德国和奥匈帝国宣战。
+	- ### 29日
+		- 凯威桥之战。
+	- ### 31日
+		- 第三次伊普尔战役（也称为帕尚代尔战役）开始。([详情](https://en.wikipedia.org/wiki/Battle_of_Passchendaele))。
+- ## 7月22日-8月1日
+	- [Mărăști战役](https://en.wikipedia.org/wiki/Battle_of_M%C4%83r%C4%83%C8%99ti)。
+- ## 7月31日-8月2日
+	- [皮尔肯岭战役](https://en.wikipedia.org/wiki/Battle_of_Pilckem_Ridge)（第三次伊普尔战役的开场阶段）。
+- ## 8月
+	- ### 2日-10日
+		- [伦博之战](https://en.wikipedia.org/wiki/Battle_of_Rumbo)。
+	- ### 2日
+		- 德国袭击者[SMSSeeadler](https://en.wikipedia.org/wiki/SMS_Seeadler_(1888))在法属波利尼西亚的[Mopelia](https://en.wikipedia.org/wiki/Maupihaa)失事。
+	- ### 4日
+		- [利比里亚](https://en.wikipedia.org/wiki/Liberia)向德国宣战。
+	- ### 6日-20日
+		- 马拉塞斯蒂战役。([详情](https://en.wikipedia.org/wiki/Battle_of_M%C4%83r%C4%83%C5%9Fe%C5%9Fti))。
+	- ### 8日-22日
+		- [第三次奥图兹战役](https://en.wikipedia.org/wiki/Third_Battle_of_Oituz)。
+	- ### 14日
+		- 中国对德国和奥匈帝国宣战。
+	- ### 15日-25日
+		- [70山之战](https://en.wikipedia.org/wiki/Battle_of_Hill_70)（英军在朗斯附近继续作战）。
+	- ### 16日-18日
+		- 第二次朗格马克战役（第三次伊普尔战役的初始阶段）。([详情](https://en.wikipedia.org/wiki/Battle_of_Langemarck_(1917)))。
+	- ### 17日
+		- 中国终止德国和奥匈帝国[在天津的租界](https://en.wikipedia.org/wiki/Concessions_in_Tianjin)并占领它们。
+	- ### 18日-28日
+		- 伊松佐河第十一次战役。([详情](https://en.wikipedia.org/wiki/Eleventh_Battle_of_the_Isonzo))。
+	- ### 20日-26日
+		- [凡尔登第二次进攻战役](https://en.wikipedia.org/wiki/Second_Offensive_Battle_of_Verdun)。
+- ## 9月
+	- ### 1日-3日
+		- [朱格拉之战](https://en.wikipedia.org/wiki/Battle_of_Jugla)。
+	- ### 5日-12日
+		- 在[第三次会议尔瓦尔德](https://en.wikipedia.org/wiki/Third_Zimmerwald_Conference)反战社会主义的[尔瓦尔德运动](https://en.wikipedia.org/wiki/Zimmerwald_Movement)，在举行[斯德哥尔摩](https://en.wikipedia.org/wiki/Stockholm)。([详情](https://en.wikipedia.org/wiki/Third_Zimmerwald_Conference))。
+	- ### 5日
+		- 短信Seeadler的船员乘坐救生艇驶向[斐济](https://en.wikipedia.org/wiki/Fiji)，捕获了法国[纵帆船](https://en.wikipedia.org/wiki/Schooner) Lutece，让他们得以逃脱。他们将其重命名为Fortuna。
+	- ### 8日-12日
+		- 俄罗斯：科尔尼洛夫将军的政变企图失败。([详情](https://en.wikipedia.org/wiki/Lavr_Georgevich_Kornilov))。
+	- ### 10日
+	- ### 12日
+		- [亚历山大·里博特](https://en.wikipedia.org/wiki/Alexandre_Ribot)辞去[法国总理职务](https://en.wikipedia.org/wiki/Prime_Minister_of_France)；他被[PaulPainlevé](https://en.wikipedia.org/wiki/Paul_Painlev%C3%A9)取代。
+	- ### 14日
+		- 俄罗斯宣布成立共和国。
+	- ### 20日-26日
+		- [梅宁路岭](https://en.wikipedia.org/wiki/Battle_of_the_Menin_Road_Ridge)战役（伊普尔第三次战役的第二阶段）。
+	- ### 21日
+		- [哥斯达黎加](https://en.wikipedia.org/wiki/Costa_Rica)与德国断绝关系。
+	- ### 26日-27日
+		- [多边形森林之战](https://en.wikipedia.org/wiki/Battle_of_Polygon_Wood)（第三次伊普尔战役的第二阶段）。
+	- ### 28日-29日
+		- 美索不达米亚拉马迪战役。([详情](https://en.wikipedia.org/wiki/Battle_of_Ramadi_(1917)))。
+- ## 10月
+	- ### 4日
+		- [Broodseinde](https://en.wikipedia.org/wiki/Battle_of_Broodseinde)战役（伊普尔第三次战役的第二阶段）。
+	- ### 5日
+		- 在财神沉船在[复活节岛](https://en.wikipedia.org/wiki/Easter_Island)和船员由智利人扣留。
+	- ### 6日
+		- [秘鲁](https://en.wikipedia.org/wiki/Peru)与德国断绝关系。
+	- ### 7日
+		- [乌拉圭](https://en.wikipedia.org/wiki/Uruguay)与德国断绝关系。
+	- ### 9日
+		- [Poelcappelle战役](https://en.wikipedia.org/wiki/Battle_of_Poelcappelle)（第三次伊普尔战役的最后阶段）。
+	- ### 12日
+		- [Passchendaele第一次战役](https://en.wikipedia.org/wiki/First_Battle_of_Passchendaele)（第三次伊普尔战役的最后阶段）。
+	- ### 15日-18日
+		- [马希瓦之战](https://en.wikipedia.org/wiki/Battle_of_Mahiwa)。
+	- ### 15日
+		- 马塔哈里被处决。
+	- ### 23日
+		- [瓦迪穆萨之战](https://en.wikipedia.org/wiki/Battle_of_Wadi_Musa)。
+	- ### 26日
+		- 巴西向德国宣战。
+	- ### 27日
+		- [布卡岭战役](https://en.wikipedia.org/wiki/Battle_of_Buqqar_Ridge)。
+	- ### 30日
+		- 意大利：维托里奥·埃马努埃莱·奥兰多接替[保罗·博塞利](https://en.wikipedia.org/wiki/Paolo_Boselli)出任总理。([详情](https://en.wikipedia.org/wiki/Vittorio_Emanuele_Orlando))。
+	- ### 31日
+		- 贝尔谢巴战役（第三次加沙战役的开始阶段）。([详情](https://en.wikipedia.org/wiki/Battle_of_Beersheba_(1917)))。
+- ## 10月14日-1月6日
+	- [木畑之战](https://en.wikipedia.org/wiki/Battle_of_Kibata_(1916))。
+- ## 10月23日-11月10日
+	- LaMalmaison战役，法国对[ChemindesDames的](https://en.wikipedia.org/wiki/Chemin_des_Dames)攻击被推迟了很久。([详情](https://en.wikipedia.org/wiki/Battle_of_La_Malmaison))。
+- ## 10月24日-11月4日
+	- 卡波雷托战役。奥匈帝国和德国人突破意大利防线。意大利军队被击败并退回到皮亚韦河。([详情](https://en.wikipedia.org/wiki/Battle_of_Caporetto))。
+- ## 10月26日-11月10日
+	- [第二次Passchendaele战役](https://en.wikipedia.org/wiki/Second_Battle_of_Passchendaele)（第三次伊普尔战役的最后阶段）。
+- ## 10月31日-11月7日
+	- 第三次加沙战役。英国人突破了奥斯曼帝国的防线。([详情](https://en.wikipedia.org/wiki/Third_Battle_of_Gaza))。
+- ## 11月
+	- ### 1日-6日
+		- [TelelKhuweilfe战役](https://en.wikipedia.org/wiki/Battle_of_Tel_el_Khuweilfe)。
+	- ### 2日
+		- [贝尔福宣言](https://en.wikipedia.org/wiki/Balfour_Declaration_of_1917)：英国政府支持在巴勒斯坦建立犹太人“民族家园”的计划。([详情](https://en.wikipedia.org/wiki/Balfour_Declaration,_1917))。
+	- ### 5日
+		- 盟军同意在[凡尔赛](https://en.wikipedia.org/wiki/Versailles_(city))建立一个最高战争委员会。
+	- ### 7日
+		- [十月革命](https://en.wikipedia.org/wiki/October_Revolution)：克伦斯基在彼得格勒苏维埃占领[冬宫](https://en.wikipedia.org/wiki/Winter_Palace)之前逃离彼得格勒。
+		- [在Sheria充电](https://en.wikipedia.org/wiki/Charge_at_Sheria)。
+	- ### 8日
+		- [ArmandoDiaz](https://en.wikipedia.org/wiki/Armando_Diaz)接替[LuigiCadorna](https://en.wikipedia.org/wiki/Luigi_Cadorna)担任意大利陆军总司令。([详情](https://en.wikipedia.org/wiki/Armando_Diaz))。
+		- [在Huj充电](https://en.wikipedia.org/wiki/Charge_at_Huj)。
+	- ### 10日
+		- 第三次伊普尔战役（也称为帕尚代尔战役）结束。([详情](https://en.wikipedia.org/wiki/Battle_of_Passchendaele))。
+	- ### 13日
+		- 法国：[PaulPainlevé](https://en.wikipedia.org/wiki/Paul_Painlev%C3%A9)由[GeorgesClemenceau](https://en.wikipedia.org/wiki/Georges_Clemenceau)接替担任总理。([详情](https://en.wikipedia.org/wiki/Georges_Clemenceau))。
+		- [穆加尔岭战役](https://en.wikipedia.org/wiki/Battle_of_Mughar_Ridge)。
+	- ### 14日
+		- [阿云卡拉之战](https://en.wikipedia.org/wiki/Battle_of_Ayun_Kara)。
+	- ### 17日
+		- 北海黑尔戈兰湾第二次海战。([详情](https://en.wikipedia.org/wiki/Second_Battle_of_Heligoland_Bight))。
+	- ### 18日-24日
+		- [NebiSamwil](https://en.wikipedia.org/wiki/Battle_of_Nebi_Samwil)战役，耶路撒冷战役的一个阶段。
+	- ### 19日
+		- [卡波雷托战役](https://en.wikipedia.org/wiki/Battle_of_Caporetto)结束。[中央国家](https://en.wikipedia.org/wiki/Central_Powers)俘虏了100万囚犯中的四分之一。([详情](https://en.wikipedia.org/w/index.php?titleBattle_of_Caporetto_(1917)&actionedit&redlink1))。
+	- ### 25日
+		- [恩戈马诺战役中](https://en.wikipedia.org/wiki/Battle_of_Ngomano)，德军入侵葡萄牙东非以获取补给。
+- ## 11月9日-12月28日
+	- 第一次皮亚韦河之战：奥匈帝国和德国人试图渡河失败。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Piave_River#Background))。
+- ## 11月11日-12月23日
+	- [第一次蒙特格拉帕战役](https://en.wikipedia.org/wiki/First_Battle_of_Monte_Grappa)，奥匈帝国的进攻停止了。
+- ## 11月17日-12月30日
+	- 耶路撒冷之战。英国人进城（12月11日）。([详情](https://en.wikipedia.org/wiki/Battle_of_Jerusalem_(1917)))。
+- ## 11月20日-12月3日
+	- 第一次康布雷战役。英国的一次进攻以及德国自1915年以来对英国的最大一次进攻成功，战斗陷入僵局。([详情](https://en.wikipedia.org/wiki/Battle_of_Cambrai_(1917)))。
+- ## 12月
+	- ### 1日
+		- [ElBurj](https://en.wikipedia.org/wiki/Battle_of_El_Burj)战役，耶路撒冷战役的一个阶段。
+	- ### 6日
+		- [哈利法克斯爆炸](https://en.wikipedia.org/wiki/Halifax_Explosion)：[挪威](https://en.wikipedia.org/wiki/Norway)补给船[SSImo](https://en.wikipedia.org/wiki/SS_Imo)与法国[货船](https://en.wikipedia.org/wiki/Cargo_ship) [SSMont-Blanc](https://en.wikipedia.org/wiki/SS_Mont-Blanc)之间发生意外碰撞，这艘货船为西线装载了[高爆炸](https://en.wikipedia.org/wiki/High_explosives)[药，在新斯科舍省里士满](https://en.wikipedia.org/wiki/Richmond,_Nova_Scotia)造成2,000人死亡和9,000人受伤。这是原子武器发明之前[最大的一次人造爆炸](https://en.wikipedia.org/wiki/Largest_artificial_non-nuclear_explosions)。
+		- [芬兰](https://en.wikipedia.org/wiki/Finland)宣布从[俄罗斯](https://en.wikipedia.org/wiki/Russia)独立。
+	- ### 7日
+		- 美国对奥匈帝国宣战。
+	- ### 8日
+		- [厄瓜多尔](https://en.wikipedia.org/wiki/Ecuador)与德国断绝关系。
+	- ### 9日
+		- [罗马尼亚](https://en.wikipedia.org/wiki/Romania)签署与停战[同盟国](https://en.wikipedia.org/wiki/Central_Powers)。
+	- ### 10日
+		- 巴拿马对奥匈帝国宣战。
+	- ### 11日
+		- [艾伦比将军](https://en.wikipedia.org/wiki/General_Allenby)率领英国和印度军队进入[耶路撒冷](https://en.wikipedia.org/wiki/Jerusalem)，结束了奥斯曼帝国400年的统治。
+	- ### 15日
+		- [俄罗斯与同盟国之间的停战协定](https://en.wikipedia.org/wiki/Armistice_between_Russia_and_the_Central_Powers)将于12月17日生效。
+	- ### 16日
+		- 奥斯曼帝国与俄罗斯[外高加索特别委员会](https://en.wikipedia.org/wiki/Special_Transcaucasian_Committee)之间的埃尔津坎停战协定。
+	- ### 17日
+		- [加拿大总理](https://en.wikipedia.org/wiki/Prime_Minister_of_Canada) [罗伯特·博登](https://en.wikipedia.org/wiki/Robert_Borden)（RobertBorden）在支持征兵制的[统一党的](https://en.wikipedia.org/wiki/Unionist_Party_(Canada))联邦选举中赢得了多数席位。([详情](https://en.wikipedia.org/wiki/1917_Canadian_federal_election))。
+	- ### 20日-21日
+		- 雅法战役，耶路撒冷战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Jaffa_(1917)))。
+- ## 12月1日-1月18日
+	- 盟军攻占延布。([详情](https://en.wikipedia.org/wiki/Capture_of_Yanbu))。
+# 1918年
+- ## 1月
+	- ### 8日
+		- [伍德罗威尔逊](https://en.wikipedia.org/wiki/Woodrow_Wilson)概述了他的十四点。([详情](https://en.wikipedia.org/wiki/Fourteen_Points))。
+- ## 2月
+	- ### 9日
+		- 在[同盟国](https://en.wikipedia.org/wiki/Central_Powers)签署了独家的保护条约[乌克兰人民共和国](https://en.wikipedia.org/wiki/Ukrainian_People%27s_Republic)作为谈判的一部分[布列斯特和约](https://en.wikipedia.org/wiki/Brest-Litovsk)。([详情](https://en.wikipedia.org/wiki/Treaty_of_Brest-Litovsk_(Ukraine%E2%80%93Central_Powers)))。
+	- ### 15日-16日
+		- [拉兰察战役](https://en.wikipedia.org/wiki/Battle_of_Rarancza)。
+	- ### 19日
+		- 英国人开始进攻杰里科。([详情](https://en.wikipedia.org/wiki/Capture_of_Jericho))。
+	- ### 21日
+		- 英国人占领[耶利哥](https://en.wikipedia.org/wiki/Jericho)。([详情](https://en.wikipedia.org/wiki/Capture_of_Jericho))。
+		- 德军占领明斯克。([详情](https://en.wikipedia.org/wiki/Operation_Faustschlag#Offensive))。
+	- ### 24日
+		- 德军攻占日托米尔。([详情](https://en.wikipedia.org/wiki/Operation_Faustschlag#Offensive))。
+	- ### 25日
+		- 德军攻占[塔林](https://en.wikipedia.org/wiki/Tallinn)。([详情](https://en.wikipedia.org/wiki/Operation_Faustschlag#Offensive))。
+	- ### 28日
+		- 德军攻占普斯科夫和纳尔瓦。([详情](https://en.wikipedia.org/wiki/Operation_Faustschlag#Offensive))。
+- ## 2月-9月
+	- 盟军占领[约旦裂谷](https://en.wikipedia.org/wiki/Jordan_Rift_Valley)。([详情](https://en.wikipedia.org/wiki/Occupation_of_the_Jordan_Valley))。
+- ## 2月18日-3月3日
+	- [Faustschlag行动，东线的](https://en.wikipedia.org/wiki/Operation_Faustschlag)最后一次进攻。
+- ## 3月
+	- ### 2日
+		- 德军占领基辅。([详情](https://en.wikipedia.org/wiki/Operation_Faustschlag#Offensive))。
+	- ### 3日
+		- 在布列斯特-立托夫斯克，[托洛茨基](https://en.wikipedia.org/wiki/Leon_Trotsky)与德国签署了和平条约。([详情](https://en.wikipedia.org/wiki/Treaty_of_Brest-Litovsk))。
+	- ### 4日
+		- 首先知道会有什么后来被称为情况下[西班牙流感](https://en.wikipedia.org/wiki/Spanish_flu)：私人阿尔伯特Gitchell营芬斯顿，[赖利堡](https://en.wikipedia.org/wiki/Fort_Riley)，[堪萨斯州](https://en.wikipedia.org/wiki/Kansas)。
+	- ### 7日
+		- 德国炮兵在[胭脂花束](https://en.wikipedia.org/wiki/Rouge_Bouquet)轰炸美国人。([详情](https://en.wikipedia.org/wiki/Rouge_Bouquet))。
+	- ### 8日-13日
+		- [巴赫马赫之战](https://en.wikipedia.org/wiki/Battle_of_Bakhmach)。
+	- ### 8日-12日
+		- [泰尔阿苏尔之战](https://en.wikipedia.org/wiki/Battle_of_Tell_%27Asur)。
+	- ### 11日
+		- 莱利堡有100多名西班牙流感患者；第一个已知的情况下，外[皇后区](https://en.wikipedia.org/wiki/Queens)，[纽约](https://en.wikipedia.org/wiki/State_of_New_York)。
+	- ### 21日-23日
+		- 圣昆廷战役，迈克尔行动和春季攻势的第一阶段。([详情](https://en.wikipedia.org/wiki/Operation_Michael#Michael_(21_March_to_5_April_1918)))。
+	- ### 21日
+	- ### 24日-25日
+		- [第一次巴波姆战役，](https://en.wikipedia.org/wiki/First_Battle_of_Bapaume)迈克尔行动的一个阶段。([详情](https://en.wikipedia.org/wiki/Operation_Michael#Michael_(21_March_to_5_April_1918)))。
+	- ### 25日
+		- [第一次诺永战役，](https://en.wikipedia.org/wiki/First_Battle_of_Noyon)迈克尔行动的一个阶段。([详情](https://en.wikipedia.org/wiki/Operation_Michael#Michael_(21_March_to_5_April_1918)))。
+		- [奔萨](https://en.wikipedia.org/wiki/Penza)协定：[捷克斯洛伐克军团](https://en.wikipedia.org/wiki/Czechoslovak_Legion)可以自由通行到[符拉迪沃斯托克](https://en.wikipedia.org/wiki/Vladivostok)加入协约国，以换取大部分武器交给布尔什维克。
+	- ### 26日-27日
+		- Rosieres之战，迈克尔行动的一个阶段。([详情](https://en.wikipedia.org/wiki/Operation_Michael#Michael_(21_March_to_5_April_1918)))。
+		- [汗巴格达迪的行动](https://en.wikipedia.org/wiki/Action_of_Khan_Baghdadi)。
+	- ### 26日
+		- 法国元帅[费迪南德·福煦](https://en.wikipedia.org/wiki/Ferdinand_Foch)被任命为所有盟军的最高指挥官。([详情](https://en.wikipedia.org/wiki/Ferdinand_Foch))。
+	- ### 27日-31日
+		- [第一次安曼战役，](https://en.wikipedia.org/wiki/First_Battle_of_Amman)第一次外约旦袭击的一个阶段。
+	- ### 28日
+		- 第三次阿拉斯战役（也称为第一次阿拉斯战役（1918）），迈克尔行动的一个阶段。([详情](https://en.wikipedia.org/wiki/Operation_Michael#Michael_(21_March_to_5_April_1918)))。
+	- ### 30日
+		- [莫瑞伊森林之战](https://en.wikipedia.org/wiki/Battle_of_Moreuil_Wood)。
+- ## 3月23日-8月7日
+	- 炮轰[巴黎](https://en.wikipedia.org/wiki/Paris)。([详情](https://en.wikipedia.org/wiki/Paris_Gun))。
+- ## 3月30日-4月5日
+	- [第一次维勒斯-布列托纽战役，](https://en.wikipedia.org/wiki/First_Battle_of_Villers-Bretonneux)迈克尔行动的一个阶段。
+- ## 4月
+	- ### 1日
+		- [皇家空军](https://en.wikipedia.org/wiki/Royal_Air_Force)由[皇家飞行队](https://en.wikipedia.org/wiki/Royal_Flying_Corps)和[皇家海军航空服务](https://en.wikipedia.org/wiki/Royal_Naval_Air_Service)队合并而成。
+	- ### 4日-5日
+		- [Avre之战，](https://en.wikipedia.org/wiki/Battle_of_the_Avre)迈克尔行动的最后阶段。
+	- ### 7日-9日
+		- Estaires之战，乔其特行动的第一阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Lys_(1918)#Battle_of_Estaires_(9–11_April)))。
+	- ### 7日-29日
+		- 春季攻势的第二阶段，乔吉特行动（也称为赖斯之战）。结果令德国人失望。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Lys_(1918)))。
+	- ### 10日-11日
+		- 第三次梅辛战役，乔吉特行动的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Messines_(1918)))。
+	- ### 12日-13日
+		- Hazebrouck战役，乔吉特行动的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Lys_(1918)#Battle_of_Hazebrouck_(12–15_April)))。
+	- ### 13日-15日
+		- 巴约尔战役，乔吉特行动的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Lys_(1918)#Battle_of_Bailleul_(13–15_April)))。
+	- ### 14日
+		- [奥托卡尔·切尔宁(OttokarCzernin)](https://en.wikipedia.org/wiki/Ottokar_Czernin)因西克斯图斯([Sixtus)事件](https://en.wikipedia.org/wiki/Sixtus_Affair)辞去奥匈帝国外交部长一职。
+	- ### 17日-19日
+		- 凯梅尔贝格第一次战役，乔吉特行动的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Lys_(1918)#First_Battle_of_Kemmel_(17–19_April)))。
+	- ### 18日
+		- 白求恩之战，乔吉特行动的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Lys_(1918)#Battle_of_Béthune_(18_April)))。
+	- ### 21日
+		- [红色男爵](https://en.wikipedia.org/wiki/Manfred_von_Richthofen)在[索姆河畔沃克斯](https://en.wikipedia.org/wiki/Vaux-sur-Somme)被击落。
+	- ### 23日
+		- [危地马拉](https://en.wikipedia.org/wiki/Guatemala)向德国宣战。
+	- ### 24日-27日
+		- [第二次维勒斯-布勒托讷战役，](https://en.wikipedia.org/wiki/Second_Battle_of_Villers-Bretonneux)乔吉特行动的一个阶段。
+	- ### 25日-26日
+		- 第二次凯梅尔贝格战役，乔吉特行动的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Lys_(1918)#Second_Battle_of_Kemmel_(25–26_April)))。
+	- ### 28日
+		- GavriloPrincip死于肺结核在[Terezín](https://en.wikipedia.org/wiki/Terez%C3%ADn)监狱中。
+	- ### 29日
+		- 舍尔彭贝格战役，乔吉特行动的最后阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Scherpenberg))。
+- ## 4月30日-5月4日
+	- [对ShunetNimrin和EsSalt的第二次外约旦攻击](https://en.wikipedia.org/wiki/Second_Transjordan_attack_on_Shunet_Nimrin_and_Es_Salt)。
+- ## 5月
+	- ### 7日
+		- [罗马尼亚](https://en.wikipedia.org/wiki/Romania)与同盟国之间的布加勒斯特条约。它永远不会被批准。([详情](https://en.wikipedia.org/wiki/Treaty_of_Bucharest,_1918))。
+	- ### 8日
+		- [尼加拉瓜](https://en.wikipedia.org/wiki/Nicaragua)对德国和奥匈帝国宣战。
+	- ### 10日-11日
+		- [卡尼乌之战](https://en.wikipedia.org/wiki/Battle_of_Kaniow)。
+	- ### 14日
+		- 在[车里雅宾斯克](https://en.wikipedia.org/wiki/Chelyabinsk)站发生冲突，向西遣返的匈牙利战俘与向东走的捷克斯洛伐克战俘之间发生冲突。托洛茨基下令逮捕捷克斯洛伐克军团，但他们起义并占领了[西伯利亚大铁路](https://en.wikipedia.org/wiki/Trans-Siberian_Railway)沿线的几个城镇。([详情](https://en.wikipedia.org/wiki/Revolt_of_the_Czechoslovak_Legion))。
+	- ### 21日-29日
+		- [萨达拉巴德战役](https://en.wikipedia.org/wiki/Battle_of_Sardarabad)，亚美尼亚入侵的一个阶段。
+		- [阿巴兰战役](https://en.wikipedia.org/wiki/Battle_of_Abaran)，亚美尼亚入侵的一个阶段。
+	- ### 21日
+		- 奥斯曼帝国入侵[亚美尼亚](https://en.wikipedia.org/wiki/Armenia)。([详情](https://en.wikipedia.org/wiki/Battle_of_Sardarabad))。
+	- ### 23日
+		- 哥斯达黎加对德国宣战。
+	- ### 24日-28日
+		- [卡拉基利萨战役，](https://en.wikipedia.org/wiki/Battle_of_Karakilisa)入侵亚美尼亚的一个阶段。
+	- ### 28日
+		- [坎蒂尼战役](https://en.wikipedia.org/wiki/Battle_of_Cantigny)。
+	- ### 29日-31日
+		- [斯克拉迪莱根战役](https://en.wikipedia.org/wiki/Battle_of_Skra-di-Legen)。
+- ## 5月27日-6月6日
+	- 第三次埃纳河战役（也称为布吕歇尔-约克行动，春季攻势的第三阶段）。在最初的收益之后，德国的前进停止了。([详情](https://en.wikipedia.org/wiki/Third_Battle_of_the_Aisne))。
+- ## 6月
+	- ### 1日-26日
+		- [Belleau木头之战](https://en.wikipedia.org/wiki/Battle_of_Belleau_Wood)中，部分[德国的春季攻势](https://en.wikipedia.org/wiki/German_spring_offensive)。
+	- ### 8日-10日
+	- ### 8日
+		- [阿尔苏夫的行动](https://en.wikipedia.org/wiki/Action_of_Arsuf)。
+		- 奥斯曼人重新进入大不里士。([详情](https://en.wikipedia.org/wiki/Persian_campaign_(World_War_I)))。
+		- 捷克斯洛伐克军团在萨马拉成立[制宪议会成员委员会](https://en.wikipedia.org/wiki/Committee_of_Members_of_the_Constituent_Assembly)。StanislavČeček呼吁与反布尔什维克的俄罗斯人联手推翻共产主义政府并重新点燃东部阵线。(详情)。
+	- ### 9日-12日
+		- 春季攻势的第四阶段，格奈森瑙行动（也称为马茨战役）。尽管获得了大量领土，但德国人并未实现其战略目标（[详情](https://en.wikipedia.org/wiki/Battle_of_Matz)）。
+	- ### 13日
+		- [临时西伯利亚政府](https://en.wikipedia.org/wiki/Provisional_Siberian_Government_(Omsk))在[鄂木斯克成立](https://en.wikipedia.org/wiki/Omsk)。
+	- ### 15日-31日
+		- 脚垫占据Dilman，[Khoy](https://en.wikipedia.org/wiki/Khoy)和乌尔米耶。（[详情](https://en.wikipedia.org/wiki/Persian_campaign_(World_War_I))。）。
+	- ### 15日-23日
+		- 第二次皮亚韦战役：奥匈帝国的进攻被击退。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Piave_River))。
+	- ### 23日
+		- 英国和法国军队在俄罗斯北部的[摩尔曼斯克](https://en.wikipedia.org/wiki/Murmansk)登陆。这是盟军干预之初俄国内战的白军的身边。（详情。）。
+- ## 7月
+	- ### 4日
+		- [哈默尔之战](https://en.wikipedia.org/wiki/Battle_of_Hamel)。
+	- ### 12日
+		- [海地](https://en.wikipedia.org/wiki/Haiti)向德国宣战。
+	- ### 14日
+		- [阿布特鲁之战](https://en.wikipedia.org/wiki/Battle_of_Abu_Tellul)。
+	- ### 15日-17日
+		- 香槟马恩进攻（由的[香槟第四战](https://en.wikipedia.org/wiki/Fourth_Battle_of_Champagne)和[兰斯山之战](https://en.wikipedia.org/wiki/Battle_of_the_Mountain_of_Reims)），马恩第二次争斗的阶段。春季攻势的最后阶段和第一次世界大战的最后一次德国攻势。（[详情](https://en.wikipedia.org/wiki/Second_Battle_of_the_Marne)）。
+	- ### 17日
+		- 尼古拉二世和他的家人被布尔什维克处决，因为他们担心捷克斯洛伐克和[白](https://en.wikipedia.org/wiki/White_Movement)军可能会释放他们。([详情](https://en.wikipedia.org/wiki/Shooting_of_the_Romanov_family))。
+	- ### 18日-22日
+		- 苏瓦松战役，第二次马恩河战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Soissons_(1918)))。
+	- ### 18日
+		- 蒂埃里城堡之战，第二次马恩河战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Chateau-Thierry_(1918)))。
+	- ### 19日
+		- [Tardenois战役，](https://en.wikipedia.org/wiki/Battle_of_Tardenois)第二次马恩河战役的一个阶段。
+		- [洪都拉斯](https://en.wikipedia.org/wiki/Honduras)对德国宣战。
+- ## 7月15日-8月6日
+	- 第二次马恩河战役和德军在西线的最后一次进攻，当德军遭到法军反击时失败。([详情](https://en.wikipedia.org/wiki/Second_Battle_of_the_Marne))。
+- ## 8月
+	- 西班牙流感[病毒](https://en.wikipedia.org/wiki/Virus)变异：[布雷斯特](https://en.wikipedia.org/wiki/Brest,_France)、[弗里敦](https://en.wikipedia.org/wiki/Freetown)和[波士顿](https://en.wikipedia.org/wiki/Boston)同时爆发更致命的流感。
+	- ### 5日
+		- 捷克斯洛伐克[Komuch的人民军](https://en.wikipedia.org/wiki/People%27s_Army_of_Komuch)采取[喀山](https://en.wikipedia.org/wiki/Kazan)从布尔什维克和捕获的俄罗斯帝国[的黄金储备](https://en.wikipedia.org/wiki/Gold_reserve)。([详情](https://en.wikipedia.org/wiki/Russian_Civil_War))。
+	- ### 8日-12日
+		- 亚眠战役，百日攻势的第一阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Amiens_(1918)))。
+	- ### 9日-12日
+		- [蒙迪迪埃战役](https://en.wikipedia.org/wiki/Battle_of_Montdidier)。
+	- ### 17日-29日
+		- 第二次拿永战役，百日攻势的一个阶段。([详情](https://en.wikipedia.org/wiki/Second_Battle_of_Noyon))。
+	- ### 21日-22日
+		- 第三次阿尔伯特战役，第二次索姆河战役的开始阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Albert_(1918)))。
+	- ### 26日-30日
+		- 第四次斯卡普战役（也称为斯卡普战役（1918）），第四次阿拉斯战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Scarpe_(1918)))。
+	- ### 30日-31日
+		- [利马之战](https://en.wikipedia.org/wiki/Battle_of_Lioma)。
+- ## 8月8日-11月11日
+	- [百日攻势](https://en.wikipedia.org/wiki/Hundred_Days_Offensive)，[西线](https://en.wikipedia.org/wiki/Western_Front_(World_War_I))最后的攻势。
+- ## 8月13日-9月3日
+	- [圣马特奥之战](https://en.wikipedia.org/wiki/Battle_of_San_Matteo)。
+- ## 8月21日-9月3日
+	- 第二次索姆河战役（又称第三次索姆河战役），[百日攻势的](https://en.wikipedia.org/wiki/Hundred_Days_Offensive)一个阶段。([详情](https://en.wikipedia.org/wiki/Second_Battle_of_the_Somme_(1918)))。
+	- [第二次巴波姆](https://en.wikipedia.org/wiki/Second_Battle_of_Bapaume)战役，索姆河第二次战役的一个阶段。
+- ## 8月26日-9月14日
+	- [巴库战役](https://en.wikipedia.org/wiki/Battle_of_Baku)，土耳其在战争中的最后一次进攻。
+- ## 8月26日-9月3日
+	- 第四次阿拉斯战役（也称为第二次阿拉斯战役（1918）），第二次索姆河战役的一个阶段（[详情](https://en.wikipedia.org/wiki/Second_Battle_of_the_Somme_(1918))）。
+- ## 8月31日-9月3日
+	- [圣康坦山战役，](https://en.wikipedia.org/wiki/Battle_of_Mont_Saint-Quentin)第二次索姆河战役的一个阶段。
+- ## 9月
+	- ### 1日-2日
+		- 佩罗讷战役，是圣康坦山战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Mont_Saint-Quentin))。
+	- ### 2日-3日
+		- Drocourt-QueantLine战役，第二次索姆河战役的最后阶段。([详情](https://en.wikipedia.org/wiki/Drocourt-Queant_Line#Defeat))。
+	- ### 8日-23日
+		- [乌法](https://en.wikipedia.org/wiki/Ufa)会议：在捷克斯洛伐克军团的支持下组建[全俄临时政府](https://en.wikipedia.org/wiki/Provisional_All-Russian_Government)。
+	- ### 10日
+		- 萨维-达伦战役，百日攻势的一个阶段。([详情](https://en.wikipedia.org/wiki/Hundred_Days_Offensive#Advance_to_the_Hindenburg_Line))。
+	- ### 12日-15日
+		- [圣米耶尔战役，](https://en.wikipedia.org/wiki/Battle_of_Saint-Mihiel)百日攻势的一个阶段。
+	- ### 12日
+		- [哈夫林古战役，](https://en.wikipedia.org/wiki/Battle_of_Havrincourt)百日攻势的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Havrincourt))。
+	- ### 14日-29日
+		- [Vardar攻势](https://en.wikipedia.org/wiki/Vardar_Offensive)，[巴尔干战线](https://en.wikipedia.org/wiki/Balkan_Front)上的最后攻势。
+	- ### 14日
+		- 沃赛永战役，百日攻势的一个阶段。([详情](https://en.wikipedia.org/wiki/Hundred_Days_Offensive#Advance_to_the_Hindenburg_Line))。
+	- ### 15日
+		- 盟军（法国人和塞尔维亚人）在多布罗波列突破保加利亚防线，这是瓦尔达尔攻势的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Dobro_Pole))。
+	- ### 18日-19日
+		- 第三次多伊兰战役，瓦尔达尔攻势的一个阶段，保加利亚人阻止了英国和希腊的进攻。([详情](https://en.wikipedia.org/wiki/Battle_of_Doiran_(1918)))。
+	- ### 18日
+		- [埃佩伊之战，](https://en.wikipedia.org/wiki/Battle_of_Epehy)百日攻势的一个阶段。
+	- ### 19日-20日
+		- [塔布索尔](https://en.wikipedia.org/wiki/Battle_of_Tabsor)之战，沙龙之战的一个阶段。
+	- ### 19日
+		- [图尔卡姆](https://en.wikipedia.org/wiki/Battle_of_Tulkarm)之战，沙龙之战的一个阶段。
+		- [阿拉拉](https://en.wikipedia.org/wiki/Battle_of_Arara)之战，沙龙之战的一个阶段。
+	- ### 19日-25日
+		- [米吉多之战](https://en.wikipedia.org/wiki/Battle_of_Megiddo_(1918))。英国征服巴勒斯坦。([详情](https://en.wikipedia.org/wiki/Battle_of_Megiddo_(1918)))。
+		- [纳布卢斯](https://en.wikipedia.org/wiki/Battle_of_Nablus_(1918))之战，米吉多之战的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Nablus_(1918)))。
+		- [第三次外约旦进攻](https://en.wikipedia.org/wiki/Third_Transjordan_attack)，纳布卢斯战役的一个阶段。
+		- [沙仑](https://en.wikipedia.org/wiki/Battle_of_Sharon)之战，米吉多之战的一个阶段。
+	- ### 20日-21日
+		- [拿撒勒](https://en.wikipedia.org/wiki/Battle_of_Nazareth)战役，沙仑战役的一个阶段。
+	- ### 20日
+		- [占领杰宁](https://en.wikipedia.org/wiki/Capture_of_Jenin)，沙龙战役的一个阶段。
+		- 英国在沙龙战役中俘获了阿弗拉和北三。([详情](https://en.wikipedia.org/wiki/Capture_of_Afulah_and_Beisan))。
+	- ### 22日
+		- 英国人在沙龙战役中俘虏了吉斯尔·德·达米耶。([详情](https://en.wikipedia.org/wiki/Capture_of_Jisr_ed_Damieh))。
+	- ### 23日
+		- [海法](https://en.wikipedia.org/wiki/Battle_of_Haifa_(1918))战役，沙龙战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Haifa_(1918)))。
+	- ### 25日
+		- 英军在沙龙战役中占领了提比哩亚。([详情](https://en.wikipedia.org/wiki/Capture_of_Tiberias))。
+		- [沙马](https://en.wikipedia.org/wiki/Battle_of_Samakh)战役，沙龙战役的一个阶段。
+		- [第二次安曼战役，](https://en.wikipedia.org/wiki/Second_Battle_of_Amman)第三次外约旦进攻的一个阶段。
+	- ### 26日-27日
+		- 在攻占大马士革期间，英国人占领了德拉。([详情](https://en.wikipedia.org/wiki/Capture_of_Damascus#Sherifial_Army_capture_of_Deraa))。
+	- ### 26日
+		- Somme-Py战役（默兹-阿尔贡攻势的初始阶段）。([详情](https://en.wikipedia.org/wiki/Meuse-Argonne_Offensive#First_phase:_September_26_to_October_3))。
+		- [在伊尔比德冲锋](https://en.wikipedia.org/wiki/Charge_at_Irbid)，大马士革攻占阶段。
+	- ### 27日
+		- [JisrBenatYakub战役](https://en.wikipedia.org/wiki/Battle_of_Jisr_Benat_Yakub)，大马士革攻占阶段。
+	- ### 30日
+		- [保加利亚](https://en.wikipedia.org/wiki/Bulgaria)与盟国签署[停战协定](https://en.wikipedia.org/wiki/Armistice_with_Bulgaria)。
+		- 圣蒂埃里战役（默兹-阿尔贡攻势的初始阶段）。([详情](https://en.wikipedia.org/wiki/Meuse-Argonne_Offensive#First_phase:_September_26_to_October_3))。
+		- [在考卡布冲锋](https://en.wikipedia.org/wiki/Charge_at_Kaukab)，大马士革攻占阶段。
+		- [在Kiswe冲锋](https://en.wikipedia.org/wiki/Charge_at_Kiswe)，这是大马士革攻占的一个阶段。
+- ## 9月18日-10月17日
+	- 兴登堡防线战役，百日攻势的一个阶段。盟军突破德军防线。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Hindenburg_Line))。
+- ## 9月26日-10月1日
+	- 英国人进入[大马士革](https://en.wikipedia.org/wiki/Damascus)。([详情](https://en.wikipedia.org/wiki/Capture_of_Damascus))。
+- ## 9月26日-11月11日
+	- [默兹-阿贡攻势](https://en.wikipedia.org/wiki/Meuse-Argonne_Offensive)，百日攻势和第一次世界大战的最后阶段。（[详情](https://en.wikipedia.org/wiki/Meuse-Argonne_Offensive)）。
+- ## 9月27日-10月1日
+	- [北运河](https://en.wikipedia.org/wiki/Battle_of_the_Canal_du_Nord)战役，兴登堡防线战役的一个阶段。
+- ## 9月28日-10月2日
+	- [伊普尔第五次战役](https://en.wikipedia.org/wiki/Fifth_Battle_of_Ypres)（也称为法兰德斯战役），兴登堡防线战役的一个阶段。
+- ## 9月29日-10月10日
+	- [圣昆廷运河之战，](https://en.wikipedia.org/wiki/Battle_of_St._Quentin_Canal)百日攻势的一个阶段。
+- ## 10月
+	- ### 3日-27日
+		- [追求你的地图](https://en.wikipedia.org/wiki/Pursuit_to_Haritan)。
+		- [布兰克山岭战役](https://en.wikipedia.org/wiki/Battle_of_Blanc_Mont_Ridge)。
+	- ### 3日
+		- [保加利亚](https://en.wikipedia.org/wiki/Ferdinand_I_of_Bulgaria)沙皇斐迪南一世退位，[鲍里斯三世](https://en.wikipedia.org/wiki/Boris_III_of_Bulgaria)继位。
+	- ### 4日
+		- [德国](https://en.wikipedia.org/wiki/Germany)向美国总统[伍德罗·威尔逊](https://en.wikipedia.org/wiki/Woodrow_Wilson)请求停战。他要求德国撤出所有被占领土，并要求[德皇](https://en.wikipedia.org/wiki/Kaiser)退位。
+	- ### 8日-10日
+		- [第二次康布雷战役](https://en.wikipedia.org/wiki/Battle_of_Cambrai_(1918))（也称为康布雷战役（1918）），兴登堡防线战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Cambrai_(1918)))。
+	- ### 14日-19日
+		- [Courtrai之战，](https://en.wikipedia.org/wiki/Battle_of_Courtrai_(1918))百日攻势的收官阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_Courtrai_(1918)))。
+	- ### 14日-17日
+		- 蒙福孔战役（默兹-阿尔贡攻势的中间阶段）。([详情](https://en.wikipedia.org/wiki/Meuse-Argonne_Offensive#Second_phase:_October_4_to_October_28))。
+	- ### 15日
+		- Mont-D'Origny战役，百日攻势的一个阶段。([详情](https://en.wikipedia.org/wiki/Hundred_Days_Offensive#Beyond_the_Hindenburg_Line))。
+	- ### 17日-26日
+		- [塞尔河之战，](https://en.wikipedia.org/wiki/Battle_of_the_Selle)百日攻势的收官阶段。
+	- ### 20日
+		- 德国暂停潜艇战。([详情](https://en.wikipedia.org/wiki/First_Battle_of_the_Atlantic))。
+		- [Lys和埃斯考特之战](https://en.wikipedia.org/wiki/Battle_of_Lys_and_Escaut)（其中包括[赖氨酸的第二次争斗](https://en.wikipedia.org/wiki/Second_Battle_of_Lys)与[中埃斯考特之战](https://en.wikipedia.org/wiki/Battle_of_the_Escaut)），百日进攻的阶段。([详情](https://en.wikipedia.org/wiki/Hundred_Days_Offensive#Beyond_the_Hindenburg_Line))。
+		- 塞尔之战，百日攻势的一个阶段。([详情](https://en.wikipedia.org/wiki/Hundred_Days_Offensive#Beyond_the_Hindenburg_Line))。
+	- ### 23日-30日
+		- [沙卡特之战](https://en.wikipedia.org/wiki/Battle_of_Sharqat)。
+	- ### 24日-28日
+		- 第二次[蒙特格拉帕之战，](https://en.wikipedia.org/wiki/Battle_of_Monte_Grappa)维托里奥·威尼托的开始阶段。
+	- ### 25日
+		- 阿勒颇战役。([详情](https://en.wikipedia.org/wiki/Battle_of_Aleppo_(1918)))。
+	- ### 29日
+		- [威廉·格罗纳](https://en.wikipedia.org/wiki/Wilhelm_Groener)取代[埃里希·鲁登道夫](https://en.wikipedia.org/wiki/Erich_Ludendorff)成为兴登堡的副手。([详情](https://en.wikipedia.org/wiki/Wilhelm_Groener))。
+		- 德国的Hochseeflotte兵变。([详情](https://en.wikipedia.org/wiki/Wilhelmshaven_mutiny))。
+		- [斯洛文尼亚、克罗地亚和塞尔维亚](https://en.wikipedia.org/wiki/State_of_Slovenes,_Croats_and_Serbs)宣布成立。([详情](https://en.wikipedia.org/wiki/State_of_Slovenes,_Croats_and_Serbs))。
+	- ### 30日
+		- 奥斯曼帝国签署了穆德罗斯停战协定。([详情](https://en.wikipedia.org/wiki/Armistice_of_Mudros))。
+- ## 10月24日-11月4日
+	- [维托里奥·威尼托之战](https://en.wikipedia.org/wiki/Battle_of_Vittorio_Veneto)。奥匈帝国军队被击溃。意大利人进入[特伦特](https://en.wikipedia.org/wiki/Trento)并在[特里斯特](https://en.wikipedia.org/wiki/Triest)登陆。([详情](https://en.wikipedia.org/wiki/Battle_of_Vittorio_Veneto))。
+- ## 11月
+	- 西班牙出现首例西班牙流感病例，由于缺乏战时审查制度，有关该疾病的报告可以自由发表。
+	- ### 1日-2日
+		- 瓦朗谢讷战役，百日攻势的收官阶段。([详情](https://en.wikipedia.org/wiki/Hundred_Days_Offensive#Beyond_the_Hindenburg_Line))。
+	- ### 1日
+		- Chesne战役（默兹-阿尔贡攻势的收官阶段）。([详情](https://en.wikipedia.org/wiki/Meuse-Argonne_Offensive#Third_phase:_October_28_to_November_11))。
+	- ### 3日
+		- 奥匈帝国与意大利签署停战协定，于11月4日生效。
+	- ### 4日
+		- 桑布尔之战，百日攻势的收官阶段。([详情](https://en.wikipedia.org/wiki/Battle_of_the_Sambre_(1918)))。
+		- 第二次吉斯战役，桑布尔战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Hundred_Days_Offensive#Beyond_the_Hindenburg_Line))。
+		- 蒂埃拉赫战役，桑布雷战役的一个阶段。([详情](https://en.wikipedia.org/wiki/Hundred_Days_Offensive#Beyond_the_Hindenburg_Line))。
+	- ### 6日-11日
+		- [前进到默兹](https://en.wikipedia.org/wiki/Advance_to_the_Meuse)。
+	- ### 9日
+		- 德国：德皇威廉二世退位；共和国宣布。([详情](https://en.wikipedia.org/wiki/Wilhelm_II_of_Germany))。
+	- ### 10日
+		- 奥匈帝国：德皇查理一世退位。([详情](https://en.wikipedia.org/wiki/Karl_I_of_Austria))。
+		- 罗马尼亚重新对同盟国发动战争。
+	- ### 11日
+		- 早上6点，德国签署了贡比涅停战协定。上午11点战斗结束。([详情](https://en.wikipedia.org/wiki/Armistice_of_11_November_1918))。
+		- [波兰](https://en.wikipedia.org/wiki/Poland)宣布。
+	- ### 12日
+		- 奥地利宣布成立共和国。
+	- ### 14日
+		- [捷克斯洛伐克](https://en.wikipedia.org/wiki/Czechoslovakia)宣布成立共和国。([详情](https://en.wikipedia.org/wiki/History_of_Czechoslovakia))。
+		- 德国U型潜艇被拘留。
+		- 停战3天后，当冯·莱托-福尔贝克将军在听到德国投降后同意停火时，东非战区的战斗结束。([详情](https://en.wikipedia.org/wiki/Von_Lettow-Vorbeck_Memorial))。
+	- ### 18日
+		- [亚历山大高尔察克](https://en.wikipedia.org/wiki/Alexander_Kolchak)在政变中夺取了全俄临时政府的控制权。
+	- ### 21日
+		- 德国的Hochseeflotte向英国投降。([详情](https://en.wikipedia.org/wiki/High_Seas_Fleet))。
+	- ### 22日
+		- 德国人撤离[卢森堡](https://en.wikipedia.org/wiki/Luxembourg)。
+	- ### 25日
+		- 在同意停火11天后，冯·莱托-福尔贝克将军在今赞比亚的阿伯康正式投降了他未败的军队。([详情](https://en.wikipedia.org/wiki/Paul_Emil_von_Lettow-Vorbeck))。
+	- ### 27日
+		- 德国人撤离[比利时](https://en.wikipedia.org/wiki/Belgium)。
+- ## 12月
+	- ### 1日
+		- 塞尔维亚人、克罗地亚人和斯洛文尼亚人王国宣告成立。([详情](https://en.wikipedia.org/wiki/Kingdom_of_Yugoslavia))。
+# 1919年
+- ## 1月
+	- ### 5日
+		- [赫曼·德茨纳](https://en.wikipedia.org/wiki/Hermann_Detzner)投降在[Finschhafen区](https://en.wikipedia.org/wiki/Finschhafen_District)的[新几内亚](https://en.wikipedia.org/wiki/New_Guinea)。
+	- ### 10日
+		- [FakhriPasha](https://en.wikipedia.org/wiki/Fakhri_Pasha)在麦地那投降。([详情](https://en.wikipedia.org/wiki/Siege_of_Medina))。
+	- ### 18日
+		- 协约国与德国之间的凡尔赛条约：和平会议在巴黎开幕。([详情](https://en.wikipedia.org/wiki/Paris_Peace_Conference,_1919))。
+	- ### 25日
+		- 成立国际[联盟的](https://en.wikipedia.org/wiki/League_of_Nations)提议被接受。([详情](https://en.wikipedia.org/wiki/League_of_Nations))。
+	- ### 27日
+		- 捷克斯洛伐克军团完全控制了西伯利亚大铁路。
+- ## 6月
+	- ### 21日
+		- 德国公海舰队（53艘船）在斯卡帕湾自沉，造成9人死亡，这是战争中最后的伤亡人员。([详情](https://en.wikipedia.org/wiki/Scuttling_of_the_German_fleet_in_Scapa_Flow))。
+	- ### 28日
+		- 凡尔赛条约签订。([详情](https://en.wikipedia.org/wiki/Treaty_of_Versailles))。
+- ## 7月
+	- ### 8日
+		- 德国批准凡尔赛条约。([详情](https://en.wikipedia.org/wiki/Treaty_of_Versailles))。
+	- ### 21日
+		- 英国批准凡尔赛条约。([详情](https://en.wikipedia.org/wiki/Treaty_of_Versailles))。
+- ## 11月
+	- ### 10日-11日
+		- [法兰西共和国](https://en.wikipedia.org/wiki/French_Republic)总统晚宴由[国王乔治五世](https://en.wikipedia.org/wiki/King_George_V)主持，于11月10日晚在[白金汉宫](https://en.wikipedia.org/wiki/Buckingham_Palace)举行。第一个[停战日](https://en.wikipedia.org/wiki/Armistice_Day)于11月11日上午在白金汉宫举行。这将为后来的[纪念日](https://en.wikipedia.org/wiki/Remembrance_Day)设定趋势。([详情](https://en.wikipedia.org/wiki/Armistice_Day))。
+	- ### 14日
+		- 布尔什维克占领鄂木斯克。高尔察克向东撤退受到捷克斯洛伐克人拒绝使用跨西伯利亚人的阻碍。
+# 1920年
+- ## 1月
+	- ### 4日
+		- [伊尔库茨克](https://en.wikipedia.org/wiki/Irkutsk)的政变推翻了高尔察克。([详情](https://en.wikipedia.org/wiki/Political_Centre_(Russia)))。
+	- ### 10日
+		- 国际联盟第一次会议在伦敦举行。([详情](https://en.wikipedia.org/wiki/League_of_Nations))。
+		- [但泽自由市](https://en.wikipedia.org/wiki/Free_City_of_Danzig)成立。([详情](https://en.wikipedia.org/wiki/Free_City_of_Danzig))。
+	- ### 20日
+		- 伊尔库茨克向布尔什维克投降。
+	- ### 21日
+		- 在[巴黎和平会议](https://en.wikipedia.org/wiki/Paris_Peace_Conference,_1919)结束。([详情](https://en.wikipedia.org/wiki/Paris_Peace_Conference,_1919))。
+- ## 2月
+	- ### 7日
+		- 布尔什维克和捷克斯洛伐克军团之间的停战。捷克斯洛伐克交出俄罗斯的黄金储备和高尔察克，以换取自由通行符拉迪沃斯托克。高尔察克和他的总理[维克托·佩佩利亚耶夫](https://en.wikipedia.org/wiki/Viktor_Pepelyayev)被处决。
+	- ### 10日
+		- 公民投票将[北石勒苏益格](https://en.wikipedia.org/wiki/Northern_Schleswig)归还丹麦。([详情](https://en.wikipedia.org/wiki/Schleswig_Plebiscites))。
+- ## 4月
+	- ### 19日-26日
+		- [意大利圣雷莫](https://en.wikipedia.org/wiki/Sanremo,_Italy)会议，关于国际联盟在中东前奥斯曼领土上的任务。([详情](https://en.wikipedia.org/wiki/San_Remo_conference))。
+- ## 6月
+	- ### 4日
+		- 同盟国和匈牙利之间的特里亚农条约。([详情](https://en.wikipedia.org/wiki/Treaty_of_Trianon))。
+- ## 8月
+	- ### 10日
+		- 协约国与奥斯曼帝国签订了色佛尔条约。[土耳其民族运动](https://en.wikipedia.org/wiki/Turkish_national_movement)不承认该条约，认为伊斯坦布尔政府是非法的。([详情](https://en.wikipedia.org/wiki/Treaty_of_S%C3%A8vres))。
+- ## 9月
+	- ### 8日
+		- [GabrieleD'Annunzio](https://en.wikipedia.org/wiki/Gabriele_D%27Annunzio)在Fiume宣布[Carnaro](https://en.wikipedia.org/wiki/Italian_Regency_of_Carnaro)的意大利摄政。([详情](https://en.wikipedia.org/wiki/Italian_Regency_of_Carnaro))。
+- ## 11月
+	- ### 1日
+		- 国际联盟总部迁至[瑞士日内瓦](https://en.wikipedia.org/wiki/Geneva,_Switzerland)。([详情](https://en.wikipedia.org/wiki/League_of_Nations))。
+	- ### 12日
+		- 意大利和南斯拉夫之间的拉帕洛条约。[扎达尔](https://en.wikipedia.org/wiki/Zadar)被意大利吞并[，菲乌姆自由邦](https://en.wikipedia.org/wiki/Free_State_of_Fiume)成立。([详情](https://en.wikipedia.org/wiki/Treaty_of_Rapallo,_1920))。
+	- ### 15日
+		- 国际联盟召开第一次大会。([详情](https://en.wikipedia.org/wiki/League_of_Nations))。
+# 1921年
+- ## 10月
+	- ### 13日
+		- 1921年|布尔什维克俄罗斯和[土耳其](https://en.wikipedia.org/wiki/Turkey)之间的卡尔斯条约。([详情](https://en.wikipedia.org/wiki/Treaty_of_Kars))。
+# 1922年
+- ## 2月
+	- ### 6日
+		- 1922年|[华盛顿海军条约](https://en.wikipedia.org/wiki/Washington_Naval_Treaty)，限制海军吨位，由法国、意大利、日本、英国和美国签署。([详情](https://en.wikipedia.org/wiki/Washington_Naval_Treaty))。
+- ## 4月
+	- ### 16日
+		- 1922年|德国与布尔什维克俄罗斯签订拉帕洛条约，使外交关系正常化。([详情](https://en.wikipedia.org/wiki/Treaty_of_Rapallo,_1922))。
+- ## 4月10日-5月19日
+	- 1922年|[热那亚会议](https://en.wikipedia.org/wiki/Genoa_Conference)。一战结束后，来自34个国家的代表讨论经济问题。([详情](https://en.wikipedia.org/wiki/Genoa_Conference))。
+- ## 9月
+	- ### 11日
+		- 1922年|在亚美尼亚埃里温批准了卡尔斯条约。([详情](https://en.wikipedia.org/wiki/Treaty_of_Kars))。
+# 1923年
+- ## 6月
+	- ### 16日
+		- 1923年|在[俄国内战](https://en.wikipedia.org/wiki/Russian_Civil_War)结束。
+- ## 7月
+	- ### 24日
+		- 1923年|协约国与奥斯曼帝国继承国土耳其之间的洛桑条约。它取代了《色佛尔条约》。([详情](https://en.wikipedia.org/wiki/Treaty_of_Lausanne))。
+# 1924年
+- ## 1月
+	- ### 27日
+		- 1924年|意大利和南斯拉夫之间的罗马条约。[Fiume](https://en.wikipedia.org/wiki/Fiume)被意大利吞并，邻近的[Sušak](https://en.wikipedia.org/wiki/Su%C5%A1ak,_Rijeka)镇被分配给南斯拉夫。([详情](https://en.wikipedia.org/wiki/Treaty_of_Rome,_1924))。
+# 2010年
+- ## 10月
+	- ### 3日
+		- 2010年|德国支付最后的赔款。([详情](https://en.wikipedia.org/wiki/World_War_I_reparations#Loan_payments))。
